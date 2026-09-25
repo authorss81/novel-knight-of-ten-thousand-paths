@@ -32,6 +32,10 @@ Aren and Mara’s relationship develops through contested work, secrets, repair,
 
 The final world does not restore every lost person or produce a clean national story. It records what was done, names who chose it, compensates communities where possible, and changes the rules that made forced forgetting legal. Repair is a practice, not a magical erasure.
 
+### Peace can be manufactured by removing disagreement
+
+The Quiet Orchard and Edric’s One Road embody the same temptation in opposite forms: a world without visible conflict may have achieved calm by silencing or culling the people who made disagreement costly. The story does not treat unrest as proof of moral failure. It asks who was permitted to speak, whose loss counted, and whether apparent stability can survive informed refusal.
+
 ## Thematic questions by stage
 
 - **Opening:** Can Aren save a path without making its people obey him?

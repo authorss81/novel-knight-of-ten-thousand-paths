@@ -37,6 +37,53 @@ The **Gatehouse** is a buried archive and road-engine beneath Morrow Abbey. It w
 
 The Gatehouse is made of anchor-glass, oath-stone, bell-metal, and human-maintained records. It can sense a living continuation when a person remembers a hinge and touches an anchor connected to it. It cannot invent a people, a geography, or a history that has no living continuity.
 
+## Custody protocols
+
+The Gatehouse stores roads; it does not own the people who live on them. Its authority has changed twice, and the difference matters to every crossing.
+
+### The Quiet Assembly protocol
+
+The original protocol permits deliberate contact only when all of these conditions are met:
+
+1. A living local anchor consents to the named contact.
+2. A second custodian, independent of the first, confirms the route and purpose.
+3. The contact has a stated limit or renewal date in a public Gatehouse register.
+4. The destination community may end contact at any time without losing its route or its other records.
+
+The two custodians protect against one office, one witness, or one rescuer claiming that emergency permission is the same as consent. They do not speak for everyone in a path. Local councils appoint custodians, and those custodians remain answerable to them.
+
+### The corrupted Council protocol
+
+Over several generations, the Lantern Council changed “no second witness” into “no surviving record,” then treated an absent witness as a consenting one. It added a **recognized private keeper** clause: a person bearing the Gatehouse’s route signature could be named by the Council as the temporary keeper of every route attached to that signature. A keeper could open, maintain, or close those routes alone.
+
+The clause looks efficient because it gives one office a clear chain of command. In practice, it allows one person to convert custody into selection. Each forced choice removes a local witness and enlarges the Unwritten Wound.
+
+### Aren’s route signature
+
+Ilyra’s crossing left a **route signature** in Aren’s roadmark: the unfinished record of a promised return from the sealed path that carried her and Aren. It identifies that sealed continuation and satisfies its memory requirement; it does not create a bloodline claim, grant command over that path, or count as consent. It also does not identify Bellweather. The cracked toll bell supplies Bellweather’s own hinge and living target. The damaged legacy stitch misreads Ilyra’s route signature as a generic provisional keeper credential, which is how Aren can attempt the Bellweather opening without the normal second custodian.
+
+After that opening, the corrupted protocol adopts the roadmark as a private-keeper key. Whenever Aren later opens another route, the Gatehouse adds that route to the same keeper ledger even though Ilyra never saved it and its people have not consented to him. The corrupted rule mistakes that chain of crossings for a chain of custody. This explains Aren’s growing capacity, but no path community has granted him authority. It is also why Edric wants him: with the Last Common Key, the Gatehouse would treat Aren’s confirmation as the final continuity check for the whole connected network. A local anchor can still refuse Aren entry even after the corrupted protocol recognizes him.
+
+### The First Witness and the One Road
+
+The **First Witness** is the original refusal mechanism. When a forced severance lacks two independent living custodians, it records the order as *unwitnessed* and refuses to carry it through. The Quiet Assembly made refusal the safe default because a missing witness must never be converted into permission.
+
+Edric reverses that rule. His rewritten First Witness treats the most mutually consistent surviving records as the preferred history and builds the **Last Common Key** from fragments of ten path anchors. With a Crown seal and Aren’s route signature, it can force every connected route toward one selected continuation.
+
+The One Road does not cure the Unwritten Wound. It suppresses its visible symptoms inside the connected network by forcing law, memory, contracts, and testimony to agree with one history. Damage that cannot be reconciled is pushed into sealed routes, unrecorded people, and the common anchor itself. Edric expects a temporary measurable calm; a successful activation would create a larger centralized wound.
+
+The Charter reverses the mechanism at the protocol level. When each connected live route is represented by a separate local custodian, no recognized private keeper can bind them all into one witness, and the First Witness returns to its original refusal state. This is a political and technical defeat of the One Road, not a new spell invented for the climax.
+
+### The post-Charter protocol
+
+After ratification:
+
+- A **routine contact** requires a common anchor, a named local custodian, one independent witness from another community, a public entry, and an expiration date. Either side may end it at the next safe crossing.
+- A **lasting road** requires at least two custodians from the destination community and one from the receiving world, a written charter, and public renewal at least once a year.
+- A **major transfer of people, records, or anchor-glass** requires notice to every affected community and a hearing where refusal can be sustained without being labeled treason.
+- No individual may merge paths, declare a path failed, or remove a local anchor. The Gatehouse can refuse an invalid working, but it cannot physically defend itself or compel a community to answer.
+- Aren may witness and translate during a crossing. He can no longer be its private keeper or invoke a route without the people responsible for it.
+
 ## Entering a path
 
 Aren can open a path only when all of the following are true:
@@ -44,16 +91,16 @@ Aren can open a path only when all of the following are true:
 1. **A hinge exists:** A moment in which a consequential choice was made or refused, and enough physical or social evidence remains for that moment to be remembered.
 2. **A living anchor remains:** At least one person, community, object, or practice in the target continuation still carries the hinge’s memory.
 3. **Aren knows enough to name the road:** He must know a name, story, or physical feature that identifies the path. Guessing at a blank map does not work.
-4. **He pays the opening cost:** The first crossing costs a memory, a mark, and a piece of his ordinary life. Later crossings become possible only through practice and new anchors.
+4. **He pays the opening cost:** The first crossing costs a mark, a specific memory, and a piece of his ordinary routine. Aren loses the remembered pitch of one verse from Ilyra’s river song; the shape of the melody and most of its words remain. Later crossings become possible only through practice and new anchors.
 5. **Capacity is available:** The path limit for his current stage is not already occupied, unless he deliberately closes an older route first.
 
 A path may be a continuation of an event Aren never witnessed. It is not a dream, a copied map, or a reward realm. The people inside have histories that predate his arrival and interests that survive his departure. There is no exception that turns an empty path into a reset table.
 
 ## Persistence and the no-reset rule
 
-While a path remains reachable, its people make choices, work, age, remember, and suffer consequences whether Aren is present or not. A path cannot be reset while conscious life exists inside it. There is no reload, restart, or return to a convenient earlier moment.
+Once a path has cohered, the Gatehouse cannot rewind any part of it, whether or not conscious life remains. There is no reload, restart, replay, or return to a convenient earlier moment. While a path remains reachable, its people make choices, work, age, remember, and suffer consequences whether Aren is present or not.
 
-Aren can close a route. Closing only removes his access and the Gatehouse’s visible support; it does not kill the world or its inhabitants. If a path’s last living anchor is destroyed, the path becomes **unreachable** rather than automatically annihilated. Later volumes can discover physical traces and records, but cannot simply recreate the lost society.
+Aren can close his side of a route. Closing only removes his access and the Gatehouse’s visible support; it does not kill the world or its inhabitants. If a path’s last living anchor is destroyed, the path becomes **unreachable**, not reusable. Physical traces, ruins, and incompatible records may remain, but the Gatehouse cannot reconstruct the lost society or turn its absence into another version of the same world.
 
 Death inside a path is permanent for that version of the person who dies. If Aren is killed, he can return only to a previously prepared return stitch, after a severe physical and temporal cost. He does not get a second attempt at the same moment, and the path remembers the death.
 
@@ -96,11 +143,12 @@ Aren can:
 Aren cannot:
 
 - Create a path from nothing.
-- Reset, pause, rewind, or observe every event in a path remotely.
+- Reset, pause, rewind, replay, or observe every event in a path remotely.
 - Copy a path’s population, technology, or magic directly into himself.
 - Command a path’s inhabitants or make their choices count as consent.
 - Restore a dead person by opening another version of the same life.
 - Open a route with no living anchor, even if he has a complete map.
+- Use his route signature as a second witness or a claim over the path that carried Ilyra.
 - Use a future power before he has paid for the present one.
 
 ## The Gatehouse voice and the System
@@ -121,60 +169,78 @@ The voice may be incomplete or technically true in a way that conceals a moral c
 
 ## Power stages
 
+A stage opens only when Aren has completed its qualification in ordinary work and relationships. The Gatehouse does not award it, the System does not confirm it, and carrying more routes does not substitute for the test.
+
 ### Stage 0: The Disgraced Knight
 
-Before the first crossing, Aren has ordinary battlefield and bridgecraft competence. He can use simple Bind, Warm, and Mend workings, but he cannot reliably enter a path. He survives through training, local knowledge, and allies rather than a secret bloodline.
+Before the first crossing, Aren has ordinary battlefield and bridgecraft competence. He can use simple Bind, Warm, and Mend workings, but he cannot reliably enter a path. His qualification is lived rather than mystical: years of inspection, field command, failed repairs, and the testimony of people who worked beside him. He survives through training, local knowledge, and allies rather than a secret bloodline.
 
 ### Stage 1: The First Stitch — Volume 1
 
 - **Ability:** Open one path through a known living anchor; recognize a return stitch; carry one residue.
-- **Cost:** A permanent roadmark, a sacrificed memory fragment, and physical exhaustion that resembles a severe fever.
+- **Qualification:** Enter Bellweather-Living, return through a physical stitch, complete one repair under a local teacher, and obtain an informed local person’s consent to keep the route visible.
+- **Irreversible cost:** A permanent roadmark, three days of fever, and loss of the remembered pitch of one verse from Ilyra’s river song.
 - **Limit:** One route, no remote awareness, and no way to choose a path’s political outcome.
-- **Practice requirement:** He must make a first crossing, survive a local failure, and return with a real person’s trust.
+- **Failure and recovery:** A failed opening leaves a half-visible road and damages the anchor. Aren must let local people close it, repair the physical bell or bridge, and wait through the fever before trying again.
 
 ### Stage 2: The Second Door — Volumes 2–3
 
-- **Ability:** Keep two paths open and distinguish their basic cause-and-effect patterns. He can send a short message or a small nonliving object through a known stitch.
-- **Cost:** Path bleed, divided attention, and a growing risk that a local memory will be mistaken for his own.
+- **Ability:** Keep two paths open, distinguish their basic cause-and-effect patterns, and send a short message or small nonliving object through a known stitch.
+- **Qualification:** Complete three controlled returns across two paths, deliberately close one route without losing it, and name aloud which memories belong to him when path bleed becomes obvious.
+- **Irreversible cost:** Persistent afterimages from both paths and the first unmistakable loss of an ordinary Merefen routine; a day in the wrong place can no longer be explained entirely as exhaustion.
 - **Limit:** Two active paths compete for attention; he cannot bring a person back without a second living anchor and consent.
+- **Failure and recovery:** If he overloads both routes, the older one tears shut and may require a local custodian to rebuild its anchor. Recovery takes weeks without crossing, not a new attempt on demand.
 
 ### Stage 3: Threadkeeper — Volumes 4–6
 
 - **Ability:** Maintain three paths, trace a path’s lineage, and cut a forced connection that is already threatening a path.
-- **Cost:** Every cut leaves a scar in the current world. He must accept responsibility for the consequences of the cut even when the immediate target is gone.
-- **Limit:** He cannot create a safe return for an unwilling traveler, and the more he uses Threadkeeper, the more he recognizes the Gatehouse’s preferred history as a pressure.
+- **Qualification:** Complete one consensual cut while a local bridgekeeper remains present, then help the same community repair the physical scar before the route is declared stable.
+- **Irreversible cost:** Every cut leaves a visible seam in the current world and gives the affected path a lasting memory of him.
+- **Limit:** He cannot create a safe return for an unwilling traveler, and each additional cut makes the Gatehouse’s preferred history feel physically plausible to him.
+- **Failure and recovery:** A cut made from a forged or absent local witness can tear that community’s own anchor and end contact. In Volume 6, Aren’s failure costs a live route its connection; recovery requires accepting the loss and rebuilding trust outside the path.
 
 ### Stage 4: Convergence — Volumes 7–10
 
 - **Ability:** Maintain five paths and exchange techniques, records, or trade between consenting path communities. A path may choose to refuse contact.
-- **Cost:** Emotions and memories begin to cross without becoming identical. Aren develops path-specific sensory habits and must ask for help when he loses the ability to distinguish them.
-- **Limit:** Consent must be demonstrated by a local community, not inferred from a single representative or from Aren’s belief that contact would help.
+- **Qualification:** Organize mutual aid among at least three path communities, honor one community’s refusal, and let local custodians conduct a transfer while he serves only as witness.
+- **Irreversible cost:** Path-specific emotions and sensory habits cross the boundary; Aren must depend on other people to identify which memory or grief is his own.
+- **Limit:** Consent must be demonstrated by a local community, not inferred from one representative or from Aren’s belief that contact would help.
+- **Failure and recovery:** A transfer made through the wrong anchor can expose private memories or damage trade. Recovery requires withdrawal, restitution, and rebuilding the local record rather than a magical purge.
 
 ### Stage 5: Witness Crown — Volumes 11–14
 
 - **Ability:** Maintain seven paths, see the major choices around a hinge, and prevent a forced cull by becoming a temporary anchor.
-- **Cost:** He absorbs a portion of the cull’s uncertainty and cannot safely leave the Gatehouse for long. Each protected path changes how he is remembered in the current world.
-- **Limit:** He can delay a cull, not repeal it. The political solution still requires people to dismantle the Culling Order’s legal authority.
+- **Qualification:** Hold seven routes through a threatened cull while appointed local custodians direct the defense, then transfer each route back without claiming a permanent share in its governance.
+- **Irreversible cost:** He absorbs part of the cull’s uncertainty and cannot safely remain away from the Gatehouse for long. Each protected path changes how people in the current world remember him.
+- **Limit:** He can delay a cull, not repeal it. The political solution still requires dismantling the Culling Order’s legal authority.
+- **Failure and recovery:** If he tries to act as commander as well as anchor, the protected routes reject his working and at least one anchor must be evacuated. He recovers authority only by accepting local command.
 
 ### Stage 6: The Many-Handed — Volumes 15–17
 
 - **Ability:** Maintain all ten open routes and connect several path communities in a temporary mutual-aid web.
-- **Cost:** Aren becomes a junction rather than a complete individual. He needs a trusted custodian to anchor him to the main world, and he cannot safely cross a path alone.
-- **Limit:** Ten is a hard capacity, not a victory condition. A tenth path cannot be opened by destroying an older one; closing a route only removes contact.
+- **Qualification:** Sustain ten routes through a full flood-and-harvest cycle while a named main-world custodian keeps him anchored, and voluntarily delegate three route decisions he could have made alone.
+- **Irreversible cost:** His limp worsens, one ear loses useful hearing, and severe path bleed remains even after the routes are closed.
+- **Limit:** Ten is a hard capacity, not a victory condition. A tenth path cannot be opened by destroying an older one, and he cannot safely cross alone.
+- **Failure and recovery:** Losing his main-world custodian collapses the web into path bleed. He must return to ordinary work and accept a three-person anchoring team before reopening even one route.
 
 ### Stage 7: The Unowned Road — Volume 18
 
-- **Ability:** Temporarily hold the whole Gatehouse as a witness, translate between paths, and prevent a forced collapse.
-- **Cost:** He surrenders exclusive access, most private memories of the paths, and the ability to use his power alone. His body keeps physical marks from the crossings.
-- **Limit:** No one person can open or close a path afterward. Every major crossing requires a public record, a living local custodian, and a second independent witness.
+- **Ability:** Temporarily hold the whole Gatehouse as a witness, translate between paths, and prevent a forced collapse while independent custodians open separate roads.
+- **Qualification:** Transfer every personal route, refuse the First Witness’ private-keeper confirmation, and remain the common witness without issuing a command.
+- **Irreversible cost:** He surrenders exclusive access, most private memories of the paths, and the last clear fragment of Ilyra’s melody. His limp, hearing loss, and roadmarks remain.
+- **Limit:** No one person can open, close, or merge a path afterward. Every crossing follows the public custody protocol.
+- **Failure and recovery:** Any attempt to retain one hidden route would re-create the selector. The failure is prevented by distributing the anchors before the climax, not by Aren winning a last personal contest.
 
 ## Cost ledger and recovery
 
-- **Physical cost:** Roadmarks, fever, blood loss, damaged hearing, and a permanent limp after the final-volume crossing. Aren can heal, but not erase the record of the cost.
-- **Memory cost:** The first crossing costs a clear memory of his mother’s voice. Later crossings blur the boundary between his own life and path lives.
+- **Volume 1:** Aren gains the roadmark and First Stitch, suffers a severe fever, and loses the remembered pitch of one verse from Ilyra’s river song.
+- **Volumes 2–6:** He acquires path-specific afterimages, a permanent limp while holding the Hearth Marches bridge in Volume 3, and a visible current-world scar from each Threadkeeper cut.
+- **Volumes 7–10:** Path bleed becomes difficult to distinguish from his own emotion. By Volume 10, he has lost the habits of a full ordinary year in Merefen to time divergence and crossing work, though eight calendar months have passed.
+- **Volumes 11–17:** His route signature becomes a public target. The Many-Handed stage worsens his limp, leaves him partly deaf in one ear, and leaves permanent bleed even when the ten routes are transferred.
+- **Volume 18:** He loses the last clear fragment of Ilyra’s melody, most private memories carried from individual paths, and all exclusive Gatehouse access. No new limp is added; his existing injuries remain visible.
 - **Emotional cost:** Path bleed makes it harder to know which grief belongs to him. Relationships become necessary because another person can remind him what he chose and why.
 - **Social cost:** Every crossing creates obligations. A saved path may expect a trade route, a returned prisoner, a public name, or nothing at all. Aren cannot promise more than he can deliver.
-- **Failure cost:** A failed opening can leave a path half-visible, damage a return stitch, or make the target community reject him. Failure is not a free reset; it changes the next attempt.
+- **Failure cost:** A failed opening can leave a path half-visible, damage a return stitch, destroy contact without killing a community, or make the target community reject him. Failure is not a free reset; it changes the next attempt.
 - **Recovery:** Rest, work with a local craftsperson, relationship conversation, and a period without crossing. No stage can be gained by sleeping alone or receiving a new panel.
 
 ## Examples of earned progression

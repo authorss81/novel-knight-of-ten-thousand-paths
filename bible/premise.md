@@ -30,7 +30,7 @@ Across the series the mystery expands in four questions:
 3. Why was Aren able to cross when other knights could not, and what does his mother’s old roadmark have to do with it?
 4. What is the Unwritten Wound that grows whenever one history is forced to erase every other living possibility?
 
-The final answer is that the Sundering was a deliberate first cull by the Lantern Council, authorized by Marshal Edric Hunn, to cut a contagious contradiction out of Neyra. The council believed it was choosing the least painful surviving history. The Gatehouse was built to prevent exactly that kind of choice, but its consent rule was later rewritten into a selector. The wound is not a separate monster waiting to be defeated; it is the damage caused by a world being forced to agree on one history.
+The final answer is that the Sundering was a deliberate first cull by the Lantern Council, authorized by Marshal Edric Hunn, to cut a contagious contradiction out of Neyra. The council believed it was choosing the least painful surviving history. The Gatehouse was built to prevent exactly that kind of choice, but its consent rule was later rewritten into a selector. The wound is not a separate monster waiting to be defeated; it is the damage caused by a world being forced to agree on one history. Ilyra’s roadmark is a route signature left by an unfinished return from her sealed path, not Bellweather. It gives Aren a corrupted keeper credential but no claim over either path; the cracked Bellweather bell supplies the first crossing’s actual target.
 
 ## Starting situation
 
@@ -40,12 +40,12 @@ The first crossing offers the genre promise and the first moral test immediately
 
 ## Final resolution in brief
 
-At the end of the series, Aren prevents Edric Hunn from opening the **One Road**, a plan to collapse every path into one managed history. He does not become the permanent keeper of the Gatehouse. He helps the surviving paths write a distributed **Charter of Many Roads**, then surrenders his exclusive ability to enter them. The Gatehouse becomes a public network of roadhouses and local custodians, each path retaining the right to refuse contact. Aren returns to bridge work, his power reduced but his relationships intact, while Neyra learns to live with a visible scar instead of pretending history is clean.
+At the end of the series, Aren prevents Edric Hunn from opening the **One Road**, a plan to force every reachable path toward one managed history. He does not become the permanent keeper of the Gatehouse. Surviving main-world and path communities ratify a distributed **Charter of Many Roads**, then Aren surrenders his exclusive ability to enter them. The Gatehouse becomes a public network of roadhouses and local custodians, each path retaining the right to refuse contact. Aren returns to bridge work, his power reduced but his relationships intact, while Neyra learns to live with a visible scar instead of pretending history is clean.
 
 ## Canon boundaries
 
 - No path is a disposable, consciously empty sandbox.
-- No reset, rewind, or “save scum” restores a death or erases a path’s consequences.
+- No reset, rewind, replay, or “save scum” restores a death, reuses a lost path, or erases a path’s consequences.
 - Aren is not a statistically optimized hero; skill comes from practice, failed workings, local teachers, and changed decisions.
 - The System voice is the Gatehouse itself, not an omniscient quest giver. It gives short rules or warnings and may omit the moral context.
 - The final enemy is Edric Hunn and the Culling Order he leads. No new cosmic enemy is introduced after the final-volume plan.

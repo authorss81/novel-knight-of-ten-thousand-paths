@@ -14,6 +14,8 @@ Neyra is not secretly modern. There are no firearms, mass printing, or instant c
 
 A fen-side market town and Aren’s starting home. It sits where the Sable River divides into reed channels. Merchants bring peat, fish, salt, and glass, while local bridge crews repair the raised road. Merefen is prosperous enough to have opinions, poor enough that a closed road causes real hardship. Its people know Aren as a competent repairman before they know him as a disgraced captain.
 
+The **Bellweather Claims Archive** occupies two flood-safe rooms above a Merefen salt merchant. It is not the living archive inside Bellweather-Living. It was created after the Sundering to hold salvage lists, duplicate deeds, survivor claims, and the names of people whom insurers or officials wished to classify as unverified. Locals shorten the name to the Bellweather Archive. Its staff must keep at least one set of records outside Crown custody, a practice that makes the office both useful and politically suspect.
+
 ### Bellweather and Alder Vale
 
 Bellweather was a river city built around a massive arched bridge, a bell foundry, and a public archive. The Bellweather Sundering erased the city, the bridge, and seven nearby villages from the physical world. The name Bellweather survives in old songs, blank maps, and a river channel that locals avoid after dark. The path continuation called **Bellweather-Living** has a functioning bridge and a different political history.
@@ -56,17 +58,23 @@ The Quiet Assembly was a loose council of river communities, road crews, archivi
 
 The Gatehouse was meant to let communities compare possible continuations, negotiate trade and refuge, and preserve names when a local catastrophe was disputed. It was not designed to grant one hero authority over every world. Its original consent rule required a living anchor and, for opening or maintaining a deliberate contact, the agreement of at least two independent custodians. A damaged legacy stitch can produce Aren’s first uncontrolled crossing, but that bypass is a fault in the old system rather than a normal entry method.
 
+The **First Witness** was the safeguard around that rule. If a proposed closure lacked two independent living witnesses, the protocol refused to carry it out. Refusal was safer than choosing a likely survivor, because it placed the burden of proof on the person proposing violence. The Gatehouse recorded disagreement rather than resolving it by force.
+
 ### The Lantern Council
 
 The Crown of Neyra later created the **Lantern Council** to judge oaths, certify succession, and maintain the public road network. The Council is not a secret evil order. It supplied courts, bridge standards, grain reserves, and the first reliable map of the western marches. Its institutional habit, however, is to label one approved account as the only lawful history.
 
-The Council altered the Gatehouse’s consent rule by degrees. First it treated a missing witness as a dead witness. Then it treated an unrepresented path as a failed path. Finally it authorized selective severing whenever a continuation was judged likely to cause instability. The **Culling Order** is the name used by the people who carried out these severances; the Council calls them emergency closures.
+The Council altered the Gatehouse’s consent rule by degrees. First it treated a missing witness as a dead witness. Then it treated an unrepresented path as a failed path. It added a private-keeper clause allowing a Crown-recognized bearer of one route signature to manage every route attached to that signature. Finally it authorized selective severing whenever a continuation was judged likely to cause instability. The **Culling Order** is the name used by the people who carried out these severances; the Council calls them emergency closures.
+
+Aren’s roadmark is the route signature created when Ilyra carried him from a sealed continuation through an unfinished return. It identifies that sealed path, not Bellweather, and grants no claim over its people. The cracked Bellweather bell supplies the target and living hinge for his first crossing. The damaged protocol mistakes Ilyra’s saved passage for a generic keeper credential, which explains both why Aren can cross Bellweather and why political forces want him to confirm their version of history.
 
 ### The Unwritten Wound
 
 The Unwritten Wound is a spreading zone where promises, laws, and cause-and-effect stop agreeing with one another. It is not a sentient monster. Its symptoms include a road that reaches two destinations, a person who cannot be remembered by two witnesses at once, a bridge that is intact in one map and missing in another, and legal decisions that reverse when a different clerk reads them.
 
-The Wound grows wherever a living path is forcibly closed or when a major oath is used as a one-way command. It is a consequence of historical coercion, not a convenient monster that can be killed. The final plan contains it at a visible wound and builds institutions that prevent new forced closures.
+The Wound grows wherever a living path is forcibly closed or when a major oath is used as a one-way command. It is a consequence of historical coercion, not a convenient monster that can be killed.
+
+Edric’s **One Road** is an attempted counterworking. It uses the **Last Common Key**, a Crown seal assembled from fragments of ten path anchors, to force every reachable path toward one approved history. The plan would make contracts, testimony, maps, and magic inside the connected network agree with each other, suppressing the visible contradictions that make the Wound measurable. It does not remove the contradiction. It drives incompatible evidence into sealed paths, unwitnessed lives, and the common anchor. Edric expects temporary suppression; a completed One Road would create a larger centralized wound. The story’s final resolution contains the existing damage at a visible scar and builds institutions that prevent new forced closures.
 
 ### The Bellweather Sundering
 
@@ -78,7 +86,7 @@ The truth is more damaging: Edric knew the cull would kill everyone inside the s
 
 - **The Crown of Neyra:** a federation of river provinces under a ceremonial monarch. It funds roads and stores grain, but cannot control every local assembly.
 - **Lantern Council:** oath judges, archive keepers, and royal road administrators. Some members want repair; many defend the official history because admitting a living cull occurred would destabilize succession and trade.
-- **The Bellweather Archive:** a small public records office led by Mara Vey. It preserves charters, damage reports, and erased names rather than weapons.
+- **Bellweather Claims Archive:** The main-world records office in Merefen that holds salvage claims, copied deeds, and testimony concerning the erased city. It is distinct from Bellweather-Living’s own archive.
 - **Roadwardens:** local bridge and road workers. Aren’s former order is now split between Crown loyalists, independent crews, and people who remember what Bellweather paid.
 - **The Quiet Assembly:** a dispersed guild of old path-keepers, oath-smiths, and bridge engineers. Its surviving records are incomplete and often contradictory.
 - **The Culling Order:** Edric’s enforcement network. It seals anchors, confiscates path journals, and calls forced severance an emergency measure.
@@ -138,7 +146,7 @@ Aren has no right to reveal a path’s secrets to the main world merely because 
 ## World rules that must remain true
 
 1. The Gatehouse cannot create a path from nothing; it can open an existing continuation when a living anchor and a remembered hinge remain.
-2. A path cannot be reset while conscious life exists inside it.
+2. Once a path has cohered, it cannot be reset or reconstructed from a later state, even if every living anchor is lost. Loss of contact leaves unreachable traces, not a reusable path.
 3. Closing a route is not the same as destroying the route. People may continue to live there without Aren.
 4. Magic is local, bounded, and paid for. It cannot solve an entire social problem without an anchor, a method, and a human consequence.
 5. Every path has ordinary people and work that matter even when the central mystery moves elsewhere.

@@ -6,7 +6,7 @@ This is the planned ending for the final volume, **Volume 18: A World Without It
 
 ## Starting state at Chapter 851
 
-- Edric Hunn has captured the Gatehouse after activating the unfinished One Road.
+- Edric Hunn’s forces still hold the Gatehouse after the Volume 17 breakthrough. Edric is at large in the lower archive, directing the unfinished One Road while his lieutenants control the occupied terraces.
 - Ten path communities and several main-world provinces are connected by fragile roads, but no institution has legitimate custody of the whole system.
 - The Unwritten Wound is active along the Gatehouse and appears in maps, contracts, and family histories.
 - Aren is alive, permanently lame, partly deaf in one ear, and marked by severe path bleed. He cannot cross safely without an outside custodian.
@@ -16,7 +16,7 @@ This is the planned ending for the final volume, **Volume 18: A World Without It
 
 ## Final external conflict
 
-Edric attempts to complete the **One Road**: a forced convergence of every reachable path into a single, Crown-approved continuation. The plan would seal the Unwritten Wound by eliminating incompatible histories, but it would erase or subsume every path community that does not match the selected main-world history. Some people would survive physically; their histories, relationships, and communities would not.
+Edric attempts to complete the **One Road**: he intends to use the Last Common Key and the corrupted First Witness to force every reachable path toward a single, Crown-approved continuation. The plan would suppress the Unwritten Wound’s visible symptoms by making contracts, testimony, law, and route-memory agree. It would erase or subsume every path community that does not match the selected main-world history. Some people would survive physically; their histories, relationships, and communities would not. Incompatible evidence would be driven into sealed routes, unwitnessed lives, and the common anchor, creating a larger centralized wound.
 
 Aren must prevent the One Road without destroying the Gatehouse or allowing the main world to seize the paths in a new panic. The final battle is therefore a struggle over custody, consent, and the ability to open independent roads under pressure. It is not a boss fight against a new cosmic entity.
 
@@ -40,13 +40,13 @@ The cost is permanent but survivable. He remains a bridge worker and a witness, 
 
 The team must restore contact with the lower archive while the One Road’s forced convergence distorts local maps and contracts. Edric offers Aren a private settlement: restore Aren’s rank, preserve Bellweather-Living as a controlled exhibit, and let the main world keep a single stable history. Aren refuses the terms but delays a final answer while rescue crews reach isolated custodians.
 
-The chapters alternate between the Gatehouse occupation, Mara’s public record rooms, and path delegates negotiating safe passage. The first concrete discovery is that Edric’s authority depends on the First Witness treating Aren as the last private keeper. If Edric can convince the world that only Aren can stabilize the system, he can activate the One Road without a formal council.
+The chapters alternate between the Gatehouse occupation, Mara’s public record rooms, and path delegates negotiating safe passage. The first concrete discovery is that Edric’s authority depends on the First Witness treating Aren as the last private keeper and on the Last Common Key’s ten anchor fragments. If Edric can make the world accept Aren as a universal confirmer, he can activate the One Road without a new council.
 
 ### Chapters 859–866: The first charter fails
 
 A provisional Charter of Many Roads is drafted. It seems to solve the crisis, but it gives Aren a confirming role that lets him override local refusal. Main-world officials support the provision because they want a recognizable commander; some path delegates support it because they believe Aren is the least bad custodian.
 
-A public vote exposes the contradiction. Aren tries to salvage the charter by taking control of the anchors, proving that he can stabilize the Gatehouse. His success is real, and it costs him: path communities revoke his authority, the First Witness labels him an untrusted keeper, and a forced closure damages a small path anchor. The people there survive, but their contact with the main world is lost. The failure is not a reset; it is a permanent political and emotional consequence.
+A public vote exposes the contradiction. Aren tries to salvage the charter by taking control of the anchors, proving that he can stabilize the Gatehouse. His success is real: the immediate strain drops, but invoking the private-keeper clause causes two local custodians to withdraw their confirmations. The First Witness records Aren as an untrusted keeper and the Last Common Key loses those anchor fragments. The corrupted protocol attempts a compensating closure and damages a small path anchor. The people there survive, but their contact with the main world is lost. The failure is not a reset; it is a permanent political and emotional consequence.
 
 Aren finally understands that the final answer cannot be a better version of his own competence.
 
@@ -58,11 +58,11 @@ Mara records each transfer in multiple places. Their relationship moves through 
 
 ### Chapters 875–883: Edric’s last argument
 
-Edric releases the lower archive and reveals the full mechanism of the One Road. He argues that the Unwritten Wound will return as soon as the paths separate again. He shows real evidence: the first closed path’s disappearance caused three regions to lose their historical anchors, and the main world’s law will be unable to distinguish memory from invasion.
+Edric unseals the lower archive’s selector records while remaining in control of the occupied floor. He reveals the full mechanism of the One Road and argues that the Unwritten Wound will return as soon as the paths separate again. He shows real evidence: the first closed path’s disappearance caused three regions to lose their historical anchors, and the main world’s law will be unable to distinguish memory from invasion.
 
 Aren does not refute him with certainty. He admits that the risk is real, then explains why forced convergence is not a solution to a wound caused by forced convergence. The final answer is not “all paths should remain open forever.” It is “no path may be closed or made subject by force, and the burden of proof belongs to the person proposing closure.”
 
-Edric’s forces attempt a final assault on the lower archive. Tovan’s crews, former Council members, path delegates, and main-world locals defend the anchors through work and negotiation rather than one heroic battle. Aren uses Threadkeeper and Witness Crown techniques repeatedly, each time accepting a visible scar and losing a piece of private certainty.
+Edric’s forces attempt to use the still-occupied lower archive to sever a path anchor and break the transfer schedule. Tovan’s crews, former Council members, path delegates, and main-world locals defend the anchors through work and negotiation rather than one heroic battle. Aren uses Threadkeeper and Witness Crown techniques repeatedly, each time accepting a visible scar and losing a piece of private certainty.
 
 ### Chapters 884–890: The Charter is ratified
 
@@ -76,13 +76,15 @@ The surviving communities ratify the Charter in separate locations, then connect
 - The Bellweather Archive records the Sundering and the names of the dead.
 - The Culling Order is dissolved, and its emergency authority expires unless a local council renews it by a public process.
 
-Aren uses the **Unowned Road** to keep the Gatehouse open while these acts occur. He cannot command the communities. He can only witness the connections and prevent the First Witness from collapsing them into one choice. The cost appears immediately: he loses the last clear fragment of his mother’s melody and can no longer open a path by touching the old bell.
+Aren uses the **Unowned Road** to keep the Gatehouse open while these acts occur. He cannot command the communities. He can only witness the connections and prevent the First Witness from collapsing them into one choice. Once every live route represented in the Gatehouse network has an independent local custodian, the original First Witness returns to its refusal state and the Last Common Key can no longer select a continuation. The cost appears immediately: he loses the last clear fragment of his mother’s melody and can no longer open a path by touching the old bell.
 
-Edric is captured when the One Road loses its final anchor. He is not killed. He releases the last command that would have erased the Bellweather-Living path, saving the people inside, and accepts that the release does not erase his earlier choices. The main world’s provisional council orders his trial.
+Edric is captured when the One Road loses its final anchor. He is not killed. Under public witness, he revokes the order that would have erased Bellweather-Living and surrenders the Last Common Key, saving thousands and breaking the selector’s final continuity claim. He accepts that these acts do not erase his earlier choices. The main world’s provisional council orders his trial.
 
 ### Chapters 891–895: Consequences and mourning
 
 The immediate aftermath is practical. The wound remains visible in places where maps disagree. Several paths are unreachable and cannot be reopened. The dead of Bellweather are named, but the living Bellweather-Living community is not folded into the main world. Tovan and his crews begin rebuilding a bridge that can carry people and records from both sides. Orrin’s workshop suffers sabotage and must decide which anchors to repair first. Lysa holds public hearings on the Culling Order.
+
+The corrected court judgment resolves the central lie without pretending Aren was innocent of everything. It states that Edric and the Lantern Council ordered the cull, that Aren held the outer bridge under incomplete orders and failed to reach the inner city, and that he later withheld his own contradictory field notes and repeated the official fever account. He did not know the cull’s purpose, but his silence helped make the lie durable. His knighthood and full back pay are restored as matters of record. The court refuses to return him to active command while the Lantern Guard retains the same unreformed emergency powers. Aren accepts that result; clearing his name does not require restoring the office that rewarded blind obedience. Rell, Halven, Sera Dain, and Veyra Senn receive separate judgments based on their own acts, while Edric is tried for the cull, the Culling Order, and the attempted One Road.
 
 Aren visits Ilyra’s sealed path only as a witness at its boundary; it does not open for him. He learns that the path has made its own decision about contact. This is painful, but it confirms the ending’s central principle. The mystery is answered without turning the answer into a reunion.
 
@@ -102,7 +104,7 @@ Aren steps back so they can work. Mara arrives with the public copy of the morni
 
 ## Relationship resolution
 
-- **Aren and Mara:** They marry or enter a formal civil partnership after the Charter. Mara remains an independent public keeper, Aren remains an independent bridge worker, and they share a household without sharing a single public role. Their final scene shows trust expressed through ordinary coordination, not dependency.
+- **Aren and Mara:** They marry after the Charter. Mara remains an independent public keeper, Aren remains an independent bridge worker, and they share a household without sharing a single public role. Their final scene shows trust expressed through ordinary coordination, not dependency.
 - **Aren and Tovan:** They reconcile without erasing the Sundering argument. Tovan leads the inter-path road crews and challenges the Charter whenever it burdens ordinary labor.
 - **Aren and Edric:** Edric survives, loses all power to open paths, and faces a public trial. Aren does not kill or absolve him. Their last exchange acknowledges that a less violent choice can still be a real choice and a late responsibility.
 - **Aren and the path communities:** They do not become his subjects. Bellweather-Living, the Morrow Coast, and other representatives retain veto power over contact and send delegates on their own terms.
@@ -113,15 +115,15 @@ The story answers all central questions:
 
 - Bellweather was not destroyed by a natural fever. It was deliberately severed by Edric and the Lantern Council to contain a localized Unwritten Wound.
 - The Gatehouse was built by the Quiet Assembly to preserve and connect living continuations, not to choose the safest history.
-- Aren can cross because Ilyra carried him across a sealed path when he was an infant. His life is a living consequence of a forbidden rescue, not proof that he owns the path.
+- Aren can cross because Ilyra carried him from a sealed path when he was an infant. Her route signature identifies that sealed path, not Bellweather. The cracked toll bell supplies Bellweather’s own hinge, while the damaged legacy stitch misreads Ilyra’s signature as a generic provisional private-keeper credential. It is a living consequence of a forbidden rescue, not proof that he owns either path. Related dreams are weak echoes carried by exposed anchor-glass and route-memory.
 - The Unwritten Wound grows from forced history and coercive oaths. It can be contained, not wished away.
-- The First Witness is the Gatehouse’s original protection against centralized selection. Edric reverses it and tries to use it for the One Road.
+- The First Witness is the Gatehouse’s original protection against centralized selection. It refuses an unwitnessed closure. Edric reverses its trigger, assembles the Last Common Key, and tries to use it for the One Road; independent custodians restore the refusal rule.
 - The final resolution is the Charter of Many Roads: shared custody, public evidence, local consent, and the right to refuse.
 
 ## Intentionally open questions
 
 - What happened to the people in paths that became unreachable after earlier culls?
-- Why did some path inhabitants dream of Aren before his first crossing?
+- How much damage remains in the sealed paths that no custodian can reach?
 - Is Ilyra still alive inside the sealed path, or did the path preserve her history without her body? Her exact fate remains intentionally unconfirmed.
 - How much of Ilyra’s sealed path can remain independent without support from the new network?
 - What are the long-term effects of the visible Unwritten Wound on law, family memory, and trade?

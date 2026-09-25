@@ -19,7 +19,7 @@ This file is the canonical glossary for names, rules, and terms. Use these spell
 - **The Quiet Assembly:** The loose civic guild that built the Gatehouse.
 - **The Lantern Council:** The Crown’s oath court, archive authority, and road administration.
 - **The Culling Order:** An emergency enforcement network that seals paths and performs forced severances.
-- **The Bellweather Archive:** Mara Vey’s public records office and a center for recovering erased names.
+- **Bellweather Claims Archive:** The main-world records office in Merefen where Mara Vey keeps copied deeds, salvage claims, and testimony about the Sundering. It is not the archive inside Bellweather-Living.
 - **The Glasswright Cantons:** Independent workshops that make anchor-glass, bridge pins, heat jars, and path equipment.
 - **Path communities:** The people living inside any continuation. They may share language and history with main-world Neyra, but they are not a unified faction.
 
@@ -30,9 +30,10 @@ This file is the canonical glossary for names, rules, and terms. Use these spell
 - **The Unwritten Wound:** A spreading region where cause, memory, and law stop agreeing. It is a consequence of forced history, not a separate cosmic species.
 - **The Bellweather Sundering:** Eleven years before the opening, the forced severing of Bellweather and seven villages from Neyra. The official account blames Aren’s failed bridge defense; the truth is a Council-authorized cull.
 - **The Culling Order:** The personnel and procedures used to carry out forced severances. The phrase is used by victims and later investigators; the Council initially calls them emergency closures.
-- **The One Road:** Edric Hunn’s final plan to force all living paths into one controlled continuation. It is a plan for using the Gatehouse, not a natural law.
-- **The Charter of Many Roads:** The final public agreement that distributes Gatehouse custody among path communities and independent witnesses. It replaces one keeper with a network of accountable custodians.
-- **The First Witness:** The Gatehouse’s earliest surviving protocol and signature, created by the Quiet Assembly. It is a mechanism with a narrow purpose, not a secret god or a late-added enemy. Edric becomes its human custodian and abuses it.
+- **The One Road:** Edric Hunn’s final plan to force all reachable paths toward one controlled continuation by making law, memory, contracts, and testimony agree. It suppresses the visible Unwritten Wound while concentrating damage in sealed routes and the common anchor; it does not cure the wound.
+- **The Last Common Key:** A Crown working assembled from fragments of ten path anchors. Combined with Edric’s seal and Aren’s route signature under the corrupted First Witness, it can attempt the One Road.
+- **The Charter of Many Roads:** The final public agreement that distributes Gatehouse custody among path communities and independent witnesses. It replaces one keeper with a network of accountable custodians and restores the First Witness’ refusal rule.
+- **The First Witness:** The Gatehouse’s original safety protocol. It records a proposed forced closure as *unwitnessed* and refuses to carry it through when two independent living custodians are absent. Edric reverses its trigger and abuses it as a selector; it is a mechanism, not a god or late-added enemy.
 
 ## Magic terms
 
@@ -58,6 +59,8 @@ This file is the canonical glossary for names, rules, and terms. Use these spell
 - **Path:** A complete living continuation of Neyra with its own history, people, and ongoing consequences.
 - **Hinge:** The consequential moment around which a path branches. A hinge can be a decision, a refusal, a disaster, or a promise that was kept.
 - **Return stitch:** A prepared physical or social anchor in the main world through which Aren can return from a path.
+- **Route signature:** A record of one unfinished return written into an anchor. Ilyra’s route signature identifies the sealed path that carried her and Aren; it does not identify Bellweather, grant bloodline power, supply consent, or prove that Aren may govern any path.
+- **Legacy stitch:** A damaged Gatehouse passage left by an earlier return promise. It can misread Aren’s route signature as a generic provisional keeper credential, which permits the Bellweather crossing when the cracked bell supplies its own hinge.
 - **Pathmark:** A physical or sensory mark left on Aren by a path. It is evidence of crossing, not a progress bar.
 - **Carryover:** The limited residue of a path that can remain with Aren after he leaves: a name, a physical sense, a practiced motion, or a fragment of memory.
 - **Path bleed:** The interference between Aren’s life and the lives of active paths. It can appear as a dream, accent, habit, phantom sensation, or mistaken memory.
@@ -72,11 +75,13 @@ This file is the canonical glossary for names, rules, and terms. Use these spell
 - **The Witness Crown:** The stage allowing seven paths and temporary protection from a forced cull.
 - **The Many-Handed:** The stage allowing ten open paths and a temporary mutual-aid web.
 - **The Unowned Road:** The final stage. Aren can witness the whole Gatehouse but cannot enter or close it alone.
+- **Custodian:** A living person appointed by a community to authorize a particular contact. A custodian answers to the people who appointed them and may refuse further contact.
+- **Pathwright:** A rare informal name for a bridge worker or archivist trained to maintain Gatehouse routes. It is a craft designation, not a legal rank.
 
 ## People and titles
 
 - **Aren Kest:** Male protagonist; former Lantern Guard captain, bridge repairer, and Pathwright.
-- **Mara Vey:** Bellweather Archive keeper; Aren’s slow-burn romantic partner.
+- **Mara Vey:** Keeper of the Bellweather Claims Archive; Aren’s slow-burn romantic partner.
 - **Tovan Kest:** Aren’s younger brother and bridge carpenter.
 - **Edric Hunn:** Marshal, former mentor, head of the Council’s emergency office, and final human antagonist.
 - **Ilyra Kest:** Aren’s mother, a missing path-stitcher whose choices seeded the central mystery.
@@ -86,10 +91,11 @@ This file is the canonical glossary for names, rules, and terms. Use these spell
 - **Sera Dain:** Culling Order field warden; an early ideological opponent.
 - **Veyra Senn:** Chancellor of the Lantern Council; turns the Sundering into legal precedent.
 - **Rell:** Merefen watch captain who first tries to seize the Bellweather anchor.
-- **Halven:** Opportunistic Bellweather Archive gatekeeper who trades access to records.
+- **Halven:** Opportunistic gatekeeper at the Bellweather Claims Archive who trades access to records.
 
 ## Language conventions
 
+- **Main world** means Aren’s home continuity of Neyra. When both calendars are discussed in planning, use main-world elapsed time first; path time is approximate and recorded separately.
 - Characters in the main world usually call a continuation a **path**, a **road**, or a **continuation**, depending on their education. “Simulation” is a modern or technical term and should not appear in ordinary medieval dialogue.
 - The Gatehouse voice uses short, plain statements such as “A road needs a living hand.” It does not use numbers, menus, or technical computer language.
 - Path communities do not use the same term for themselves. Some call themselves descendants, survivors, citizens, or simply living people. Avoid calling them simulations or NPCs.

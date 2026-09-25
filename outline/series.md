@@ -6,11 +6,38 @@
 
 **Length target:** Approximately 900 chapters across 18 volumes of about 50 chapters.
 
-**Planned span:** About twelve years from Aren’s first crossing to the ratification of the Charter of Many Roads. Path time may differ, so the outer-world dates should be tracked carefully after the first sustained crossing.
+**Planned span:** About twelve years from Aren’s first crossing through the Charter’s ratification and first transfer season. Path time may differ, so the outer-world dates should be tracked carefully after the first sustained crossing.
 
 **Genre:** Simulation fantasy, medieval civic fantasy, mystery, relationship drama, and earned progression.
 
 **Premise:** A disgraced knight can enter living alternate continuations of Neyra, but he cannot reset them, own their people, or use their history as a disposable answer. To stop a former mentor from forcing every world into one “safe” history, Aren Kest must build a system of shared custody that can survive without him.
+
+## Time continuity ledger
+
+Path calendars are not mechanically interchangeable with the main world. The table fixes approximate main-world elapsed time and the longest named path interval used for each volume. Draft chapters must preserve these totals or record an intentional change in the continuity state. A Gatehouse warning can be wrong by days or weeks, never silently by months.
+
+| Volume | Main-world elapsed | Longest path interval | Planning note |
+| --- | ---: | ---: | --- |
+| 1 | 5 months | 7 months in Bellweather-Living | First time drift; allow 3–10 days of uncertainty at return. |
+| 2 | 7 months | 9 months in the County of Ash | The Second Door amplifies drift; preserve dated market days. |
+| 3 | 8 months | 13 months in the Hearth Marches | Aren’s limp is acquired before the return stitch closes. |
+| 4 | 8 months | 16 months in the Ninefold Winter | The valley’s generations continue even if Aren’s route ages unevenly. |
+| 5 | 5 months | 3 months in the City That Refused Dawn | A short main-world interval makes refused contact politically costly. |
+| 6 | 8 months | No sustained open path | Testimony letters lag by 2–6 weeks; the failed cut ends contact. |
+| 7 | 8 months | 10 months in the Memory Quarantine | One remote path is permanently unreachable during the climax. |
+| 8 | 10 months | 18 months in the Broken Frontier | Refugee movement spans the main-world occupation and its aftermath. |
+| 9 | 7 months | Seven visits, 2–9 months each | Assembly travel is ordinary; only repeated journeys accelerate bleed. |
+| 10 | 8 months | 15 months on the Morrow Coast | Aren loses the habits of a full year, not twelve extra calendar months. |
+| 11 | 9 months | No independent crossing | The Trial proceeds in main-world time while archive fragments remain disputed. |
+| 12 | 6 months | 8 months in the Quiet Orchard | Calendar pressure matters less than the reopening of old arguments. |
+| 13 | 7 months | Repeated contacts of days to weeks | Seven routes strain attention; no absent community is treated as frozen. |
+| 14 | 9 months | 3 weeks of emergency contact | Bellweather’s delegation travels physically; the road is not instant. |
+| 15 | 10 months | 2 years in the First Wound path | The route’s origin predates Aren by centuries. |
+| 16 | 12 months | 14 months across the ten-route web | The calendar year is the cost; no additional missing year is implied. |
+| 17 | 7 months | No safe independent crossing | The occupied Gatehouse permits only forced or unstable contact. |
+| 18 | 9 months | No independent long path | Add one month of public ratification and transfer before the final image. |
+
+Total planned main-world span: twelve years, from Aren’s first bell crossing through the first public ratification and transfer season under the Charter.
 
 ## Protagonist
 
@@ -55,32 +82,32 @@ The Gatehouse was not designed to choose the safest history. The Quiet Assembly 
 
 ### Fourth answer
 
-Aren’s mother, Ilyra Kest, used the Gatehouse to carry him from a path that was being closed. His life is the living proof that a supposedly culled path still has claims, but the saved child is not the owner of that path. His personal origin makes the political question personal without making him a chosen ruler.
+Aren’s mother, Ilyra Kest, used the Gatehouse to carry him from a sealed path that was being closed. Her unfinished return remained as a route signature in his roadmark and identifies that sealed path, not Bellweather. The cracked toll bell supplies Bellweather’s hinge; the damaged legacy stitch misreads Ilyra’s signature as a generic provisional private-keeper credential. Aren therefore gains an exceptional route into Bellweather but no bloodline authority or consent from either path. Dreams and involuntary route habits among people exposed to anchor-glass are weak echoes of that credential, not prophecy or evidence of a chosen ruler.
 
 ### Final answer
 
-The Unwritten Wound grows wherever a living possibility is forced to disappear. Edric Hunn’s One Road would end the wound in the main world by collapsing every path into one controlled history. The only lasting solution is a distributed Charter that keeps roads open, public, and contestable while allowing each community to refuse contact. Aren’s final role is as witness and bridge worker, not sole keeper.
+The Unwritten Wound grows wherever a living possibility is forced to disappear. Edric Hunn’s One Road would suppress its visible symptoms by forcing connected paths to share one history, pushing incompatible lives and evidence into sealed routes and the common anchor. The only lasting solution is a distributed Charter that restores the First Witness’ refusal rule, keeps roads open, public, and contestable, and allows each community to refuse contact. Aren’s final role is as witness and bridge worker, not sole keeper.
 
 ## Antagonist ladder
 
-1. **Captain Rell and local authority — Volume 1:** controls the immediate physical response to Aren’s first crossing and tries to confiscate the toll bell.
-2. **Registrar Halven — Volumes 1–2:** sells access to records and treats information as a private lever rather than a public responsibility.
-3. **Warden Sera Dain and the Culling Order — Volumes 2–5:** provide the human machinery of forced closure. Dain’s sincere stability argument gives the threat a moral face.
-4. **Chancellor Veyra Senn and the Lantern Council — Volumes 5–8:** turn an emergency precedent into law, weaponize archives, and attempt to annex path knowledge.
-5. **Marshal Edric Hunn — Volumes 3–18:** former mentor, philosophical center, and final human antagonist. He believes that one competent person must be allowed to choose the least damaging history.
-6. **The First Witness protocol — introduced before the midpoint and fully revealed in Volumes 11–15:** the Gatehouse’s old safety mechanism, not a newly introduced cosmic enemy. Edric uses it to activate the One Road. The final conflict is with Edric and the protocol he controls; there is no later surprise villain.
+1. **Captain Rell and local authority — Volume 1:** executes Edric’s sealed seizure order against the toll bell. In Volume 11 he testifies about the concealed purpose, is suspended, and later loses his command without escaping accountability.
+2. **Registrar Halven — Volumes 1–2:** sells access to records, especially the missing-anchor ledger Edric wants in Volume 2. He later testifies against Chancellor Veyra Senn, accepts restitution and archive labor, and is barred from office.
+3. **Warden Sera Dain and the Culling Order — Volumes 2–5:** provide the human machinery of forced closure. Dain’s sincere stability argument gives the threat a moral face. She refuses the Charter, surrenders in Volume 17, and is tried.
+4. **Chancellor Veyra Senn and the Lantern Council — Volumes 5–8:** turn an emergency precedent into law, weaponize archives, and attempt to annex path knowledge. Her uncontrolled Volume 8 quarantine briefly forces cooperation with Edric, who then uses its refuge register against the communities named in it. She is convicted after the final trial.
+5. **Marshal Edric Hunn — Volumes 1–18:** former mentor, philosophical center, and final human antagonist. He offers conditional rank, selected truth, and temporary help before every escalation, but believes one competent person must be allowed to choose the least damaging history.
+6. **The First Witness protocol — introduced before the midpoint and fully revealed in Volumes 11–15:** the Gatehouse’s old refusal mechanism, not a newly introduced cosmic enemy. Edric reverses its trigger and uses the Last Common Key to attempt the One Road. The final conflict is with Edric and the mechanism he corrupts; there is no later surprise villain.
 
 ## Power stages and costs
 
 The full rules are in `bible/power-system.md`. The series progression is:
 
-1. **The First Stitch — Volume 1:** one open path, one carryover residue, and a permanent roadmark.
-2. **The Second Door — Volumes 2–3:** two paths, limited messages or objects, and increasing path bleed.
-3. **Threadkeeper — Volumes 4–6:** three paths, lineage reading, and limited cuts of forced connections; every cut scars the current world.
-4. **Convergence — Volumes 7–10:** five paths, consent-based exchange, and a relationship-dependent resistance to path bleed.
+1. **The First Stitch — Volume 1:** one open path, one carryover residue, a permanent roadmark, fever, and loss of the remembered pitch of one verse from Ilyra’s river song.
+2. **The Second Door — Volumes 2–3:** two paths, limited messages or objects, increasing path bleed, and a permanent limp acquired while holding the Hearth Marches bridge in Volume 3.
+3. **Threadkeeper — Volumes 4–6:** three paths, lineage reading, and limited cuts of forced connections; every cut scars the current world, and an unconsented failure in Volume 6 ends one live contact.
+4. **Convergence — Volumes 7–10:** five paths, consent-based exchange, and a relationship-dependent resistance to path bleed; Volume 10 costs him the stable habits of a full ordinary year in Merefen.
 5. **The Witness Crown — Volumes 11–14:** seven paths, temporary protection from a cull, and the loss of safe distance from the Gatehouse.
-6. **The Many-Handed — Volumes 15–17:** ten paths and a temporary mutual-aid network; Aren can no longer cross safely without a custodian anchoring him.
-7. **The Unowned Road — Volume 18:** temporary whole-Gatehouse witnessing followed by permanent surrender of exclusive access. The final power is public consent, not personal control.
+6. **The Many-Handed — Volumes 15–17:** ten paths and a temporary mutual-aid network; the limp worsens, one ear loses useful hearing, and Aren can no longer cross safely without a custodian anchoring him.
+7. **The Unowned Road — Volume 18:** temporary whole-Gatehouse witnessing followed by permanent surrender of exclusive access and the loss of the last clear fragment of Ilyra’s melody. The final power is public consent, not personal control.
 
 Progression requirements are never just crossings. Each stage requires local teaching, failed practice, a changed decision, and a new relationship. The protagonist never copies a path’s entire magic or becomes immune to its inhabitants.
 
@@ -88,14 +115,15 @@ Progression requirements are never just crossings. Each stage requires local tea
 
 ### Aren and Mara Vey
 
-- **Volume 1:** Forced collaboration to authenticate the toll bell; they disagree over custody of the evidence.
-- **Volumes 2–3:** They establish a working trust; Aren hides a crossing cost and Mara discovers it.
-- **Volumes 4–5:** The relationship becomes intimate but unstable when a path community asks for secrecy and Mara insists on public records.
-- **Volumes 6–8:** Political separation tests the relationship; they resume cooperation only by accepting that neither can speak for the other.
+- **Volume 1:** Forced collaboration to authenticate the toll bell; they disagree over custody of the evidence but develop mutual professional respect.
+- **Volume 2:** Working trust breaks when Aren conceals the cost of the Second Door crossing and Mara discovers that he has treated his body as private emergency equipment.
+- **Volume 3:** They remain professionally close but refuse to let the breach become romance. They establish explicit rules for recording cost, dissent, and authority during the Hearth Marches crisis.
+- **Volumes 4–5:** Chosen intimacy creates vulnerability when a path community asks for secrecy and Mara insists that any public claim must include its human cost.
+- **Volumes 6–8:** Political separation tests the relationship. They cooperate again only after each can refuse the other without being cast as a traitor.
 - **Volumes 9–12:** They build the first distributed archive and challenge Edric together, not as rescuer and rescued.
-- **Volumes 13–15:** A deliberate physical and political separation, followed by a mutual decision to continue together without merging their work.
-- **Volumes 16–17:** They choose to remain together before the final crisis, but defer legal formalization until after the Charter.
-- **Volume 18:** They marry or formally establish a household after the Charter, remain active in separate public roles, and keep the right to disagree.
+- **Volumes 13–15:** A deliberate physical and political separation forces both to build lives that do not depend on the other’s presence.
+- **Volumes 16–17:** They choose a shared household before the final crisis but defer legal formalization until after the Charter.
+- **Volume 18:** They marry after ratification, remain active in separate public roles, and keep the right to disagree.
 
 ### Aren and Tovan Kest
 
@@ -103,7 +131,7 @@ Estrangement in Volume 1; practical collaboration in Volume 2; Tovan’s refusal
 
 ### Aren and Edric Hunn
 
-Devotion becomes suspicion, then temporary cooperation against the Culling Order, then a final argument over whether history can be administered by one person. Edric survives and faces a public trial.
+Devotion becomes suspicion. In Volume 8 they briefly cooperate against Veyra Senn’s uncontrolled quarantine because both oppose an immediate cull; the cooperation ends when Aren learns Edric used the resulting refuge register and kept the routes hidden from the people named in them. Their final argument is over whether history can be administered by one person. Edric survives and faces a public trial.
 
 ### Aren and path communities
 
@@ -123,7 +151,7 @@ The relationship begins as intrusion, becomes conditional alliance, and ends wit
 
 **Climax:** An oath-driven collapse threatens both versions of the bridge. Aren uses bridgecraft and a local working rather than a sudden power burst to reopen the crossing, while Mara secures a public copy of the evidence.
 
-**Resolution:** Bellweather-Living remains a separate community and opens a limited trade channel. Aren leaves with the First Stitch mark and a clearer enemy, but the Crown declares the contact illegal.
+**Resolution:** Bellweather-Living remains a separate community and opens a limited trade channel. Aren leaves with the First Stitch mark and a clearer enemy. The Crown declares the contact illegal, and Edric offers conditional restoration if Aren will surrender the route and submit the living city to an inspection.
 
 **Next-volume question:** What other paths are being sealed, and who is buying the records of their disappearance?
 
@@ -131,7 +159,7 @@ The relationship begins as intrusion, becomes conditional alliance, and ends wit
 
 **Central pressure:** A path in the eastern counties is losing its shared past to a quarantine that makes copied memories more stable than living ones.
 
-**Beginning:** Halven sells a missing-anchor ledger to the Council while Mara assembles witnesses in Merefen.
+**Beginning:** Halven sells a missing-anchor ledger to the Council while Mara assembles witnesses in Merefen. The order comes with an offer of legal protection from Edric’s office and a promise to let Aren inspect one selected record.
 
 **Escalation:** Aren’s second route opens to a county where survivors of an earlier cull have built a functioning town. A local magistrate wants Aren to burn a list of contaminated names to stop a magical fever.
 
@@ -139,7 +167,7 @@ The relationship begins as intrusion, becomes conditional alliance, and ends wit
 
 **Climax:** He and Mara help the county create overlapping witness records instead of a single official list. A child born inside the path remembers a main-world river that does not exist there.
 
-**Resolution:** The fever is contained without erasing names. Aren reaches the Second Door stage, but one memory of his mother’s voice is now indistinct.
+**Resolution:** The fever is contained without erasing names. Aren reaches the Second Door stage, but loses the exact sequence of an ordinary morning with Tovan and can no longer be certain which path supplied a familiar hand gesture. The first-crossing loss of one verse’s remembered pitch remains the only fixed melody cost so far.
 
 **Next-volume question:** Why are the Culling Order’s records concentrated around agricultural oaths?
 
@@ -197,7 +225,7 @@ The relationship begins as intrusion, becomes conditional alliance, and ends wit
 
 **Beginning:** Mara’s Archive is subpoenaed; Aren is invited to testify in exchange for a reduced sentence.
 
-**Escalation:** Edric offers Aren access to his sealed personal records, including evidence about Ilyra’s unauthorized crossing.
+**Escalation:** Edric offers Aren access to his sealed personal records, including evidence about Ilyra’s unauthorized crossing. During the hearing, Aren uses Threadkeeper to cut a Culling Order link based on a forged main-world witness record. The cut tears the local anchor instead; the path community survives but loses all contact. He cannot undo the failure with another crossing.
 
 **Midpoint reversal:** Aren learns Ilyra both saved him and helped conceal a living path. Her actions were not purely heroic, and the path she crossed still has a claim on its own history.
 
@@ -229,7 +257,7 @@ The relationship begins as intrusion, becomes conditional alliance, and ends wit
 
 **Beginning:** Tovan’s bridge crews are hired by both sides. Aren wants a military solution; Mara wants a public account that will survive the next election.
 
-**Escalation:** Path refugees offer Aren access to a military route. Using it would violate the consent of the path community but could save the main-world villages.
+**Escalation:** Veyra Senn’s office imposes an uncontrolled quarantine and begins sealing refugee anchors without local consent. Edric supplies old Gatehouse diagrams and helps contain the outbreak; Aren accepts the temporary cooperation. The victory produces a refuge register, which Edric later uses without telling the named communities. Path refugees then offer Aren access to a military route. Using it would violate the consent of the path community but could save the main-world villages.
 
 **Midpoint reversal:** Tovan becomes the person who must choose whether to open the road, and he refuses to follow Aren’s order.
 
@@ -267,7 +295,7 @@ The relationship begins as intrusion, becomes conditional alliance, and ends wit
 
 **Climax:** Aren refuses to merge the coast’s history with the main world. The coast sets its own terms, and the Crown attacks the roadhouses.
 
-**Resolution:** The Morrow Coast Commons becomes the first durable multi-path institution. Aren keeps five paths open but loses a year of outer-world time and a stable sense of his own history.
+**Resolution:** The Morrow Coast Commons becomes the first durable multi-path institution. Aren keeps five paths open, but the habits of a full ordinary year in Merefen no longer fit his days; he returns with a stable set of skills and an unstable sense of daily chronology.
 
 **Next-volume question:** What is the First Witness, and why does Edric believe it can choose a stable path?
 
@@ -281,7 +309,7 @@ The relationship begins as intrusion, becomes conditional alliance, and ends wit
 
 **Midpoint reversal:** The First Witness is revealed as the Quiet Assembly’s attempt to guarantee that no single history could close every other road. Edric has altered its purpose into a selector.
 
-**Climax:** Aren publishes a complete record of the Sundering, including his own command failure and Ilyra’s secret crossing. Edric uses the resulting political panic to activate a hidden protocol.
+**Climax:** Aren publishes a complete record of the Sundering, including his own command failure, his post-Sundering acceptance of the official fever account, and Ilyra’s secret crossing. Edric uses the resulting political panic to activate a hidden protocol.
 
 **Resolution:** The court cannot restore Bellweather, but it can prohibit the Culling Order from acting without local consent. Aren reaches the Witness Crown stage and becomes a public target.
 
@@ -361,9 +389,9 @@ The relationship begins as intrusion, becomes conditional alliance, and ends wit
 
 **Midpoint reversal:** The path that closes is not destroyed. Its silence becomes a political loss that Aren cannot solve with power.
 
-**Climax:** Local custodians coordinate ten paths and hold them open through mutual aid. Edric captures the Gatehouse itself; Aren escapes with a permanent limp, partial hearing loss, and a path bleed that will not fully fade.
+**Climax:** Local custodians coordinate ten paths and hold them open through mutual aid. Edric captures the Gatehouse itself; Aren escapes from the lower anchor with a worsened limp, permanent partial hearing loss in one ear, and a path bleed that will not fully fade.
 
-**Resolution:** The paths survive, but the Gatehouse is occupied and the main world faces a constitutional collapse. Mara and Aren become partners without making their relationship the source of the plan.
+**Resolution:** The paths survive, but the Gatehouse is occupied and the main world faces a constitutional collapse. Mara and Aren choose a shared household without making their relationship the source of the plan.
 
 **Next-volume question:** What will Edric do with the Gatehouse, and can the first Charter be built under occupation?
 
@@ -373,13 +401,13 @@ The relationship begins as intrusion, becomes conditional alliance, and ends wit
 
 **Beginning:** The occupiers claim they are preventing a repeat of the Sundering. Some of the path communities believe them.
 
-**Escalation:** Ilyra’s sealed path reveals a way to re-anchor the Gatehouse, but only by erasing Aren’s identity and selecting one history.
+**Escalation:** Edric uses stolen notes from Ilyra’s route to claim that the sealed path can re-anchor the Gatehouse. No message or consent comes from that community; the offer requires making Aren a single permanent witness and selecting one history.
 
-**Midpoint reversal:** Aren refuses the re-anchoring, even though it would restore his mother and remove his pathmark. He chooses to keep the contradictions that make multiple communities possible.
+**Midpoint reversal:** Mara authenticates the notes: the method would erase Aren’s other route memories, select one history, and guarantee nothing about Ilyra’s survival. Aren refuses the re-anchoring and accepts that the sealed community has offered no consent.
 
 **Climax:** Path delegates, main-world citizens, and former Council allies storm the Gatehouse. Edric’s authority fails, the One Road is left incomplete, and the engine begins to collapse.
 
-**Resolution:** Edric is captured. The Gatehouse is damaged and cannot be kept by one person, so the final volume turns the victory into a constitutional and practical reconstruction.
+**Resolution:** The coalition drives Edric’s lieutenants from the upper terraces, but Edric escapes into the lower archive and activates the unfinished One Road there. His forces keep the Gatehouse occupied, the central engine is damaged, and the victory cannot be preserved by one person. The final volume turns the partial break into a constitutional and practical reconstruction.
 
 **Next-volume question:** What happens when the road engine is opened to thousands of people who disagree about what a road owes them?
 
@@ -393,9 +421,9 @@ The relationship begins as intrusion, becomes conditional alliance, and ends wit
 
 **Midpoint reversal:** Aren attempts to resolve the crisis by taking control of the Gatehouse. The communities revoke his authority, and the first charter fails. He must let other people carry the work he designed.
 
-**Climax:** Independent custodians, bridge crews, local councils, and Archive witnesses open separate anchors at the same time. Aren uses the Unowned Road to hold the Gatehouse open long enough for the public Charter to take effect. Edric is offered a final chance to release the One Road; he does so, saving thousands but not absolving himself.
+**Climax:** Independent custodians, bridge crews, local councils, and Archive witnesses open separate anchors at the same time. Aren uses the Unowned Road to hold the Gatehouse open long enough for the public Charter to take effect. Edric must revoke the final erasure order and surrender the Last Common Key, saving thousands without absolving himself.
 
-**Resolution:** The Charter of Many Roads takes effect. Main-world provinces and path communities share roads, records, and mutual aid, while each community retains the right to refuse contact. The Unwritten Wound becomes a monitored scar, not a hidden miracle. Edric is tried and imprisoned. Aren and Mara establish a household; Tovan leads the road network; Lysa and Orrin oversee public institutions; path communities send delegates on their own terms.
+**Resolution:** The Charter of Many Roads takes effect. Main-world provinces and path communities share roads, records, and mutual aid, while each community retains the right to refuse contact. The Unwritten Wound becomes a monitored scar, not a hidden miracle. A corrected court record clears Aren of authoring or deliberately abandoning the Sundering, records his command failure and post-Sundering silence separately, restores his knighthood and full back pay, and refuses to restore his active command because the old office remains unreformed. Edric is tried and imprisoned. Aren and Mara marry and establish a household; Tovan leads the road network; Lysa and Orrin oversee public institutions; path communities send delegates on their own terms.
 
 **Final image:** Aren returns to bridge work in Merefen. He cannot open a path by touching the old toll bell; the road is opened by a local custodian and two independent witnesses. Aren steps aside, hears the bell answer across the water, and walks home with Mara. The final world does not need its knight to be present. It needs him to have learned how to leave the road in capable hands.
 
@@ -414,6 +442,7 @@ The relationship begins as intrusion, becomes conditional alliance, and ends wit
 
 - The final external conflict is Edric Hunn’s attempt to activate the One Road, with the First Witness protocol as the established mechanism.
 - Aren’s final internal choice is to share custody and give up exclusive power.
+- The final judgment clears the false charge that he authored or deliberately abandoned the Sundering, records his command failure and post-Sundering silence, restores his knighthood and back pay, and does not restore an unreformed command office.
 - Mara and Aren’s relationship survives because both retain independent lives and mutual consent.
 - Bellweather-Living remains a living path community, not a restored copy of the past.
 - The Unwritten Wound is contained and publicly known, not magically cured.
