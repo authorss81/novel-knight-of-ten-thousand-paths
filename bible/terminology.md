@@ -129,7 +129,7 @@ This file is the canonical glossary for names, rules, and terms. Use these spell
 - **Rell:** Merefen watch captain who first tries to seize the Bellweather anchor.
 - **Halven:** Opportunistic gatekeeper at the Bellweather Claims Archive who trades access to records.
 - **Wenna Koll:** Merefen ferry operator who first carries word from Bellweather-Living.
-- **Bram Ottery:** Merefen watch sergeant under Rell, named in Volume 02. The bell seizure in Volume 01 is Rell's watch; the sergeant overseeing it is addressed by office, not named.
+- **Bram Ottery:** Merefen watch sergeant under Rell, **named in prose in Volume 01** in `chapter-0015.md` and `chapter-0030.md`; he is not a Volume 02 name and Volume 02's cast plan counts him as a returned face and not a new one. The bell seizure in Volume 01 is Rell's watch and he is the sergeant who oversaw it, named in the stair and not addressed by office.
 - **Pei Tarrow:** Hushwater survivor’s son, a freight ferryman on the Old Toll channel in Merefen who refuses to be a symbol of the Sundering. No relation to Jos Rusk.
 - **Sarn Oyelaran:** junior clerk at the Bellweather Claims Archive who first detects an altered date.
 - **Ilvane Quarren:** glasswright working the Steppe road out of Merefen; sells Aren his first honest anchor-glass.
