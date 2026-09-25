@@ -33,4 +33,4 @@ All creative decisions live in the planning files, not here:
 
 ## Status
 
-Bootstrap complete. Bible, series outline, and ending outline are established in `state/continuity.md`. No chapter prose has been generated. The next phase is the Volume 01 outline and its Chapters 1–10 batch cards.
+Bootstrap complete. The bible, series outline, and ending outline are established in `bible/` and `outline/`, with their locked decisions summarized in `state/continuity.md`. No chapter prose has been generated. The next phase is the Volume 01 outline and its Chapters 1–10 batch cards.

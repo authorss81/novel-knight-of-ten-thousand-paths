@@ -129,13 +129,14 @@ This file is the canonical glossary for names, rules, and terms. Use these spell
 - **Halven:** Opportunistic gatekeeper at the Bellweather Claims Archive who trades access to records.
 - **Wenna Koll:** Merefen ferry operator who first carries word from Bellweather-Living.
 - **Bram Ottery:** Merefen watch sergeant who carries out the bell seizure under Rell.
-- **Pei Rusk:** Hushwater survivor’s son, a ferryman in Merefen who refuses to be a symbol of the Sundering.
+- **Pei Tarrow:** Hushwater survivor’s son, a freight ferryman on the Old Toll channel in Merefen who refuses to be a symbol of the Sundering. No relation to Jos Rusk.
 - **Sarn Oyelaran:** junior clerk at the Bellweather Claims Archive who first detects an altered date.
 - **Ilvane Quarren:** glasswright working the Steppe road out of Merefen; sells Aren his first honest anchor-glass.
 - **Aldis Fenn:** Merefen reeve and Lysa’s elder sister.
 - **Hollis Dree:** toll-clerk and archivist in Bellweather-Living.
 - **Ruen:** an independent barge escort who is grateful to Aren and will still testify against him.
-- **The erased:** Ferris Oat, Hanna Vey, Corin Slate, Bess Alder, and Jos Rusk’s family, named in the Bellweather Claims Archive as the people behind the numbers.
+- **The erased:** Ferris Oat, Hanna Vey, Corin Slate, Bess Alder, Anwen Rusk, and Bryn Rusk, named in the Bellweather Claims Archive as the people behind the numbers.
+- **Jos Rusk:** Hushwater ferryman, survivor, alive in Merefen, and the first claimant whose case Mara Vey personally refutes. He is not among the erased. Do not confuse him with Pei Tarrow.
 
 ## Custody and office titles
 

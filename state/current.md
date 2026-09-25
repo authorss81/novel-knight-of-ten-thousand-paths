@@ -27,4 +27,8 @@ Current power state: Stage 0. Aren is a disgraced, skilled bridge repairer and r
 
 Fixed story frame for Chapter 1: **YR 312, Mudmonth**, the eleventh anniversary of the Sundering, in Merefen. The Sable River is in spring flood, the roads at their worst, and the anniversary storm is forecast.
 
-Next planned phase: Volume 01 outline and Chapters 1–10 batch cards. `outline/volume-01.md` and `outline/batches/volume-01-batch-0001.md` are currently empty scaffolds.
+Next planned phase: Volume 01 outline and Chapters 1–10 batch cards. `outline/volume-01.md` and `outline/batches/volume-01-batch-0001.md` are fully structured templates whose every field is still `[pending]`; the next phase fills them in rather than starting from blank files.
+
+Prompt in force: `workspace/volume-01/batch-0001/PROMPT.md` is the only Chapters 1–10 prompt in the repository and pairs with `outline/batches/volume-01-batch-0001.md`. A duplicate scaffold prompt that asked for the same ten chapters was deleted in the phase-000 fix pass, so do not recreate it.
+
+Last fix pass: phase-000 review findings 1–6 applied to the existing planning prose; finding 7 (a stray `.wip-conflict` marker) was confirmed harmless and left for the runner to clear. No chapter prose exists, no volume plot was changed, and no controller file was edited. See the numbered clarifications in `state/continuity.md`.

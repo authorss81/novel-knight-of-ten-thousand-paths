@@ -34,7 +34,7 @@ The Sundering took the city and seven settlements in the same radius. They are n
 6. **Stonebarrow** — a quarry hamlet of 40 people who cut the vale’s paving stone, including the bridge itself.
 7. **Hushwater** — a river-cla hamlet of about 80 people on the drowned channel. Its name is the reason the Bellweather-Living path is also sometimes called the Hushwater road in older records.
 
-Bellweather itself held about four thousand people. The combined loss is the figure the Crown uses when it needs to sound decisive and the figure the Archive refuses to round.
+Bellweather itself held about four thousand people. The seven villages held about seven hundred and twenty between them, and the two figures are never added together in the Archive, because a combined total is how a decision loses its location. The Crown quotes one number — four thousand, the city — and never shows the villages at all. That is how seven places where people lived became a rounding error, and the Archive’s refusal to round is the first argument it makes in every volume.
 
 ### The Hearth Marches
 

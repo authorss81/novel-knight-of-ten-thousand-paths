@@ -10,7 +10,7 @@
 6. **Aren and Mara:** Their relationship begins as evidence custody versus intrusion. It must develop through disagreement and changed decisions, not instant attraction or dependence.
 7. **Aren’s command flaw:** Every major victory should force a choice between acting alone and sharing authority. The final charter fails once because he repeats the old pattern.
 8. **Roads without Aren:** The series must establish early that local custodians, not Aren, are what make a road real, so that Volume 18 can remove him without removing the network.
-9. **The named dead:** Ferris Oat, Hanna Vey, Corin Slate, Bess Alder, and Jos Rusk’s family exist as records, not as figures. They are the reason the case has a moral weight the Crown cannot dismiss.
+9. **The named dead:** Ferris Oat, Hanna Vey, Corin Slate, Bess Alder, Anwen Rusk, and Bryn Rusk exist as records, not as figures. They are the reason the case has a moral weight the Crown cannot dismiss. Jos Rusk, who survives and claims for them, is a different person and must stay distinct from Pei Tarrow.
 10. **Hushwater’s silence:** The drowned hamlet’s name in older records hints that the Bellweather-Living path was known to the archive system before the cull. This stays a hint until Volume 09.
 
 ## Questions the next phase must answer
