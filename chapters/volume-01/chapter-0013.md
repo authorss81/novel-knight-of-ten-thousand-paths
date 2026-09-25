@@ -10,7 +10,7 @@ There were eleven people in the room, which was half the number who would have b
 
 "I am aware of who is in the room," said the clerk, and turned the sheet over.
 
-He read it as a clerk reads, which is to say without stopping and without any of the parts that mean anything. Four thousand of them had heard a version of it and none of them had heard this version, and the county's copy was the version with the year on it.
+He read it as a clerk reads, which is to say without stopping and without any of the parts that mean anything. There was not a man in that room who had not heard a version of it, and none of them had heard this version, and the county's copy was the version with the year on it.
 
 "*Finding of the county court in the matter of the Alder Vale, renewed at the provincial town on the second of Greenmonth, YR 312, the finding being in its eleventh year.*
 
@@ -50,7 +50,7 @@ And the sentence doing the work was clause two, and nobody in the room had heard
 
 The clerk turned his head. "I am aware of what it says."
 
-"No. Sir, I beg your pardon, but the room heard it and the room read it as *the city went away*. That is the reading and it is the wrong reading and it is wrong in our favour, and I would like the room to be told why, because there is a man from this county going to the provincial town in a fortnight and he will be given a copy of this." He had the notebook open and had not written anything. "Not built is not destroyed. Not built is a sentence about a thing you could put your hand on. It is a sentence about *masonry*. It says the crossing was not constructed, and it says nobody is maintaining it, and it does not say one word about whether anybody was standing on it. Every year for eleven years this county has read that sentence as a description of a catastrophe, and it is not a description of anything. It is a description of a bridge that was never laid, and a man who has never seen a bridge that was never laid will believe it, and a man who has seen one will not."
+"No. Sir, I beg your pardon, but the room heard it and the room read it as *the city went away*. That is the reading and it is the wrong reading and it is wrong in our favour, and I would like the room to be told why, because there is a man from this county going to the provincial town on the ninth of Greenmonth and he will be given a copy of this." He had the notebook open and had not written anything. "Not built is not destroyed. Not built is a sentence about a thing you could put your hand on. It is a sentence about *masonry*. It says the crossing was not constructed, and it says nobody is maintaining it, and it does not say one word about whether anybody was standing on it. Every year for eleven years this county has read that sentence as a description of a catastrophe, and it is not a description of anything. It is a description of a bridge that was never laid, and a man who has never seen a bridge that was never laid will believe it, and a man who has seen one will not."
 
 The room had gone the way a room goes when a tradesman starts talking in it.
 
@@ -80,7 +80,7 @@ Magistrate Fenn spoke for the first time.
 
 "No, ma'am."
 
-"Then the county's emergency power in the Alder Vale is renewed annually, to whoever held it last year, by description, and there is no document in this county that says who they are." She said it exactly the way she said everything, which is as though she were reading out a load table. "That is how a watch ends up on a private bridge at first light on an order dated three days earlier, and I intend to put that sentence in front of a bench on Thursday, and I would be obliged if nobody in this room repeats it in a market square before I have put it in a record, because a sentence that has been in a market square is a sentence a man can deny."
+"Then the county's emergency power in the Alder Vale is renewed annually, to whoever held it last year, by description, and there is no document in this county that says who they are." She said it exactly the way she said everything, which is as though she were reading out a load table. "That is how a watch ends up on a private bridge at first light on an order dated three days earlier, and I intend to put that sentence in front of a bench on Sunday, and I would be obliged if nobody in this room repeats it in a market square before I have put it in a record, because a sentence that has been in a market square is a sentence a man can deny."
 
 That got the room back to the level it belonged at, and the county's clerk wrote something in a small book, which he did quickly, and Aren noticed it and did not know yet what it was for.
 
@@ -94,7 +94,7 @@ She opened the day-book on the table without asking anybody's leave, which was t
 
 "How long does the word take?" asked the toll-holder's man.
 
-"Eleven seconds. It has already been written somewhere; this morning's finding told them where to write it." She closed the book. "And the second thing, and I will not be popular for it. He thinks the Crown will use clause two against the villages. It will not. The Crown will not touch the villages. *Its dependent places* is a phrase that fits a city of four thousand and it fits seven villages of a hundred apiece, and it has been used for both, and it is used for both because it does the work of both. A dependent place is a place that exists only in relation to a principal. If the principal is a crossing, and the crossing was not built, then the dependent places were never anything either, and every claim for every one of the seven of them falls on the principal without ever being argued about. Not refused. Dropped. Refused you can appeal. Dropped you cannot, because there is nothing to appeal to."
+"Eleven seconds. It has already been written somewhere; this morning's finding told them where to write it." She closed the book. "And the second thing, and I will not be popular for it. He thinks the Crown will use clause two against the villages. It will not. The Crown will not touch the villages. *Its dependent places* is a phrase that fits a city. It fits the villages too, and it has been used for both, and it is used for both because it does the work of both. A dependent place is a place that exists only in relation to a principal. If the principal is a crossing, and the crossing was not built, then the dependent places were never anything either, and every claim for every one of the seven of them falls on the principal without ever being argued about. Not refused. Dropped. Refused you can appeal. Dropped you cannot, because there is nothing to appeal to."
 
 "Then why does your office spend its life naming them?" asked the carter.
 
@@ -122,9 +122,9 @@ The clerk looked at him.
 
 "I have thought about who reads it next."
 
-"That is not the same question and I would be obliged if you would hear the difference, because a reader is a man with a copy and a builder is an office." The clerk stood and gathered his papers. "The marshal's office sent your watch captain a paper about a bell in March. That is a fact everybody in this room knows. If you have spent any time thinking about it, you have been thinking about the marshal's office, and so has everybody else in this county, and the marshal's office is four hundred miles away and cannot do anything about a bell in a fen town without a county to stand on. The county renews its power over the Alder Vale in clause three, annually, by description, to unnamed officers. The county holds the file. The county's man sits in rooms like this one and writes memoranda." He said it without any weight at all. "So when you stand in a room next month and you name an office, name it correctly, and understand that the office that reads the copy of the finding is the office that holds the file, and that the office that holds the file is the one that will be asked what the file is for."
+"That is not the same question and I would be obliged if you would hear the difference, because a reader is a man with a copy and a builder is an office." The clerk stood and gathered his papers. "The marshal's office sent your watch captain a paper about a bell on the sixteenth of Mudmonth. That is a fact everybody in this room knows. If you have spent any time thinking about it, you have been thinking about the marshal's office, and so has everybody else in this county, and the marshal's office is four hundred miles away and cannot do anything about a bell in a fen town without a county to stand on. The county renews its power over the Alder Vale in clause three, annually, by description, to unnamed officers. The county holds the file. The county's man sits in rooms like this one and writes memoranda." He said it without any weight at all. "So when you stand in a room next month and you name an office, name it correctly, and understand that the office that reads the copy of the finding is the office that holds the file, and that the office that holds the file is the one that will be asked what the file is for."
 
-He was at the door before anybody had thought of a question, and he was down the stair and gone into the street before Lysa Fenn got her hand off the table.
+He was at the door before anybody had thought of a question, and he was down the stair and gone into the street in the time it took Lysa Fenn to take her hand off the table and look at the door he had gone out of.
 
 "It was the county," said the toll-holder's man.
 
@@ -136,7 +136,7 @@ He was at the door before anybody had thought of a question, and he was down the
 
 "I know what a memorandum is."
 
-"Then you know it is not a thing you can be tried for and it is not a thing you can answer, and it is the cheapest weapon in the Crown's armoury and it has just been fired in this room by a clerk who did not have to raise his voice." She looked at him for a moment. "You did the reading well. I want that said. The clause is a sentence about masonry and nobody in this county has said so in eleven years, and when it is read out in a court on Thursday somebody will be asked about it and they will be a magistrate and not a mason, and it will have started in a trust room, and it started with you. I shall have to have you somewhere nearer to a bench than this, and I have not decided where, and I have two days."
+"Then you know it is not a thing you can be tried for and it is not a thing you can answer, and it is the cheapest weapon in the Crown's armoury and it has just been fired in this room by a clerk who did not have to raise his voice." She looked at him for a moment. "You did the reading well. I want that said. The clause is a sentence about masonry and nobody in this county has said so in eleven years, and when it is read out in a court on Sunday somebody will be asked about it and they will be a magistrate and not a mason, and it will have started in a trust room, and it started with you. I shall have to have you somewhere nearer to a bench than this, and I have not decided where, and I have two days."
 
 The room emptied in the ordinary way, in ones and twos, and the carter went out muttering about four thousand, and the toll-holder's man took the finding down off the table and gave it back to the clerk's man because it was not the trust's paper.
 
@@ -160,4 +160,4 @@ She had not been able to leave the room with the other people because she had a 
 
 "And it is a wall."
 
-"It is a wall with a door in it, and the door is the size of a magistrate's order, and the door takes eleven days to come, and the fee is four shillings." She looked up. "I have four shillings and eleven days. That is the whole of my position, and I am telling you it plainly because you are the only person in this county who has put anything in my file and I would like there to be one person in my file who knows it."
+"It is a wall with a door in it, and the door is the size of a magistrate's order, and the door takes eleven days once it is stamped, and the fee is four shillings." She looked up. "I have four shillings and eleven days. That is the whole of my position, and I am telling you it plainly because you are the only person in this county who has put anything in my file and I would like there to be one person in my file who knows it."

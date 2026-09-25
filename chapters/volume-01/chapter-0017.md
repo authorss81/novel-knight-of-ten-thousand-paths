@@ -64,7 +64,7 @@ He was aware, with a clarity that arrived about four seconds too late to be of a
 
 "I'll want it in writing."
 
-"I'll have it in writing before you leave and Sarn at the foundry can witness it, she does my ink." He took the purse. "And I'll tell you the same thing I told your first man, because you are the second man to come to this yard and ask after my brother and the first one asked as though I were the wrong end of a thing, and I'd rather you heard it from me than worked it out. My brother is not in this yard's business. He is a road warden and he is a bridge repairer and he is a man with a bond on him and a shilling a day, and whatever he has said to you or anybody else about a bell is his and it is not in this yard and it does not get built here. If you want face stone cut, you are buying my crew. That's the whole of the transaction and I'd like it said out loud once so there's no misunderstanding in June."
+"I'll have it in writing before you leave and the foundry's clerk can witness it, he does my ink." He took the purse. "And I'll tell you the same thing I told your first man, because you are the second man to come to this yard and ask after my brother and the first one asked as though I were the wrong end of a thing, and I'd rather you heard it from me than worked it out. My brother is not in this yard's business. He is a road warden and he is a bridge repairer and he is a man with a bond on him and a shilling a day, and whatever he has said to you or anybody else about a bell is his and it is not in this yard and it does not get built here. If you want face stone cut, you are buying my crew. That's the whole of the transaction and I'd like it said out loud once so there's no misunderstanding in June."
 
 The factor looked at him for a moment.
 
@@ -174,7 +174,7 @@ There is no bell on this reach. That is not an opinion. There is a bell in a sto
 
 "Two of the fellers," Tovan said. "Names."
 
-"Rennick and the big one, the hired man for the week's cartage."
+"The hired man for the week's cartage and the other one on the hoppers."
 
 "Did they see a man?"
 
@@ -184,7 +184,7 @@ There is no bell on this reach. That is not an opinion. There is a bell in a sto
 
 The boy thought about it properly, which nobody gives a boy credit for.
 
-"The old one," he said. "The far end of it. The bit with the thing bolted on the side, where the bell used to be. And it came off the bridge, not off the water. Off the bridge, going up the road to the north, the way you'd hear a thing that's still in the town." He shifted. "And then after, about a minute after, somebody at the mill said it was nothing, because the chimney's iron, and Rennick said it wasn't the chimney. And that's all. I came to tell you because you're the one people ask."
+"The old one," he said. "The far end of it. The bit with the thing bolted on the side, where the bell used to be. And it came off the bridge, not off the water. Off the bridge, going up the road to the north, the way you'd hear a thing that's still in the town." He shifted. "And then after, about a minute after, somebody at the mill said it was nothing, because the chimney's iron, and the hired man said it wasn't the chimney. And that's all. I came to tell you because you're the one people ask."
 
 "Aye," said Tovan Kest. "I am."
 
@@ -194,11 +194,11 @@ The cradle was there. The iron was rusted into the stone where a fitter had weld
 
 The seal on the post was grey and had been rained on and had not run.
 
-Tovan Kest stood in the middle of the Old Toll crossing at the ninth hour of the seventh of Greenmonth, with a bar over his shoulder out of pure habit, and there was nothing on the bridge, and there was nothing in the air, and the river went under three arches in the cold going down and the town behind him was doing a Tuesday.
+Tovan Kest stood in the middle of the Old Toll crossing at the ninth hour of the seventh of Greenmonth, with a bar over his shoulder out of pure habit, and there was nothing on the bridge, and there was nothing in the air, and the river went under three arches in the cold going down and the town behind him was doing a Wednesday.
 
 "Master Kest?" the boy said. "Are you going to do something about it?"
 
-"No," said Tovan. "There's a Crown seal on that post and a magistrate's finding in the provincial town and I have four men out of work and a cutting to start on Tuesday, and there is nothing in this town that is anybody's to do anything about this week." He shouldered the bar. "I'll tell you what I'll do. If you hear it again, you go to the tower and you write down the hour and which way the wind was and whether there was a cloud over the sun, because the tower's got a line down the old raised road as far as the weir and a man can look down that line from the top of it, and if anybody ever wants to know whether it was a bell or a chimney, that is the only record that will be worth a farthing."
+"No," said Tovan. "There's a Crown seal on that post and a magistrate's finding in the provincial town and I have four men out of work and a cutting to start on Thursday, and there is nothing in this town that is anybody's to do anything about this week." He shouldered the bar. "I'll tell you what I'll do. If you hear it again, you go to the tower and you write down the hour and which way the wind was and whether there was a cloud over the sun, because the tower's got a line down the old raised road as far as the weir and a man can look down that line from the top of it, and if anybody ever wants to know whether it was a bell or a chimney, that is the only record that will be worth a farthing."
 
 "That's not doing something about it."
 
@@ -206,10 +206,12 @@ Tovan Kest stood in the middle of the Old Toll crossing at the ninth hour of the
 
 He walked back down Weir Street with the boy and put four marks in the chest against the third man's name and told the three who were there that the cutting started on the eighth at the fourth hour, and got a cheer out of the yard that was not entirely a cheer, because a yard that has work in it is a yard that has a reason to be there and a yard without is not.
 
-Down at the north end of the town, on the last of the light, a man of fifty-two with a pole over his shoulder and a rope round his neck stopped on a stair outside a chandler's and looked at a town that had decided, in four weeks, that everything about him was a thing somebody else had already decided.
+The boy's hour went onto the tally hand under the four marks and the stone and the lime, and Tovan Kest stood a while in the middle of his own yard with the bar still over his shoulder, out of habit, doing arithmetic a carpenter has no business doing.
 
-He had been asked twice whether he was a Rusk's brother and he had said no twice, and it was going to be a longer sentence than that by the end of the month, and the reason he had walked the length of Weir Street that morning instead of coming to the north end first was that he had wanted to be seen doing it, and the reason he had wanted to be seen doing it was that a man who is seen choosing where to stand is a man who has decided something.
+A bell four hundred yards off in a storehouse by a weir, under a seal nobody has broken since the nineteenth, and a note about three seconds long on the far bank of a dead-calm Wednesday at the ninth hour, heard by a hired cartage man, a hopper boy, and a deck boy of thirteen who then went up a tower and saw nothing at all. Two sounds, two places, and not one instrument in this town that will ever be asked the question.
 
-He had a job. It was eight pence a day and the same day off as the other three and there was no sentence in it about anything, and on Friday he would be paid, and on Friday he would take the money and go four miles up the channel to a house where a woman of sixty-eight was sitting by a window who had spent eleven years being not noticed.
+He could go up the Old Toll road at the third hour with the bar and put his hand on the cradle iron and wait to learn whether a nail talks. If it did not, he would have spent an hour of a Wednesday proving to himself that iron does not. And if it did, he would have spent the hour finding out on a bridge with a Crown seal on the post, a magistrate's finding in the provincial town, and a bench sitting on Friday.
 
-That was the whole of what Pei Tarrow wanted out of the year, and he had asked for it in a yard in the plainest words a man could use, and had been told what it was not, twice, in front of witnesses, and had been paid for his first day on the Thursday, in coin, on a rail, which was three days earlier than Friday and which he was not going to forget and was not going to mention.
+What was wanted, and was not his to buy, was a pair of eyes on the far bank, and the tower was four hundred yards up the road and the boy had just been told what to do with it. The hour would go down, and the wind, and whether there was a cloud over the sun.
+
+It was a very small thing. It was the only thing in Merefen that week he could put his hand on, in front of four men, and call true.

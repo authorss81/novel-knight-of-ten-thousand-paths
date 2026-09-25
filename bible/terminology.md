@@ -44,7 +44,7 @@ This file is the canonical glossary for names, rules, and terms. Use these spell
 
 ## Money
 
-- **Coin:** 1 farthing = ¼ penny. 1 shilling = 12 pence. 1 **mark** = 8 shillings = 96 pence. The mark is Neyra’s contract and guild unit; a Crown writ is valued in marks.
+- **Coin:** 1 farthing = ¼ penny. 1 shilling = 12 pence. 1 **mark** = 4 shillings = 48 pence. The mark is Neyra’s contract and guild unit; a Crown writ is valued in marks. **The mark is four shillings, not eight** — it is fixed at 48 pence so that it divides into four exact quarters of a shilling, and the whole manuscript is built on that: four marks is sixteen shillings, four marks is 192 pence, and 192 pence is 24 days at a yard rate of 8 pence. Do not write a mark as five shillings, as eight shillings, or as a hundred and twenty pence. (An earlier draft of this file said 8 shillings / 96 pence, which contradicted all twenty chapters of Volume 01; the prose and `state/continuity.md` item 51 are correct and this line has been corrected to match them.)
 - **Wages, one working day:** unskilled day labour, 3–4 pence; a skilled road worker, 6–8 pence; a master repairer such as Aren, 1 shilling plus materials at cost.
 - **Prices that matter to the plot:** a loaf, 1 penny; a bushel of oats, 4 pence; a bushel of imported salt, 3 shillings; a foot fare over Merefen’s ferry, 1 farthing; a cottage room in Weir Street, 2 shillings a month.
 - **A bridge is expensive and unglamorous.** A new Sedge Reach span costs roughly 400 marks. A bell-foundry casting of one Bellweather-sized bell costs about 90 marks, which is why a cracked bell is sold for pennies and why nobody wants it.

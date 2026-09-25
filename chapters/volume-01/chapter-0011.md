@@ -2,7 +2,7 @@
 
 The first of Greenmonth was the second day he had been on his feet and out of the room, and the town had decided in the meantime that it did not need him.
 
-That was the shape of the first hour. He came down the stair from the cooper's rooms with his notebook in his coat and the water still standing in the boot of the left one, and the street was a working street doing what a street does on a day that is not a market day: the foundry's boy going along the channel with a barrow, the eel-man's boy scraping a board, two women at the cooper's door with a cart and a disagreement. The river had come down four fingers in four days and the wharf road was carrying a cart, so the town had stopped looking at the Sable entirely. The Old Toll crossing, the empty cradle, the Crown's paper nailed to the post — none of it was a thing a town looks at on a Tuesday in Greenmonth. It was a thing a town looks at on a market morning, and there was no market until the fourth.
+That was the shape of the first hour. He came down the stair from the cooper's rooms with his notebook in his coat and the water still standing in the boot of the left one, and the street was a working street doing what a street does on a day that is not a market day: the foundry's boy going along the channel with a barrow, the eel-man's boy scraping a board, two women at the cooper's door with a cart and a disagreement. The river had come down four fingers in four days and the wharf road was carrying a cart, so the town had stopped looking at the Sable entirely. The Old Toll crossing, the empty cradle, the Crown's paper nailed to the post — none of it was a thing a town looks at on a Thursday in Greenmonth. It was a thing a town looks at on a market morning, and there was no market until the fourth.
 
 Aren Kest put his hand in his coat and counted what he had without taking it out, because he had done it enough times in eleven years to do it through cloth.
 
@@ -10,7 +10,7 @@ A mark and a quarter in the bag, in three pieces and a great many small coins. E
 
 And a bell under a grey wax seal in a storehouse by the fish weir that he had put six marks of his own body on the paper for and could not get within a yard of.
 
-What he wanted, on the first of Greenmonth, at the eighth hour, in the cold, with the water going down four fingers a day, was a job he could be paid for.
+What he wanted, on the first of Greenmonth, at the eighth hour, in the cold, with the river four fingers down and still going, was a job he could be paid for.
 
 He got as far as Weir Street before anybody offered him one, which he considered about right.
 
@@ -52,7 +52,7 @@ Tovan looked at him for a while with his arms folded, which is what a brother do
 
 "He was in the account column."
 
-"He was in the account column and the column has no figure against his line, which is the truest thing about that column." Tovan tested the edge of the chisel on his thumb and was satisfied and went back to the work. "Go and do your pin. If you're going to be a man who can be paid, be one on a Tuesday, and we'll see what the fourth does."
+"He was in the account column and the column has no figure against his line, which is the truest thing about that column." Tovan tested the edge of the chisel on his thumb and was satisfied and went back to the work. "Go and do your pin. If you're going to be a man who can be paid, be one on a Thursday, and we'll see what the fourth does."
 
 That was the whole of it. There was no other conversation, and neither of them had expected one, and Aren went down Weir Street with a job in his hands and the strange lightness of a man who has been given a day's work by somebody who owes him money and has chosen to pay him in that instead.
 
@@ -162,7 +162,7 @@ He read it four times, which is twice more than a man reads a price he has no in
 
 The Old Toll crossing was a quarter of a mile further up the road, and he walked it, and stopped at the abutment, and did the thing he had been not doing for two days.
 
-The cradle was still empty. The iron was rusted to the stone by eleven years of weather and eleven of nothing, and under it the stone was swept clean, and the moss on the third course had begun, in the eight days since he was last on his back on that stone, to be the green it is supposed to be. A clean rectangle, nine inches by five, paler than the stone round it. And on the post, a sheet under a hood with a disc of grey wax on it the size of a crown piece, and a hand laid flat on a book.
+The cradle was still empty. The iron was rusted to the stone by eleven years of weather and eleven of nothing, and under it the stone was swept clean, and the moss on the third course had begun, in the four days since he was last on his back on that stone, to be the green it is supposed to be. A clean rectangle, nine inches by five, paler than the stone round it. And on the post, a sheet under a hood with a disc of grey wax on it the size of a crown piece, and a hand laid flat on a book.
 
 He did not touch the seal. He had not touched it on the thirtieth and he was not going to touch it now, and the reason was not respect. The reason was that the moment a man's hand is on a seal, everything after that is a story about the man who put it there, and there is no version of that in which a fen town is served.
 
@@ -176,7 +176,7 @@ He put his hand flat on it. He did it deliberately, and he waited, with his whol
 
 Nothing.
 
-Not a warmth, not a sound, not a fold in the air, not a seam. Stone under a hand, and rain, and a man of thirty-two on a bridge at the third hour of a Tuesday with his roadmark in his palm and nothing at all on the other side of it. He said the sentence aloud, once, to nobody, in the trade's words he had used in a magistrate's room a matter of two days ago, because a man who can read a thing out loud is not the same as a man who has stopped believing in it: *a roadmark is not a road.*
+Not a warmth, not a sound, not a fold in the air, not a seam. Stone under a hand, and rain, and a man of thirty-two on a bridge at the third hour of a Thursday with his roadmark in his palm and nothing at all on the other side of it. He said the sentence aloud, once, to nobody, in a watch captain's words, because a man who can read a thing out loud is not the same as a man who has stopped believing in it: *a roadmark is not a road.* It had been Rell's, on the sill, on the twenty-seventh of Mudmonth, and it had been true that morning over a cradle, and nothing that had happened to him since had made it any less true, and it was the only sentence anybody had handed him in eleven years that he had believed the first time he heard it.
 
 He had understood, in a filing room over a salt merchant, that a roadmark is not a road. He had not understood until that afternoon, on his knees in the rain, that a road can also be entirely real and have nothing on it.
 

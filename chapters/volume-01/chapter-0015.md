@@ -2,11 +2,11 @@
 
 On the fourth of Greenmonth the market came back to Merefen, and it came back wrong.
 
-The stalls went up on the wharf road at the fifth hour in the ordinary way, and the wharf road took carts that morning because the river was down six fingers and the Sedge Reach deck was open to anything, and by the eighth hour there were more people on that road than there had been on any market day since the storm. Half of them came for the market. Half of them came because a bell had gone out of the town and a road warden had said something impossible on a market morning four days ago, and a thing like that in a fen town is not news, it is weather, and it draws.
+The stalls went up on the wharf road at the fifth hour in the ordinary way, and the wharf road took carts that morning because the river was down six fingers and the Sedge Reach deck was open to anything, and by the eighth hour there were more people on that road than there had been on any market day since the storm. Half of them came for the market. Half of them came because a bell had gone out of the town and a road warden had said something impossible on a market morning a week ago, and a thing like that in a fen town is not news, it is weather, and it draws.
 
 The stair of the salt-loft house had thirty-one people on it by the ninth hour and the magistrate's clerk had to have the door to the inner room propped with a wedge, and twice during the first half hour a man at the bottom of the stair asked the question out loud, which is what a crowd does when it is in a building and not in a square.
 
-The inner room had been cleared for the sitting. The table had been wiped and there were four chairs on this side of it, and the magistrate's clerk sat at the end with his ledger and his ink and a folded sheet he had ruled himself, and the Bellweather Claims Archive's own press stood against the wall with its bar off its seat because there was no room in which a man could stand and look at a press and not think about it.
+The inner room had been cleared for the sitting. The table had been wiped and there were four chairs on this side of it, and the magistrate's clerk sat at the end with his ledger and his ink and a folded sheet he had ruled himself, and the Bellweather Claims Archive's own press stood against the wall with its bar off its seat because there was no room in which a man could stand and look at a press and not think about it. The road warden was against the far wall by that press and had been there since the sixth hour, and had a chalk stub in his coat pocket that he had not taken out, and the clerk had offered him a chair twice and he had declined it twice.
 
 On the table, in front of the magistrate's chair, lay three documents, and they were in order of age, and the order had been the point.
 
@@ -16,7 +16,7 @@ The second was the sealed order of the marshal's emergency office, dated the six
 
 The third was a claim exhibit wrapper with a four-digit number on the outside of it in a fair hand, dated the thirtieth, with a stub of grey wax showing at the corner where the paper had been folded once to close it.
 
-Lysa Fenn came in and looked at the three documents and did not sit, because she was in her own building and it was her room, and she stood at the head of the table and put two fingers on the middle one.
+Lysa Fenn came in and looked at the three documents for a while and did not sit, and the room read that as a thing about the three documents and not about the woman, and she put two fingers on the middle one.
 
 "This sitting is a hearing on the seizure of a bell," she said. "It is not a hearing on a road, and it is not a hearing on a finding, and anybody who has come up that stair hoping to be told about a city is in the wrong building and I would be obliged if somebody at the bottom of the stair told them so, because I will not have a proceeding turned into something it is not by an audience." She looked round. "The applicant in this room is the guild clerk, and the guild's notice is the oldest paper on this table, and the reason it is the oldest paper on this table is that it is the reason there is a seizure to hear. If that paper had been obeyed, we would not be here. Captain Rell, are you sworn?"
 
@@ -24,17 +24,23 @@ Lysa Fenn came in and looked at the three documents and did not sit, because she
 
 "Sworn before me this morning at the eighth hour in the outer room, and the clerk has it." She sat down. "Then go on. Tell the room what you did and why, in that order, and do not read from the paper, because I have read the paper and I want the man."
 
-Rell was fifty and had been in the town's watch nineteen years and he had a watch captain's way of standing which was not parade-ground and was not casual, and he had not looked at Aren Kest once since he came into the room and he was going to not do it now and everybody could see him deciding to.
+Rell was fifty and had been in the town's watch nineteen years and he had a watch captain's way of standing which was not parade-ground and was not casual, and he had not looked at Aren Kest once since he came into the room, and the front of the room could see him managing it.
 
-"I received a sealed paper from a courier at the evening of the eighteenth of Mudmonth, at my own door, and I was told to keep it and not to open it, which was not an instruction I was ever issued and I have thought about that for a long time. It is dated the sixteenth. It names an object — a bell taken out of a river after the fever at Bellweather and thereafter hung where men walk — and it directs this watch to take that object into custody for examination by the office that sealed it. It came with a seal for the seal." He turned the paper over and did not open it. "It also names a person. It describes him as the road-keeper of Merefen and the holder of the Bellweather hinge, and it summons him to the provincial town to give account of the keeping. There is no keeper. I have said that in three rooms and I have had three answers and no two of them agree."
+"I received a sealed paper from a courier at the evening of the eighteenth of Mudmonth, at my own door, and I was told to keep it and not to open it, which was not an instruction I was ever issued and I have thought about that for a long time. It is dated the sixteenth. It names an object — a bell taken out of a river after the fever at Bellweather and thereafter hung where men walk — and it directs this watch to take that object into custody for examination by the office that sealed it. It came with a seal on it, which is the whole of what a seal is for, and a seal does not need a second one." He turned the paper over and did not open it. "It also names a person. It describes him as the road-keeper of Merefen and the holder of the Bellweather hinge, and it summons him to the provincial town to give account of the keeping. There is no keeper. I have said that in three rooms and I have had three answers and no two of them agree."
 
 "And you executed the seizure anyway," said the magistrate.
 
-"I did, and I would do it again tomorrow, and I have thought about that in the last nine days more than I have thought about anything." Rell did not raise his voice and did not need to. "The town is in this county. The county is under the authority that sealed the paper. The seal is the seal. There is nothing in that paper that a watch captain in a fen town is competent to refuse, and I would like it understood that I have looked for the thing that would let me refuse it and it is not there and has not been there for eleven years."
+"I did, and I would do it again tomorrow, and I have thought about that every day since the nineteenth more than I have thought about anything." Rell did not raise his voice and did not need to. "The town is in this county. The county is under the authority that sealed the paper. The seal is the seal. There is nothing in that paper that a watch captain in a fen town is competent to refuse, and I would like it understood that I have looked for the thing that would let me refuse it and it is not there and has not been there for eleven years."
 
 "You took the bell at first light on the nineteenth," said Lysa Fenn. "Say how."
 
 "Four men and a cart. Off the abutment at the sixth hour, the cradle it was on had been grown into by eleven years and I sent a man with a chisel and it came off in three pieces, and the split in the bell rang when it was moved, which is a thing I had not expected and which the men heard, and I have never pretended to them that I did not hear it. We swept the stone under it. We put it in the storehouse by the fish weir and I put a seal on the door with the office's seal, which came with the paper, and it has been under seal since the nineteenth and it is there now."
+
+"And the twenty-seventh," said Lysa Fenn. "You put a man on that bridge on the twenty-seventh of Mudmonth, and that is eight days after you had the bell under your own seal. Put it to the room, Captain. I will not have it left in a corridor."
+
+"I will put it to the room." Rell took his cap off and held it, which nobody on that stair had seen him do. "The road warden came back on the twenty-seventh and stood on the Sedge Reach deck in front of four hundred people and told them there is a city standing where this county's finding says there is a fever pit, and the watch sergeant had a book and it went into a book. That is the night I stopped being able to hold two things at once. Before the twenty-seventh I had a paper from a superior authority and a bell in a storehouse, and that was the whole of my difficulty and it was a difficulty I could name. After the twenty-seventh I had the paper, and the bell, and a man telling four hundred market people that the fever was a Crown's story. If he is right, the paper is a lie. If the paper is right, he has come back out of a fever and is talking. I have not been able to tell which since, and I would like it entered, because a watch captain in this county holding a sealed paper ought to have written down on the day that the paper and the man had come apart. I did not write it down, and I have not written it down since."
+
+"Enter that," said Lysa Fenn, and the clerk wrote it, and the room took it the way a room on a market morning takes everything, which is without moving.
 
 "Three days," said Lysa Fenn.
 
@@ -82,7 +88,7 @@ She called the road warden at the seventh hour and he had been in the room since
 
 "I would not presume."
 
-"You have not asked and I am doing it anyway, and I will tell you why, and then you will understand the whole of what I am able to do with this morning." She turned to the clerk. "Enter as findings of fact: the bell was of nine stone; it stood upon an iron cradle at the Old Toll abutment; the cradle was continuous with the stone; on the thirteenth the road warden repacked three lengths of the sill beneath it; at the sixth hour on the nineteenth four men of this watch lifted it with a bar through the headstock loop and a cart, and the bed of the stone was swept afterwards, and there is now a clean rectangle in the moss. Enter also that the split in the bell is outward from the sound bow, and that the guild's notice of the eleventh of Mudmonth had already been issued in respect of it, and that no person had produced the authority by which the object's custody was claimed at any time before the hearing of this court."
+"You have not asked and I am doing it anyway, and I will tell you why, and then you will understand the whole of what I am able to do with this morning." She turned to the clerk. "Enter as findings of fact: the bell was of nine stone; it stood upon an iron cradle at the Old Toll abutment; the cradle was continuous with the stone; in the week before the storm the road warden repacked three lengths of the sill beneath it; at the sixth hour on the nineteenth four men of this watch lifted it with a bar through the headstock loop and a cart, and the bed of the stone was swept afterwards, and there is now a clean rectangle in the moss. Enter also that the split in the bell is outward from the sound bow, and that the guild's notice of the eleventh of Mudmonth had already been issued in respect of it, and that no person had produced the authority by which the object's custody was claimed at any time before the hearing of this court."
 
 "That last one is a strange finding," said the guild clerk.
 
@@ -92,7 +98,7 @@ The clerk entered it. And then he cleared his throat and said, "There is a secon
 
 She did not look at Aren. She looked at the wall of the room.
 
-"Then I will ask the clerk to enter the second paper and the first paper together, and to enter with them the finding that this court has searched the charter of this town, the county's list of appointments, and the Crown's schedule of provincial offices, and has found no office of keeper of the Bellweather hinge or of road-keeper of Merefen, and no person holding either, and no commission conferring either." She said the rest of it to the room. "That finding is the honest answer to the two papers. A Crown seal is a Crown seal. Two Crown seals are two Crown seals. And neither of them has anybody standing behind it, and I have spent a morning in front of a room full of this town and I have not been able to find the name of the man who told either of these bells what to do, and neither has anybody else in this room, and I am going to write that in a record in my own hand with my own name at the top of it, and it is the only thing I am going to leave behind today, because it is the only thing that will still be true in a year."
+"Then I will ask the clerk to enter the second paper and the first paper together, and to enter with them the finding that this court has searched the charter of this town, the county's list of appointments, and the Crown's schedule of provincial offices, and has found no office of keeper of the Bellweather hinge or of road-keeper of Merefen, and no person holding either, and no commission conferring either." She said the rest of it to the room. "That finding is the honest answer to the two papers. A Crown seal is a Crown seal. Two Crown seals are two Crown seals. And neither of them has anybody standing behind it, and I have spent a morning in front of a room full of this town and I have not been able to find the name of the man who told either of these papers what to do, and neither has anybody else in this room, and I am going to write that in a record in my own hand with my own name at the top of it, and it is the only thing I am going to leave behind today, because it is the only thing that will still be true in a year."
 
 The magistrate's clerk was writing.
 
@@ -112,7 +118,7 @@ Rell did not move.
 
 "There is a document," said Lysa Fenn.
 
-"There is a document," said Rell. "Sergeant Ottery wrote it at his own hand on the night of the seventh of Greenmonth, at his own table, in his own house, and he brought it up this morning and gave it to the clerk at the seventh hour and it is in your file, ma'am, at the bottom, under my statement, and I have not read it, and I am not going to read it in the last half hour of a sitting and speak afterwards. Read it or do not. That is his and yours. I have a duty in this room and it is to tell you that the order was executed by four men of this watch on a paper and not on any opinion of mine about a fever, and I have told you that already and I will say it again if you want it."
+"There is a document," said Rell. "Sergeant Ottery wrote it at his own hand on the night of the second of Greenmonth, at his own table, in his own house, and he brought it up this morning and gave it to the clerk at the seventh hour and it is in your file, ma'am, at the bottom, under my statement, and I have not read it, and I am not going to read it in the last half hour of a sitting and speak afterwards. Read it or do not. That is his and yours. I have a duty in this room and it is to tell you that the order was executed by four men of this watch on a paper and not on any opinion of mine about a fever, and I have told you that already and I will say it again if you want it."
 
 "It is in the file," said the clerk.
 
@@ -120,7 +126,7 @@ Rell did not move.
 
 "Then I will read it," said Lysa Fenn, "and the room will hear it, because the room is full and the stair is full and this is a public sitting in a building with a wedge in the door. Sergeant Ottery — send him in."
 
-He was forty-seven and had been in the Merefen watch twenty-two years and had been a sergeant nine, and he came into the room with his cap in his hand and did not sit, and he had the appearance of a man who has been sick with something that is not a fever and is sorry about it.
+He was forty-seven and had been in the Merefen watch twenty-two years and had been a sergeant nine years and three months, and he came into the room with his cap in his hand and did not sit, and he had the appearance of a man who has been sick with something that is not a fever and is sorry about it.
 
 "Sit down, Sergeant."
 
@@ -132,7 +138,7 @@ He was forty-seven and had been in the Merefen watch twenty-two years and had be
 
 "State, for the record, that nobody asked you for it, and then read your own statement in your own words, and do not read it as you wrote it, because the clerk has the writing and I want the room to hear a man say his own words twice."
 
-"Sergeant," said Bram Ottery, "on the night of the seventh of Greenmonth I sat down at my own table and wrote out what this watch did, and why, and who was standing where, because I have been a watchman in this town for twenty-two years and in all that time I have never once seen a thing done in this county that was written down, and I did not write mine down either, and I have been the officer of this watch and I signed for it in my own hand and I did not write it down, and I have had a bad four days about it."
+"Sergeant," said Bram Ottery, "on the night of the second of Greenmonth I sat down at my own table and wrote out what this watch did, and why, and who was standing where, because I have been a watchman in this town for twenty-two years and in all that time I have never once seen a thing done in this county that was written down, and I did not write mine down either, and I have been the officer of this watch and I signed for it in my own hand and I did not write it down, and I have had a bad two days about it."
 
 He turned a page, and did not read it.
 
@@ -154,11 +160,11 @@ The room turned around.
 
 It was not dramatic. It was thirty-one people on a stair all shifting their weight at once, and a man on the second step up, in an apron, with his hands at his sides, who had been standing with his back to the wall and his hat under one arm, looking at the floor.
 
-He was fifty-eight or so. He had a barrow's habit of standing and a seller's habit of not being surprised, and he looked up the stair at the people looking at him, and he did not go out of the door, because a man going out of a door on the fourth of Greenmonth in front of a magistrate is a man who is admitting something, and he knew it, and he stood.
+He was fifty-eight or so. He had a barrow's habit of standing and a seller's habit of not being surprised, and he looked up the stair at the people looking at him, and he did not go out of the door. He looked at the open door at the bottom of the stair, and then he looked at the floor again, and he stood where he was.
 
 "I said the fever," he said. "I'd not say it different now. There's a dyke on a street in this town that came from water off a bridge, and the Crown's own men said so eleven years back, and the Crown's own men were wrong, and I'd not be doing my job to hold that they've always been right." His voice carried in the small stair better than anybody expected. "And I'd say this to the bench and not to him. If the bell's the fever, and the crown's taken it, then the crown's right and there'll be no fever. If I'm wrong, then somebody's here who's paid for the taking of it, and the best thing that can happen to a town is a Crown officer paid for a bell."
 
-Nobody in the stair made a sound. It was, as Lysa Fenn had said twenty minutes earlier, the most expensive sentence said in Merefen in Greenmonth, and it was said by a man selling eels, and it was said for the reason that everybody in a market says anything, which is that it had always been said and he had no reason to be the first man to stop.
+Nobody in the stair made a sound. It was, as Lysa Fenn had said twenty minutes earlier, the most expensive sentence said in Merefen in Greenmonth, and it was said by a man selling eels, and it had been said in one form or another in that market for three weeks, and nobody standing on a stair was in a position to stop a man selling eels from finishing a sentence.
 
 "Enter it," said Lysa Fenn, in a voice that carried down the stair. "Enter that the sergeant has named the man and that the man is in the building, and enter that nobody had ever thought to ask the man, because he was not holding a document; he was holding a story, and he has been selling it in this town since the seventeenth, and that this court cannot un-sell it in a morning, and that it is now in a record with a name in it, which is the only thing a court can do about a story, which is put it in a book and go home."
 
@@ -184,7 +190,7 @@ Rell was in the corridor with Ottery when the room came out, and he did not rais
 
 "That is not what I—," Ottery started.
 
-"It is exactly what you did," said Rell. "You put a man's face in a judge's record on a night when you were not asked to, and the finding of this court is that it was true, and a finding of this court does not pay anybody's wages, and you have lost the stripes and the accrual and I have not got the power to put any of it back. Go home. Not to the watch-house. Home."
+"It is exactly what you did," said Rell. "You put a man's face in a magistrate's record on a night when you were not asked to, and the finding of this court is that it was true, and a finding of this court does not pay anybody's wages, and you have lost the stripes and the accrual and I have not got the power to put any of it back. Go home. Not to the watch-house. Home."
 
 Ottery stood in the corridor of a salt-loft house with his cap in his hands for the length of four breaths, and then said, "Captain, I wanted the watch to have a rule," and Rell said, "I know exactly what you wanted," and went down the stair.
 
@@ -204,6 +210,6 @@ The chalk said: *On the fourth of Greenmonth, in the county court, the seizure o
 
 There was no room on the board for the rest of it, and the board did not have the rest of it, and the rest of it was that a man in an apron with a barrow had said a thing in a stair and had been right about the arithmetic of a Crown's convenience in the middle of it, and that thirty-one people had heard both, and that the town would spend Greenmonth repeating the chalk and forgetting the stair.
 
-Aren Kest came down the half-landing and into the street and stood in the cold with the market going on around him and a man selling eels somewhere behind him in the town, and the day went on at the shilling a day, which was a real number, and there was a bench mark on Sedge Reach that was a quarter of an inch wrong, and a shear pin to fit by Thursday, and eleven days of wages owed by people who had just been told in writing that the law had been on their side.
+Aren Kest came down the half-landing and into the street and stood in the cold with the market going on around him and a man selling eels somewhere behind him in the town, and the day went on at the shilling a day, which was a real number, and there was a bench mark on Sedge Reach that was a quarter of an inch wrong and a figure of it written in a book that the guild had told him in as many words he was not to write it in, and eleven days of wages owed by people who had just been told in writing that the law had been on their side.
 
 Somewhere under the Old Toll crossing, a mile up the road, the river went over four bays that had never been shut, past an empty iron cradle with a clean rectangle in the moss under it, and there was nothing at all in the stone to answer anybody.

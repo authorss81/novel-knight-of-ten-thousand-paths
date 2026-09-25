@@ -1,10 +1,10 @@
 # Chapter 0016
 
-The mail boat from Merefen was a punt with a man who poled it and a woman who sold milk, and it came down the Sable in the slack between the floods, and Lysa Fenn got off it at the provincial landing at the fourth hour of the afternoon with her saddlebag over her shoulder and her hands going at the third hour of the day, in a town that had heard about the bell at the ninth hour of the morning and would hear the rest of it by the fourth hour of tomorrow.
+The mail boat from Merefen was a punt with a man who poled it and a woman who sold milk, and it came down the Sable in the slack between the floods, and Lysa Fenn got off it at the provincial landing at the fourth hour of the afternoon with her saddlebag over her shoulder and her hands gone since the third hour of the day, in a town that had heard about the bell at the ninth hour of the morning and had been told nothing since, and where a chalk board was the only thing standing between a magistrate and a rumour.
 
 Her rooms were two, over the county clerk's office, on a stair that any of the clerks in that building could climb in ninety seconds, which was the first fact about a magistrate and the only one that mattered to anybody who wanted to be let in. She had chosen them for that reason in her first year and had never regretted it and had understood within two years that it was also the reason the reeve's office regarded her as a subsidy for people who would not govern themselves, which was a sentence she had heard twice and had never once been able to answer with anything but the fact that she could be climbed to at ninety seconds and so could every person who had a grievance and a hat.
 
-She put the bag down, took off her gloves, and sat at a table that was better than the chair.
+She put the bag down, took off her gloves, and sat down at the table, which was better than the chair.
 
 Then she did the thing she had come down the river to do, which was to write down, in her own hand, in a record that would leave the building, the fact that nobody could produce the authority for a lawful act.
 
@@ -26,7 +26,7 @@ And then the last paragraph, which she had rewritten once, and which is the whol
 
 *Fifth. That the authority for the fourth being unproducible, and the officers holding the third being unnamed, this court is unable to state to any party what officer of the Crown caused the seizure, by whose instruction it was made, or under what instrument the town of Merefen was found to be subject to it. That finding is made of record and is public, and any person, office, or court thereafter purporting to act in respect of the object, the hinge, the road, or any person named as keeper of any of them, is put on notice that this court has asked and has not been answered, and that the asking is dated.*
 
-She read it four times. Then she signed it, and dated it the fourth of Greenmonth, and wrote the time, which was the seventh hour, because a finding with a time in it is a finding made on a day and not on a mood.
+She read it four times. Then she signed it, and dated it the fourth of Greenmonth, and wrote the time, which was the tenth hour, because a finding with a time in it is a finding made on a day and not on a mood.
 
 And then she sat with her hands flat on the table and looked at her own name at the bottom of it, and understood what she had done, which was that she had put herself in the record.
 
@@ -54,7 +54,7 @@ The door was not knocked on. In five years, nobody in that building had ever kno
 
 "He is a competent man," said Lysa Fenn, "and he has been sent to ask two questions he was not sent to ask, and he will go back with the answers he has been given and he will not mention that he asked them, and in four months somebody will do the same thing in a different county and it will not occur to them to ask it, and that is how a practice becomes a policy in about two years. Tell him I have no standing in the matter of the emergency powers, which is true, and that the third clause of my record is a finding of fact in a proceeding in this court, which is also true, and that he may read the second one because it is a public document, and the first one he may take to whoever can stand in it."
 
-"Mm." He wrote that too, and then he did not leave, and stood there with his pen in his hand and his bad chest and waited, which he had never done before.
+"I have it," and he wrote that too, and then he did not leave, and stood there with his pen in his hand and his bad chest and waited, which he had never done before.
 
 "Say it."
 
@@ -68,7 +68,7 @@ She read the third clause again with the door shut, alone, and she said the sent
 
 "The emergency power is the hearing. The bell is the peg."
 
-That was the true shape of the thing and she had spent four hours getting to it. Nobody in Merefen was going to be charged for a bell. The bell was an instrument: a piece of municipal salvage under a bond, on a bridge out of cart use, at a moment when a man had gone nine days missing and the town needed a story. A Crown office had done the whole thing in three days off a paper written three days before the storm, and it had worked, because the only thing that had to hold up in a fen town was a seal. The emergency power was what let a watch captain in a fen town do it: not the paper, which was unlawful to refuse on its own terms, but the standing renewal that put unnamed officers over this valley every year without anybody in the valley being asked. Every time that renewal was signed, a paper like Rell's became a lawful instrument instead of an outrageous one, and the only man who ever noticed the difference was a sergeant who wrote things down, and that was on Thursday and he had lost his stripes for it.
+That was the true shape of the thing and she had spent four hours getting to it. Nobody in Merefen was going to be charged for a bell. The bell was an instrument: a piece of municipal salvage under a bond, on a bridge out of cart use, at a moment when a man had gone nine days missing and the town needed a story. A Crown office had done the whole thing in three days off a paper written before the storm, and it had worked, because the only thing that had to hold up in a fen town was a seal. The emergency power was what let a watch captain in a fen town do it: not the paper, which was unlawful to refuse on its own terms, but the standing renewal that put unnamed officers over this valley every year without anybody in the valley being asked. Every time that renewal was signed, a paper like Rell's became a lawful instrument instead of an outrageous one, and the only man who ever noticed the difference was a sergeant who wrote things down, and that was on Sunday and he had lost his stripes for it.
 
 The renewal is a provincial fact. It happens in a room two hundred miles from a wet town by a clerk with a book. She could not touch it, she could not enjoin it, she could not refuse to sit under it, and she had just spent an afternoon writing the only sentence in this county that says a power with no names in it is a power nobody can be asked about. That sentence was now going to leave the building, and it was going into a file in a building where the annual renewal was copied out, and it would be read by a clerk in about seven weeks, in a room like this one, in the ordinary course, on his own business, and it would be the first time in eleven years that anybody had written the sentence down in a place where a clerk would come across it while copying.
 
@@ -76,7 +76,7 @@ That is the whole of what a magistrate can do from a county chair, and it is not
 
 ---
 
-He came at the seventh hour, without knocking, which she permitted, and stood in the middle of the room with his hat in his hands and the mud of the Old Toll road on the heel of one boot, and she did not offer him the chair and he did not expect it.
+He came at the eleventh hour, without knocking, which she permitted, and stood in the middle of the room with his hat in his hands and the mud of the Old Toll road on the heel of one boot, and she did not offer him the chair and he did not expect it.
 
 "Captain Rell wrote to me at the fifth hour," she said. "The post goes up the river at six and he put it in his own hand and paid for it out of the watch fund, which is a thing I have told him never to do again and which I am not going to undo tonight."
 
@@ -86,7 +86,7 @@ He came at the seventh hour, without knocking, which she permitted, and stood in
 
 "What is it worth?"
 
-"It is worth nothing until somebody in the provincial town finds it, and it will be found by accident, and the man who finds it will decide what it is, and that is a thing you have to live with." She took the sheet back. "I am going to say two things to you and neither of them is in the record, and I am going to say them because it is four o'clock and there is no one in this building who will ever hear them, and because you have spent a fortnight being a nuisance in the most useful way anybody has ever been a nuisance in this county and there ought to be one hour in the year in which somebody says so."
+"It is worth nothing until somebody in the provincial town finds it, and it will be found by accident, and the man who finds it will decide what it is, and that is a thing you have to live with." She took the sheet back. "I am going to say two things to you and neither of them is in the record, and I am going to say them because it is the eleventh hour and there is no one in this building who will ever hear them, and because you have spent a fortnight being a nuisance in the most useful way anybody has ever been a nuisance in this county and there ought to be one hour in the year in which somebody says so."
 
 She stood up and went to the window, which gave on the back of a court building and a wall and eight feet of sky, and she looked at it the way she looked at it when she was going to say a thing she had not said before.
 
@@ -122,7 +122,7 @@ She got off the table and sat down in the chair properly.
 
 "Nothing. It came out with the other thing."
 
-"Yes, it did, and you did not stop it, and I have watched you stop yourself in the middle of a sentence four times this afternoon and put it back the way a man picks up a tool he has decided is not his. Go on. You have eleven days, and you have one job in them, and it is not in a court."
+"Yes, it did, and you did not stop it, and I have watched you stop yourself in the middle of a sentence four times since you sat down and put it back the way a man picks up a tool he has decided is not his. Go on. You have eleven days, and you have one job in them, and it is not in a court."
 
 "What is it, then."
 

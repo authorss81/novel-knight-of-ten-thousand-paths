@@ -24,7 +24,7 @@ The yard had not gone quiet, because four men on a face-stone job do not go quie
 
 "Master Kest—"
 
-"You priced it at three and a half on the twenty-eighth and you said a sentence about it, and I have carried the sentence about for four weeks and I am going to say it back to you in front of my brother and four men who know me, because you did not say it in front of anybody." He put his hand flat on the ledger. "*A man who signs six and has three and a half is a man who has signed on faith, and faith is not a currency we take.* I am not signing a second one of those. You were right then and you are right now and if the bench wants my tools after that it can come and take them and I will not say a word against it in the room."
+"You priced it at three and a half on the twenty-eighth of Mudmonth and you said a sentence about it, and I have carried the sentence about for eleven days and I am going to say it back to you in front of my brother and four men who know me, because you did not say it in front of anybody." He put his hand flat on the ledger. "*A man who signs six and has three and a half is a man who has signed on faith, and faith is not a currency we take.* I am not signing a second one of those. You were right then and you are right now and if the bench wants my tools after that it can come and take them and I will not say a word against it in the room."
 
 The clerk looked at the ledger for a moment.
 
@@ -76,15 +76,21 @@ The iron went on the stone every four seconds.
 
 "The villages," said the clerk.
 
-"Then the villages are counted by name and not by me and not by the Crown, and the Crown's figure of four thousand is a figure for a crossing and belongs to the Crown, and it is not a figure for seven villages and I am not going to stand in a yard and put it beside them. Alder Cross two hundred. Saltbrim ninety. Wrenlow sixty. Cobbett a hundred and forty. Nine Elms a hundred and ten. Stonebarrow forty. Hushwater eighty. Those are the figures of a keeper of records in Merefen and she is the one who counted them and I am repeating them and I have not checked a one of them against a parish book, because I do not keep parish books, and I would not put them on that roll in my own hand if you asked me to."
+"Then the villages are counted by name and not by me and not by the Crown, and the Crown's figure of four thousand is a figure for a crossing and belongs to the Crown, and it is not a figure for seven villages, and I am not going to stand in a yard and put it beside them, and I am not going to put one village beside another either, and you can write that second sentence down as well and it is the one I would fight for."
+
+He said it and then waited, because a man who has refused a question and answered it in the same breath has not refused it, and the iron went on the stone every four seconds and nobody in that yard filled the gap, which was the correct thing for all of them to do.
+
+Then he recited them, and it was a recitation and not an answer, and he made his voice do it the way a keeper of records does it, flat, with no help.
+
+"Alder Cross, two hundred. Saltbrim, ninety. Wrenlow, sixty. Cobbett, a hundred and forty. Nine Elms, a hundred and ten. Stonebarrow, forty. And Hushwater, eighty. Those are the figures of a keeper of records in Merefen and she is the one who counted them, and I am repeating them, and I have not checked one of them against a parish book, because I do not keep parish books, and I would not put them on that roll in my own hand if you asked me to."
 
 "And the sum?"
 
-"There is no sum. Not on this roll and not on mine and not in the yard." He said it the way a man says a thing he has been given rather than found. "And I am going to tell you why, because you have been decent about a bond that was not decent and you have come into a yard instead of sending a boy, and because the reason is worth more than the figures. There is a keeper of records two floors above a salt merchant in this town, and on the fourth of Greenmonth, in a room, in front of the clerk of this court, who is no friend of hers and had walked four miles up a hill to be in that room, she was asked to write one number and she would not, and she gave the reason, and it is a good reason and it is hers and I am not going to improve on it or explain it for her."
+"There is no sum. Not on this roll and not on mine and not in the yard." He said it the way a man says a thing he has been given rather than found. "And I am going to tell you why, because you have been decent about a bond that was not decent and you have come into a yard instead of sending a boy, and because the reason is worth more than the figures. There is a keeper of records two floors above a salt merchant in this town, and on the eighth of Greenmonth, in a room, in front of the clerk of this court, who is no friend of hers and had walked four miles up a hill to be in that room, she was asked to write one number and she would not, and she gave the reason, and it is a good reason and it is hers and I am not going to improve on it or explain it for her."
 
 He said it, then, in a yard, in the dust, to nine people, and it took a little over a minute, and he said it badly compared with how she had said it, and it did not matter.
 
-"A total is one number. One number is a thing somebody can check once and disprove once, and nobody has to look at why it was given. The Crown does not have to answer one word she has said in four years. The Crown has to find one error in it. One. And then seven villages are dependent places on a bridge that was never laid and there is nothing left of them to appeal with, because the finding is in and the sum is out and the sum is hers. A name is not that. Nobody disproves a name, they look for it, and looking for one of them is a thing a man does for a year and comes back with a book in a woman's hand." He stopped. "A magistrate of this county wrote a finding on Thursday that says a Crown paper is a Crown paper and nobody behind it can be named. That is the same sentence. It is in two places, and neither place is a speech, and I am the only man in this yard who has read both."
+"A total is one number. One number is a thing somebody can check once and disprove once, and nobody has to look at why it was given. The Crown does not have to answer one word she has said in four years. The Crown has to find one error in it. One. And then seven villages are dependent places on a bridge that was never laid and there is nothing left of them to appeal with, because the finding is in and the sum is out and the sum is hers. A name is not that. Nobody disproves a name, they look for it, and looking for one of them is a thing a man does for a year and comes back with a book in a woman's hand." He stopped. "A magistrate of this county wrote a finding on Sunday that says a Crown paper is a Crown paper and nobody behind it can be named. That is the same sentence. It is in two places, and neither place is a speech, and I am the only man in this yard who has read both."
 
 The clerk wrote nothing for a while.
 
@@ -146,7 +152,7 @@ He opened the bag on the bench and counted it out onto the plank, and it was two
 
 "Somebody has told somebody nine shillings."
 
-"Nine shillings is a third of my price and it is a lie that came off my board, and it is the reason a market works, and I would like the man who told you to come and tell me his name so that I can look at him." He put the coin in a box and shut the box. "There. Now say the rest of it, because you have been in my shed twice and you have not asked me the thing you actually came to ask, and I have watched you not ask it for about a minute and a half."
+"Nine shillings is more than half my price and it is a lie that came off my board, and it is the reason a market works, and I would like the man who told you to come and tell me his name so that I can look at him." He put the coin in a box and shut the box. "There. Now say the rest of it, because you have been in my shed twice and you have not asked me the thing you actually came to ask, and I have watched you not ask it for about a minute and a half."
 
 Aren Kest stood in the open front of a glasswright's shed on a road going up out of a fen.
 
@@ -158,11 +164,11 @@ Master Quarren was quiet for a moment.
 
 ---
 
-The light was going off the fen by the time he got to the crossing, and it did that in Greenmonth in a quarter of an hour, from a long grey to a blue to a black you could read a chalk line by.
+The light was going off the fen by the time he got to the crossing, and it went fast, and by the time he was on the abutment a man could have read the chalk in the joints of the parapet and no more than that.
 
-He had it before he got to the bridge.
+He had not looked at the post going up the road and he did not look at it now, and the not-looking was a decision and it had cost him something, because a wax seal is the most interesting object in that county this month and it was four feet from his elbow.
 
-The seal on the post had been rained on for a fortnight and had not run. It was the size of a crown piece and it had a bloom on it and a chip in the bottom edge with a black line in it where a fly had got into the wax before it set, and two flies, and he wrote that down because he was going to write down everything and a man who records a fly on a seal has told you what his standard of evidence is.
+He wrote two lines of it in the notebook, the hour and the state of the wax, because he was going to write down everything this month and a man who records a fly on a seal has told you what his standard of evidence is. Then he put the notebook away and did not go and look at the crack in the bottom edge of the wax, which he had looked at on the seventh, and which he was going to have to tell a glasswright about in an hour.
 
 The cradle was empty and the iron was rusted into the stone and the moss was green over the corner of the clean rectangle.
 
@@ -216,6 +222,24 @@ Then Tovan Kest came out onto the parapet with a lamp of his own and a sheet of 
 
 "It is not nothing," said Aren Kest.
 
+"And I am going to say the other two things now, while there are three men on this bridge," he said, "and I am not going to say them on a street afterwards, because I have worked out that I can be a great deal more honest at the eleventh hour on a wet bridge than I am at noon in a market, and I would rather find that out about myself tonight than in a year."
+
+Nobody in the yard said anything. Down at the shed the fire had gone down to a red bed, and the two journeymen were still at their work at the eleventh hour, which they had no business doing, and which said something about a yard that had work in it.
+
+"One. It is the ninth in the morning. Not a fortnight and not tonight. There is a bench of this guild sitting tomorrow at the ninth hour to vote on a bond of mine, and I am not going to be in that room, because I have a market and a date and a thing to be doing at the sixth hour. And there is a clerk in the provincial town who is expecting a keeper of the Bellweather hinge in the morning, and there is not one, and I am not going, and he will write *absent* in a book two hundred miles from here. In a year that book will be a fact about me instead of an argument."
+
+"And the second one," said Tovan Kest, without moving.
+
+"The second one is that I do not know what is at the other end of it. Not a man and not a name and not a room. There are four thousand people living on that side of the door and a bench of nine who have asked me for a promise to come back, and I gave them my word instead of terms, and there is nobody at that end who has been told one word about tonight. I have a maker's account and a carpenter's hand and a date and an hour, and not one of those is a person, and I would rather say that out loud to two men on a bridge than carry it up Weir Street and say it to nobody at all."
+
+Tovan Kest stood on his own parapet in the dark with a lamp in his hand and did not put it down.
+
+"Then write on it," he said, "that I would not put my name under a road, and that I would put my name under a bridge. I have not believed in a road since I was seventeen and I am not going to start at thirty-one in a wet coat. But a bridge I have watched get set this evening, and I can say what I saw and no further than that. And if you write that distinction on the paper yourself tonight and not on Friday morning, then a man in a bench-room in six months will be able to tell the difference between a brother who did not believe his brother and a brother who did not believe in a road."
+
+Master Quarren, who had been closing his tool roll and had not been asked to stay, stopped with a strap in his hands.
+
+"Master Kest. I have been in this trade thirty years, and a man has just told me the date of a thing he cannot describe, on a bridge I shall be on again in nine years, in a county where I have no other work. If it goes, I can tell you what a seat in cut stone does about it, because you asked me and I wrote it down. If it holds, come and see me, because a man who comes back is worth the glass, and I have not said that to a customer before and I do not expect to have to say it twice."
+
 "Good." Tovan put his lamp on the parapet. "Then read me the bit you have written for yourself, because I am a carpenter and I know what a man writes when he is writing to himself and I have read a great many of them in a bench-room in my life."
 
 Aren Kest read it out on a bridge in the dark, in the flat voice a man uses when he is reading a thing and not reciting it.
@@ -228,7 +252,7 @@ He read it twice and folded it and gave it to his brother, and Tovan Kest read i
 
 ---
 
-He went up the bank towards the town at the eleventh hour with the bag empty and a mark and a quarter gone out of it and a seat in a bridge with two discs in it and a maker's mark under the near one, and the moon was not doing anything and the wind was from the south-west and smelled of the fen and somebody's fire, and he was not cold and he was not warm and there was nothing in the air at all.
+He went up the bank towards the town at the eleventh hour with the bag empty, a mark and a quarter of his own gone into a chest in Merefen in front of five men, a seat in a bridge with two discs in it and a maker's mark under the near one, and the moon was not doing anything and the wind was from the south-west and smelled of the fen and somebody's fire, and he was not cold and he was not warm and there was nothing in the air at all.
 
 Then he stopped on the wharf road, in the middle of it, and made himself do the arithmetic out loud, in the dark, in the street, to the river, because a man who does it in his head is a man who has already decided what it comes to.
 
@@ -246,6 +270,6 @@ He started walking again, and then he stopped once more, because there was one m
 
 "And I am going to stand on a bridge in the morning with a maker's account and a carpenter's signature and a date, and I have told two men on this bridge tonight what I can do and not one person what happens at the other end, because I do not know. I do not have a person on this side and I do not have a person on that side, and the thing I am going to do on the ninth is the second time I have done it and the first time I did it on a bell in a storm in the dark without saying a word to anybody, and it cost nine days and a bell and a market, and this time I have written it down and paid for it and given it to three other people to hold, and that is better, and it is not enough, and I know exactly what it is not enough in and that is the thing I am carrying up Weir Street tonight."
 
-Then he went home, and he went up the stair to the room above the cooper with his back to the wall, and the moulding was damp and there was a draught that could carry a candle flame sideways, and he was one night's short of a mark and a quarter and eleven days in arrears and eleven days further from a wage, and the river went over four bays in the dark.
+Then he went home, and he went up the stair to the room above the cooper and shut the door on a draught he could not shut the door on, and the moulding was damp and the stair smelled of oak shavings and tar because the man downstairs had been a cooper for thirty years, and he was eleven days in arrears and eleven days further off a wage and a mark and a quarter out of pocket, and the river went over four bays in the dark and did not answer him, and he had not expected it to, and there was a market in the morning.
 
 A quarter of a mile up the Old Toll road a bridge with no bell on it had two pieces of Steppe glass in the scar of a cross, cut square by a man with a chisel, dressed by a man with a wheel, set by a man with a lamp, and a pin through both of them with an oak collar on its head, and the maker's mark under the near disc, and the maker's account of how it will fail bound in a book over a salt merchant, and a page in a yard's week-book with three hands on it, and nobody standing on it, and nobody waiting for it, and the ninth of Greenmonth twenty-four hours off and closing.

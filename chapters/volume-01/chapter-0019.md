@@ -46,9 +46,9 @@ The entry said: one bell. Nine stone by the founder's weight, which was a figure
 
 "Three hundred and two."
 
-"And what happened in three hundred and one?"
+"And the other half of that year is three hundred and one. What is in three hundred and one?"
 
-Sarn did not answer, and the not-answering was the answer, and both of them let it stand, because there was a rule about the eleventh year in this office as firm as the one on the wall and it was not a rule that had been written down by anybody.
+Sarn did not answer, and the not-answering was the answer, and both of them let it stand, because there was a rule about a missing half in this office as firm as the one on the wall and it was not a rule that had been written down by anybody.
 
 Mara Vey wrote one line in the day-book and then stopped with the pen on the paper.
 
@@ -114,17 +114,17 @@ The clerk's pen stopped.
 
 She turned a sheet round and did not give it to him. She read it.
 
-"Alder Cross, two hundred. Saltbrim, ninety. Wrenlow, sixty. Cobbett, a hundred and forty. Nine Elms, a hundred and ten. Stonebarrow, forty. Hushwater, eighty."
+"Alder Cross, two hundred. Saltbrim, ninety. Wrenlow, sixty. Cobbett, a hundred and forty. Nine Elms, a hundred and ten. Stonebarrow, forty. And Hushwater, eighty."
 
 "Seven hundred and twenty," said the clerk, and then stopped with his pen half an inch off the paper, because a man who has just added a column aloud in a room is a man who has noticed what he has done.
 
-"You may add them," said Mara Vey. "I did not. That is the whole of the reason and I am giving it to you without being asked, because I have a clerk's memory and you have a good chest and neither of us is going to be young, and because I would rather this rule were in your hand than in mine."
+"You may not add them," said Mara Vey, "and I am not going to let you add them, and I did not. That is the whole of the reason and I am giving it to you without being asked, because I have a clerk's memory and you have a good chest and neither of us is going to be young, and because I would rather this rule were in your hand than in mine."
 
 The clerk did not move.
 
 "Ma'am."
 
-"I know what it looks like. It looks like a woman who cannot add. Listen to the reason and then decide." She put both hands flat on the table, which she did not do in front of claimants. "A total is one number. One number is a thing that can be checked once and can be disproved once, and nobody ever has to look at the reason it was given. The Crown does not have to beat me and does not have to answer a word I have said in four years. The Crown has to find one error in the sum. One. A hundred and six at Alder Cross instead of two hundred, and the seven are dependent places on a bridge that was never laid, and there is nothing left of them to appeal with, because the finding is in and the sum is out and the sum is mine.
+"I know what it looks like. It looks like a woman who cannot add. Listen to the reason and then decide." She put one finger on the figure in the total line, which she did not do in front of claimants. "A total is one number. One number is a thing that can be checked once and can be disproved once, and nobody ever has to look at the reason it was given. The Crown does not have to beat me and does not have to answer a word I have said in four years. The Crown has to find one error in the sum. One. A hundred and six at Alder Cross instead of two hundred, and the seven are dependent places on a bridge that was never laid, and there is nothing left of them to appeal with, because the finding is in and the sum is out and the sum is mine.
 
 "A name is not that. Nobody disproves a name. They look for it. And looking for Hushwater is a thing a man does for a year and comes back with a crossing book in a woman's hand and a schoolmistress's list and a ferryman off the north end who sat on a bench in my outer room for three days and would not leave, and not one of those three things can be knocked over with a column of arithmetic. That is the difference between a name and a total, and it is the only thing this office has ever had, and I have been keeping it four years with a press and a day-book and no money at all, and I am not going to have it undone because somebody wanted one clean figure for a service."
 
@@ -146,9 +146,9 @@ He wrote it. And he wrote the hour, because she had taught him to write the hour
 
 Jos Rusk came at the eleventh hour with the crossing book in the waxed case and a week's arithmetic behind his face.
 
-He had been in the market on the fourth. He had not been in the room in the stair; he had been at the back of the crowd on the wharf road, which is where a man of fifty-one stands on a market morning in a town of four thousand, and he had heard a magistrate say *lawful procedure*, and he had heard in the hour afterwards, from two men at a stall and then from a third, that a man with a barrow had said in a stair that the Crown had taken the bell because it was the fever, and that if the bell was the fever and the Crown had taken it then the Crown was right, and if he was wrong then somebody had been paid.
+He had been in the market on the fourth. He had not been in the room in the stair; he had been at the back of the crowd on the wharf road, which is where a man of fifty-one stands on a market morning in a fen town nobody has ever counted, and he had heard a magistrate say *lawful procedure*, and he had heard in the hour afterwards, from two men at a stall and then from a third, that a man with a barrow had said in a stair that the Crown had taken the bell because it was the fever, and that if the bell was the fever and the Crown had taken it then the Crown was right, and if he was wrong then somebody had been paid.
 
-"He has been saying it for a fortnight and it has got a week further into this town than the finding did," said Rusk. "I have been eleven years telling a room there was a Crown behind it and I have never once had a thing I could put my hand on. On Thursday I had a man in a stair with a sergeant's statement naming him, and I have been repeating it ever since, and I would like you to notice that a thing in a magistrate's record has got me further in one week than nine years of being right."
+"He has been saying it for a fortnight and it has got a week further into this town than the finding did," said Rusk. "I have been eleven years telling a room there was a Crown behind it and I have never once had a thing I could put my hand on. On Sunday I had a man in a stair with a sergeant's statement naming him, and I have been repeating it ever since, and I would like you to notice that a thing in a magistrate's record has got me further in one week than nine years of being right."
 
 "Then let us be exact about what you have," said Mara Vey. "A magistrate held the seizure lawful. She found that the office behind the paper produces nothing. She recorded that there is no office of keeper of the Bellweather hinge in this county's charter, in the county's list, or in the Crown's own schedule, and that two instruments before her describe a person as holding it. And a watch sergeant, unasked, wrote down what his men did, and named a man who has been telling this market since the seventeenth that the bell carries a fever, and that man was in the stair, and a court cannot un-sell a story in a morning." She put her pen down. "That is four things and none of them is a name."
 
@@ -220,7 +220,7 @@ She stood in the yard for a while after that and did not say anything, because s
 
 And then she read the contract.
 
-She read it because it was lying face up under a lump of chalk, and because she reads anything left in the open, and because four men were cutting stone on the strength of it and it had a factor's name at the top of it and eleven tons on the western bank in a field somewhere with nobody standing over it.
+She read it because it was lying face up under a lump of chalk, and because she reads anything left in the open, and because four men were cutting stone on the strength of it and it had a factor's name at the top of it and nine tons of setts on the towpath below the mill and two tons still in a field on the western bank with nobody standing over either.
 
 It was a good contract. It was, as far as she could tell from standing up, a better contract than anything the town trust had entered into in four years, and it had a date on the sixth of Greenmonth, four marks into the yard on the day, the cutting to begin inside the month, and the balance on delivery at the mill. It had a yard's name on it and a rate in it and a duration in it — a month, for four men, at eight pence a day and cartage at the yard price — and at the foot, in Tovan's hand, a line that said an advance was to be cleared against the cutting at the yard rate and at the first Friday after delivery, and not before.
 
@@ -234,27 +234,23 @@ A debt against a contract was a document. It had a third party's name on it, and
 
 ---
 
-At the sixth hour the office had four things in it that had come in on one day, which was more than the office had held in any week of its four years, and three of the four were documents and one of them was nothing of the kind.
+At the sixth hour the office had four things in it that had come in on one day, which was more than the office had held in any week of its four years, and three of them were documents and one of them was nothing of the kind: a page of a Crown roll bound out of order and attested by a copyist with no opinion in it, a sheet of good paper with a space in it, seven villages in a court officer's ledger with the sum left off, and a cooper's boy up the half-landing stair at the fourth hour with a paper folded in four and gone down again before she could ask him a word, because he had been told not to wait. The wrapper had four digits on it in a fair hand she knew.
 
-There was a page of a Crown roll, bound out of order, in a hand not of that roll, in the year after, about a bell, with nothing on it to say where the bell came from. It was in a wrapper, in a copyist's hand, with a date and an hour and no opinion, and it was in Mara Vey's own press with the bar off its seat, and it was worth precisely nothing to anybody in the world today and would be worth something in about two years to one person she had not met and might never meet.
+And the one thing she had bought four shillings for was not in the building.
 
-There was a sheet of good paper with a space in it, and the space was going to have a tradesman's hand in it by the eighth hour tonight, and the tradesman's hand would cost him, and she had said so out loud in front of a man who deserved to hear it.
+That was the part she had understood on the second and had not liked since. The four shillings had bought a date. The registry had a search entered against the Bellweather Claims Archive on the second of Greenmonth, a fee paid, and a receipt with an hour on it, and a receipt for a search is the receipt for having asked. The closed press at the provincial registry would not open to a keeper of a public register for anything on earth short of a magistrate's order, and the order was written on the second and stamped on the fourth, and it came back on the fifteenth, and until it came back the whole of what the office knew about the *Anchors, schedules and dispositions, Alder Vale* was a registrar's spoken sentence, taken down word for word and sworn to by a copyist in her own hand: that the book was entered on the roll as standing in the fourth press; that it was not on the shelf; that the gap was about two inches and a half; and that nobody in that office had entered the gap anywhere.
 
-There were seven villages in a court officer's ledger in the county's spelling with a figure against each and *sum not stated* in the total line and a space where the space should be.
-
-And a cooper's boy had come up the half-landing stair at the fourth hour with a piece of paper folded in four and soft at the creases, and had gone down again before Mara could ask him anything, because the boy had been told not to wait.
-
-The wrapper had four digits on it in a fair hand she knew.
+Eleven days. She could do arithmetic in her sleep and it had never once been any use to her.
 
 She entered it before she did anything else, and she did it in the ordinary way, and the ordinary way is that a reported observation is not an exhibit and cannot be sworn, and that it goes in as what it is.
 
-*Reported. A sound described as a bell, heard on the seventh day of Greenmonth between the fourth and fifth hours, on or off the Old Toll crossing, in a dead calm, by two men on the Sedge Reach deck and one boy, thirteen, of Merefen, afterwards at the tower. One note, three seconds, of a bad and cracked sound. No bell is on this reach. The bell is in the custody of the watch of Merefen, under seal, in a storehouse by the fish weir, four hundred yards from the crossing described. Witnessed by the tower's sight-line to the weir and the storehouse door. The report is filed as reported. It is not offered as evidence of anything.*
+*Reported. A sound described as a bell, heard on the seventh day of Greenmonth between the eleventh hour and midday, on or off the Old Toll crossing, in a dead calm, by two men on the Sedge Reach deck and one boy, thirteen, of Merefen, afterwards at the tower. One note, three seconds, of a bad and cracked sound. No bell is on this reach. The bell is in the custody of the watch of Merefen, under seal, in a storehouse by the fish weir, four hundred yards from the crossing described. Witnessed by the tower's sight-line to the weir and the storehouse door. The report is filed as reported. It is not offered as evidence of anything.*
 
 She read it twice, and it was a page that could not be answered, and she thought about the man with a barrow who had said a true and useful thing in a stair with no hour in it, and about the two men on a deck who had, and about the fact that the only difference between them was a piece of paper, and that the paper had been written by a boy of thirteen who had then been unable to resist adding that he had gone up the tower and looked and seen nothing.
 
 *This office has no power to make a bell sound or to stop one. It has entered an hour, a direction, a sight-line, and the names of three witnesses, and it has entered them because they are the only parts that cannot be improved on by anybody.*
 
-And then the door of the outer room, and two men in it, and neither of them a claimant.
+And then the door of the outer room, and two men in it, and one of them a claimant she had sent for and the other one not a claimant at all.
 
 Rusk was there because she had sent for him. Aren Kest was there because Rusk had sent for him, which she had told him to do, and which he had done in a way that told her he had understood the instruction and its weight.
 
@@ -276,11 +272,11 @@ She told it exactly. Two discs, Steppe glass, cut and annealed to a bridge pin. 
 
 "Then there is nothing to be done," said Rusk.
 
-"There is exactly one thing to be done, and it is not a thing I can do, and it is the reason I asked you both to sit down." She looked at Aren Kest. "Four marks. You have a mark and a quarter and eleven days of wages that the trust will not pay until there is money in the trust. There are two ways to have four marks in Merefen by tomorrow morning. One of them is a second bond on the roll, on a tool-chest the guild's clerk has already priced at three and a half, and I want you to hear the clerk's own sentence about the first one, because you were not in the room when he said it and I have carried it since the twelfth of Mudmonth: *a man who signs six and has three and a half is a man who has signed on faith, and faith is not a currency we take.*"
+"There is exactly one thing to be done, and it is not a thing I can do, and it is the reason I asked you both to sit down." She looked at Aren Kest. "Four marks. You have a mark and a quarter and eleven days of wages that the trust will not pay until there is money in the trust. There are two ways to have four marks in Merefen by tomorrow morning. One of them is a second bond on the roll, on a tool-chest the guild's clerk has already priced at three and a half, and I want you to hear the clerk's own sentence about the first one, because you were not in the room when he said it and I have carried it since the twenty-eighth of Mudmonth: *a man who signs six and has three and a half is a man who has signed on faith, and faith is not a currency we take.*"
 
 "I remember it," said Aren Kest.
 
-"Yes. You remember it, and you have thought about it every day since, and you have known since the first of Greenmonth exactly which way that road goes and which way the other one goes." She squared the sheet. "The other one is a debt. Not a favour and not a gift and not a thing anybody says in a yard. A debt, against a contract, with a third party's name on it, at a rate, to a term, entered in a book that a clerk can open and that a clerk is obliged to keep. And there is a contract lying face up on a bench in Weir Street this afternoon with a factor's name at the top of it, and it will carry four marks to a man at eight pence a day for ten weeks, and every Friday in between there will be a man in a yard who is a little further from owing it, and that is what makes it honest. Not the money. The third party's name."
+"Yes. You remember it, and you have thought about it every day since, and you have known since the first of Greenmonth exactly which way that road goes and which way the other one goes." She squared the sheet. "The other one is a debt. Not a favour and not a gift and not a thing anybody says in a yard. A debt, against a contract, with a third party's name on it, at a rate, to a term, entered in a book that a clerk can open and that a clerk is obliged to keep. And there is a contract lying face up on a bench in Weir Street this afternoon with a factor's name at the top of it, and it will carry four marks to a man at eight pence a day for twenty-four days, and every Friday in between there will be a man in a yard who is a little further from owing it, and that is what makes it honest. Not the money. The third party's name."
 
 Rusk had been looking at the two of them and not at the sheet.
 

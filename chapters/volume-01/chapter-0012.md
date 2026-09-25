@@ -1,6 +1,6 @@
 # Chapter 0012
 
-The office had one rule on the wall in a fair copy, and on the afternoon of the first of Greenmonth there were two men in the outer room who had both been told about it by different people and neither of whom had been told it by her.
+The office had one rule on the wall in a fair copy, and on the afternoon of the first of Greenmonth there was a man in the outer room who had been told about it by somebody else and had not been told it by her.
 
 The inner room was two floors above a man who weighed salt for a living, and the salt came up through the boards in the warm months and lived in everything in the cold ones, and the river went under the floor in a low continuous way that four years had not taught her to stop hearing. She kept her back to the wall and both feet flat, and there were three chairs at the table and a press against the far wall with a bar off its seat, and a day-book open to a ruled page with a line for the first of Greenmonth and nothing on it yet.
 
@@ -96,7 +96,7 @@ He had been leaning forward. He leaned back.
 
 "Go on."
 
-"Your cause is in dispute from this hour." She turned a fresh sheet round and ruled a line down the middle of it. "I am going to enter your claim, and I am going to give it a number in this office's book, and I am going to put the claim in your wife's name as the keeper of a book and your daughter's name as a name in the second column of a page and not as a heading, and I am going to enter the book as an exhibit with a chain of custody from your hands to this table, and it will be a document in a county court in nine days when the magistrate sits again, and it will be a document nobody has to be persuaded about, because a hand that other men checked for nine years is not an argument, it is a fact that weighs nine ounces and cannot be leaned on."
+"Your cause is in dispute from this hour." She turned a fresh sheet round and ruled a line down the middle of it. "I am going to enter your claim, and I am going to give it a number in this office's book, and I am going to put the claim in your wife's name as the keeper of a book and your daughter's name as a name in the second column of a page and not as a heading, and I am going to enter the book as an exhibit with a chain of custody from your hands to this table, and it will be a document in a county court in three days when the magistrate sits again, and it will be a document nobody has to be persuaded about, because a hand that other men checked for nine years is not an argument, it is a fact that weighs nine ounces and cannot be leaned on."
 
 "And the cause?"
 
@@ -172,7 +172,7 @@ He was not a man who was going to make a speech. That was the thing she had not 
 
 "The ferrymen at Hushwater. There are none, and that is what I have been trying to say to four offices in eleven years and I have not said it in those words." He did not raise his voice and he did not need to; the room was eight feet across. "There is a cooperative of nine hands on that crossing and there are five of them living, and they are not in this county's book, and they do not know that anybody has come looking, and if the office that comes looking is the office that takes the water out of the channel, then a notice would be the worst thing that has ever happened to those five people. So I am asking you a plain question. Has anybody told the ferrymen?"
 
-Mara Vey sat with her back to the wall and her feet flat and the day-book open in front of her and the number four digits in ink on the back of a ferryman's hand, and she thought about the eleven days since the thirtieth, and about a document nobody had been summoned to see, and about a room above a salt merchant where a bell was going to be described on Thursday by a man who had held it on a bar, and about a claim she had just made weaker on purpose in front of the man it was for.
+Mara Vey sat with the day-book open in front of her and the number four digits in ink on the back of a ferryman's hand, and she thought about the day since the thirtieth, and about a document nobody had been summoned to see, and about a room above a salt merchant where a bell was going to be described on Sunday by a man who had held it on a bar, and about a claim she had just made weaker on purpose in front of the man it was for.
 
 "No," she said. "Nobody has told them, and nobody has told me how to reach them either, which is the first honest answer I have and it is a bad one."
 
@@ -186,10 +186,12 @@ Mara Vey looked up.
 
 He went down the half-landing stair and out into a street that smelled of salt and river and cold mud, and Mara Vey sat in the outer room for a while with the day-book open in front of her, and then she went in and wrote the day out in full, because that is what a day-book is for.
 
+---
+
 She wrote the claim number. She wrote the dispute in the form it had been signed, in both hands, with the hour.
 
 And at the bottom of the page, in the same ink, she wrote the other thing, because she had been trained to write down the shape of a silence while it was still fresh:
 
-*I have made this man's claim weaker in a room with no witnesses but him and me, and I did it in front of him, and he asked me for a boat and I gave him a number. I want it on this page that I did not do it to be kind to him and I did not do it because the water is wrong. The water may be right. Nobody can show that it is right, and the difference between those two sentences is the whole of my trade, and I have just spent a morning explaining my own job to a man who is owed it. He will not be thanked for it. He will be here in nine days and he will not be grateful, and that is the correct arrangement and it is the first time in four years I have had one.*
+*I have made this man's claim weaker in a room with no witnesses but him and me, and I did it in front of him, and he asked me for a boat and I gave him a number. I want it on this page that I did not do it to be kind to him and I did not do it because the water is wrong. The water may be right. Nobody can show that it is right, and the difference between those two sentences is the whole of my trade, and I have just spent a morning explaining my own job to a man who is owed it. He will not be thanked for it. He will be here in seven days and he will not be grateful, and that is the correct arrangement and it is the first time in four years I have had one.*
 
 *And: nobody has told the ferrymen. He is going to find out how to tell them. I do not know what he will do and I have no right to a vote and no instrument of any kind in this office that would let me have one.*

@@ -82,7 +82,7 @@ She said it in the copyist's flat voice: "Entered on the roll, the fourth, and n
 
 "And the second?"
 
-"I am writing to the magistrate of this county today for an order to inspect a register without fee, and I am going to tell you the truth about that order, which is that it will take eleven days, and that it is the only weapon I have, and that when it comes it will be a paper from a woman who has already been paid once by you and will be paid again by a clerk at a different table, and that a man in your position will be able to refuse the order and still be right, and that the Crown will then be able to say that the Bellweather Claims Archive asked a registrar to break his own rule." She looked at him. "You will not lose your post over this. A keeper of a public register has no jurisdiction. That is the whole of your authority and the whole of your protection: you cannot decide what a register means, and so you cannot be blamed for what it says, and so you cannot refuse a fee without a magistrate, and so you cannot be got at by anybody who has not first got at a magistrate. I have had that figure explained to me twice in four years and I have only now understood that it is a thing a Crown builds on purpose, and that it has kept at least one honest man in his chair, and that it has cost the rest of us eleven days each time."
+"I am writing to the magistrate of this county today for an order to inspect a register without fee, and I am going to tell you the truth about that order, which is that from the day it is stamped it will take eleven days, and that it is the only weapon I have, and that when it comes it will be a paper from a woman who has already been paid once by you and will be paid again by a clerk at a different table, and that a man in your position will be able to refuse the order and still be right, and that the Crown will then be able to say that the Bellweather Claims Archive asked a registrar to break his own rule." She looked at him. "You will not lose your post over this. A keeper of a public register has no jurisdiction. That is the whole of your authority and the whole of your protection: you cannot decide what a register means, and so you cannot be blamed for what it says, and so you cannot refuse a fee without a magistrate, and so you cannot be got at by anybody who has not first got at a magistrate. I have had that figure explained to me twice in four years and I have only now understood that it is a thing a Crown builds on purpose, and that it has kept at least one honest man in his chair, and that it has cost the rest of us eleven days each time."
 
 There was a pause.
 
@@ -97,6 +97,8 @@ At the door, with his hand on the stair, he stopped and did not turn round.
 "Miss Vey. One thing, seriously, and then I will go and be unhelpful in a different direction." He shifted the chest. "There is a schedule in that book for the bells of the Alder Vale crossing. Three of them. I have never had cause to open it and I have never had cause not to. I am telling you that it exists, and I am telling you that I have thought about it for about two seconds, which is more than I usually think, and I am telling you that a thing which is in my head and not in my register is worth nothing to anybody, including me, and that if I ever think about it again I shall find that I have thought about it in a room with a person in it, and that person will be an officer of a court or a keeper of an office and will be a fool if they write it down in the wrong week."
 
 He went down the stair with the chest.
+
+---
 
 Mara Vey stood in the outer room with a receipt for four shillings in her hand and eleven days started, and let out a breath she had been holding since the sixth hour, and then said:
 
@@ -152,11 +154,13 @@ Mara Vey came and stood behind her and read the page, all of it, at a speed that
 
 Sarn Oyelaran went home.
 
+---
+
 Mara Vey shut the press, and the bar on the clamp was out of true, and her hand found the twist and took the bar straight without a tool, and she was alone in the room and there was nobody at all to see her do it.
 
 She had four shillings less than she had had that morning, an order written and not sent, a registrar's honest sentence in a working file, a page in a press that was out of place in a way she could not yet name, and eleven days.
 
-She sat with her back to the wall and both feet flat and the river going under the floor, and worked out, because it was that kind of afternoon and because the arithmetic did not care what else she was doing, that the office would hold four marks and eleven pence to the end of Greenmonth, and that eleven days was the fourth of the month, and that on the fourth of the month there would be a hearing in the inner room with a magistrate and a watch captain and a garrison of a town's opinion, and that she would have to be in that room, and that the money for it did not exist, and that the fight she had just spent the afternoon having was about four shillings to hold a date.
+She sat with the river going under the floor and the day-book shut, and worked out, because it was that kind of afternoon and because the arithmetic did not care what else she was doing, that the office would hold four marks and eleven pence to the end of Greenmonth, and that the order she was writing now would be stamped on the fourth, and that eleven days from the fourth was the fifteenth, and that on the fourth of the month there would be a hearing in the inner room with a magistrate and a watch captain and a garrison of a town's opinion, and that she would have to be in that room, and that the money for it did not exist, and that the fight she had just spent the afternoon having was about four shillings to hold a date.
 
 She wrote the day out in full. And then, at the bottom of the page, in the ordinary ink, because it was a fact and not yet a thing:
 
