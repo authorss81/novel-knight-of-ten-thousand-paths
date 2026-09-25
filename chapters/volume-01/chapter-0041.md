@@ -88,7 +88,7 @@ He wrote it in the yard's book at the foot of the page, in his own hand, with a 
 
 "What is the reason."
 
-"**Because you did not ask me to.**" He put the pen down. "You have asked me for a line eleven times in four months and every time you asked. And this morning you came down this street and told me a thing and did not ask me for anything, and I wrote it down anyway, and if you had asked I would have said no and it would have been the correct no."
+"Because you did not ask me to." He put the pen down. "You have asked me for a line eleven times in four months and every time you asked. And this morning you came down this street and told me a thing and did not ask me for anything, and I wrote it down anyway, and if you had asked I would have said no and it would have been the correct no."
 
 ---
 
@@ -108,13 +108,13 @@ She read it back, and then she wrote the hour against it, and then she did not p
 
 "Write that down as well."
 
-"I am not going to write that down," she said, "because that would be a second statement and you would have to read that one back too, and then we would be here until the light goes. **One statement. Same words twice. That is the whole of the protection and you should know that the protection is the repetition and not the paper.**"
+"I am not going to write that down," she said, "because that would be a second statement and you would have to read that one back too, and then we would be here until the light goes. One statement. Same words twice. That is the whole of the protection and you should know that the protection is the repetition and not the paper."
 
 "And the second thing."
 
 "And the second thing is that the instruction which forbids you contact names no law, requires no court, and cannot be refused, and it does not reach me, and it does not reach the yard, and it does not reach a bench of nine men, and it says nothing whatever about two people standing on a bridge at four o'clock in the afternoon putting a line into a hole in a parapet." She capped the ink. "I have been at this table for six days and I have been trying to work out whether I can be got at for being in this room at four o'clock, and I have worked it out, and here it is, and I am saying it now and not in a corridor in a year.
 
-"**I was here at four o'clock because I witness things that are set.** That is my whole trade and it has been my whole trade for four years and I have done it for the miller and the coopers and a man who wanted a handrail seen to. There is nothing in this room about a bell and I am going to write down in the day-book that there was nothing in this room about a bell, with the hour on it, and if anybody comes up these stairs in a year and asks me what I did on the twenty-sixth of Longlight at the fourth hour, I will be able to answer in a form, and the form will be true, and the true form is that a woman who witnesses things watched a line go into a hole in a stone and nothing else happened, and that is the answer and it is the whole of it, and it is not a lie and it is not the whole of the truth and I have decided that a form which is true and not the whole of the truth is the only instrument a keeper of records has and I will not be without it."
+"I was here at four o'clock because I witness things that are set. That is my whole trade and it has been my whole trade for four years and I have done it for the miller and the coopers and a man who wanted a handrail seen to. There is nothing in this room about a bell and I am going to write down in the day-book that there was nothing in this room about a bell, with the hour on it, and if anybody comes up these stairs in a year and asks me what I did on the twenty-sixth of Longlight at the fourth hour, I will be able to answer in a form, and the form will be true, and the true form is that a woman who witnesses things watched a line go into a hole in a stone and nothing else happened, and that is the answer and it is the whole of it, and it is not a lie and it is not the whole of the truth and I have decided that a form which is true and not the whole of the truth is the only instrument a keeper of records has and I will not be without it."
 
 "The bench has not voted for it," he said.
 
@@ -140,7 +140,7 @@ Then she did the thing she had said at the fourth hour she would do, in the fili
 
 "Will they let you say it is the whole?" said Aren Kest.
 
-"They will not let me say anything," said Mara Vey. "That is the second half of what I have learned this year and it took me the whole year. **A witness does not get to certify the whole. A witness gets to certify the thing she saw, and the rest of it is somebody else's sentence, and if the somebody else is a Crown's officer then the rest of it is a Crown's, and the only defence a keeper of records has is that her half is exact.**"
+"They will not let me say anything," said Mara Vey. "That is the second half of what I have learned this year and it took me the whole year. A witness does not get to certify the whole. A witness gets to certify the thing she saw, and the rest of it is somebody else's sentence, and if the somebody else is a Crown's officer then the rest of it is a Crown's, and the only defence a keeper of records has is that her half is exact."
 
 ---
 

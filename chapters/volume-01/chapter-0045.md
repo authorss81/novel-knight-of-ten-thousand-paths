@@ -8,13 +8,13 @@ He was in the water for a quarter of an hour.
 
 "How much stone is that?" said the man with the mallet.
 
-"That is the wrong question and you asked it in a good faith and I am going to answer it anyway." He wiped his face. "**It is between four and five tons of stone that is not there any more**, and it is in the river two hundred yards downstream in four places where it will make a bar in a freshet, and the bar will move, and the bar is going to be somebody's problem in about four years and it will not be this bench's and it will be a town's."
+"That is the wrong question and you asked it in a good faith and I am going to answer it anyway." He wiped his face. "It is between four and five tons of stone that is not there any more, and it is in the river two hundred yards downstream in four places where it will make a bar in a freshet, and the bar will move, and the bar is going to be somebody's problem in about four years and it will not be this bench's and it will be a town's."
 
 The boy with the book wrote it down. The foreman of the fourth camp wrote it down. The man with the mallet did not write anything down and stood looking at the water for about a minute and a half.
 
 "You are the best man in this room," he said.
 
-"I have been in the water an hour in nineteen days," said Aren Kest. "That is not being the best man in the room. That is being the only man in the room who has ever put a pole against a scour hole, and I will tell you the difference, and the difference is that I have read forty of them and you have built forty of them, and a man who has read forty of them knows what forty of them look like and a man who has built forty of them knows what forty of them cost. **You know more about this than I do. You know it in the only currency that matters, which is what a thing costs to the people who have to live beside it afterwards.**"
+"I have been in the water an hour in nineteen days," said Aren Kest. "That is not being the best man in the room. That is being the only man in the room who has ever put a pole against a scour hole, and I will tell you the difference, and the difference is that I have read forty of them and you have built forty of them, and a man who has read forty of them knows what forty of them look like and a man who has built forty of them knows what forty of them cost. You know more about this than I do. You know it in the only currency that matters, which is what a thing costs to the people who have to live beside it afterwards."
 
 "And you know what a hole of that size means."
 
@@ -32,13 +32,13 @@ It was the man with the mallet who offered it, in front of the bench, with the c
 
 "You will not," said the man with the mallet, "and I am going to tell you why, and then you can go away and be offended about it in whatever language you brought with you, which I have not asked about and am not going to.
 
-"**A foreign man who cuts setts on the fourth camp is a foreign man on the fourth camp.** In four months every man on that floor will have an opinion about you and so will every woman, and there will be a setts-cutter in this city in nine years who says *my father laid setts with the north one* and there will be another in nine years who says *the north one was here and the camp went cold the winter he was here*, and I do not know which of those is true and neither will they, and both of them will be in a market, and this bench will have to answer for it every time.
+"A foreign man who cuts setts on the fourth camp is a foreign man on the fourth camp. In four months every man on that floor will have an opinion about you and so will every woman, and there will be a setts-cutter in this city in nine years who says *my father laid setts with the north one* and there will be another in nine years who says *the north one was here and the camp went cold the winter he was here*, and I do not know which of those is true and neither will they, and both of them will be in a market, and this bench will have to answer for it every time.
 
-"And there is a worse one and I will say it because you have said harder things about my ring this month than four men in this hall have said in nineteen years. **If you lay our setts and our approach and our fifth bay, then in a year when a stranger from the north comes down that road and asks this bench who built the northern approach, there will be nine men in this room who can point at a man instead of at a book, and a bench is a thing that is pointed at and not a thing that is pointed with.** We have spent eleven years being a thing that is pointed at. Do not make us into something else in four months for eleven marks of stone."
+"And there is a worse one and I will say it because you have said harder things about my ring this month than four men in this hall have said in nineteen years. If you lay our setts and our approach and our fifth bay, then in a year when a stranger from the north comes down that road and asks this bench who built the northern approach, there will be nine men in this room who can point at a man instead of at a book, and a bench is a thing that is pointed at and not a thing that is pointed with. We have spent eleven years being a thing that is pointed at. Do not make us into something else in four months for eleven marks of stone."
 
 "That is the best reason anybody has given me for anything in this book," said Aren Kest, "and I have been given reasons by a marshal."
 
-"I am aware of that and I have thought about it and I have decided that you are the man who is going to say that about this bench, and that if the bench lets that go without answering it then the bench has decided it was a different bench, and this one has not. **Take the setts. We will do it slower.**"
+"I am aware of that and I have thought about it and I have decided that you are the man who is going to say that about this bench, and that if the bench lets that go without answering it then the bench has decided it was a different bench, and this one has not. Take the setts. We will do it slower."
 
 ---
 
@@ -52,7 +52,7 @@ Alis Merrow came and found him at the second hour of the twenty-ninth with the b
 
 He put the bundle of string on the parapet and undid it, and inside it were three leaves in a fair hand, and he turned them so that the stranger from the north could read them, which was against every rule in the room and which he did deliberately.
 
-"The writ of severance released the tolls of the arch to the office of the marshal for the term of the severance. The severance was refused. The writ was withdrawn. **A writ that is withdrawn releases what it tendered.** So the tolls on this arch were let go on the twenty-second of Mudmonth, YR 301, and the pledge to the ninth of a grandson was made in YR 288 against a thing that stopped being ours in YR 301, and every house that put a mark against this arch in the fifteen years after that was lending against nothing.
+"The writ of severance released the tolls of the arch to the office of the marshal for the term of the severance. The severance was refused. The writ was withdrawn. A writ that is withdrawn releases what it tendered. So the tolls on this arch were let go on the twenty-second of Mudmonth, YR 301, and the pledge to the ninth of a grandson was made in YR 288 against a thing that stopped being ours in YR 301, and every house that put a mark against this arch in the fifteen years after that was lending against nothing.
 
 "I have known that for eleven years and I have never once said it in a hall, and I said it to nine men in this hall in YR 312 at the ninth hour, and the man with the mallet worked out the rest of it standing up, and he is right, and nobody has done anything about it since, because a thing that is bad for a creditor is very bad for a city and a city does not go and look for it twice.
 
@@ -60,7 +60,7 @@ He put the bundle of string on the parapet and undid it, and inside it were thre
 
 "And I will tell you what I want, and it is not the north road, and it is not a page, and it is not your name.
 
-"**I want the oath renewed while there is still a city here to renew it to.**"
+"I want the oath renewed while there is still a city here to renew it to."
 
 ---
 
@@ -78,9 +78,9 @@ The bench-clerk read the minute of YR 312, the ninth of Greenmonth, aloud afterw
 
 The bench-clerk read it back in tradesman's words, which he had clearly thought about, because he had been a clerk of this bench for nineteen years and he is the man who always knows what the room is about to misunderstand.
 
-"That the crossing will be held," he said. "That is the whole of it in one sentence, and the other three lines are the reason the first line is not a lie. **The arch will bear. The money of the crossing is the crossing's own. And the stewards of the crossing answer for it, and answer first — meaning that when something goes wrong with this crossing, the first men asked are the men who keep it, and not a bank and not an abbey and not a man four hundred miles away with a letter.**
+"That the crossing will be held," he said. "That is the whole of it in one sentence, and the other three lines are the reason the first line is not a lie. The arch will bear. The money of the crossing is the crossing's own. And the stewards of the crossing answer for it, and answer first — meaning that when something goes wrong with this crossing, the first men asked are the men who keep it, and not a bank and not an abbey and not a man four hundred miles away with a letter.
 
-"That is the oath. It is not a promise about a stone. It has never been a promise about a stone. It is a promise about **who answers**, and this city has understood that for four generations and has had no occasion to test it, because nothing has gone wrong with this crossing since the year my father was born."
+"That is the oath. It is not a promise about a stone. It has never been a promise about a stone. It is a promise about who answers, and this city has understood that for four generations and has had no occasion to test it, because nothing has gone wrong with this crossing since the year my father was born."
 
 Nobody spoke for a length of a slow count of five.
 
@@ -112,7 +112,7 @@ There was no argument about whether to put it up. There was an argument about it
 
 Then, at about the ninth hour of the thirtieth, while the hall was still standing open and the floor was still swept in lines where a hundred and forty people had stood on it, the bench-clerk sat down at the table with the stone in the floor and asked the man with the mallet a question, and asked it in front of the toll-house steward and the ferrywright and the sett-cutter and the man with the mallet, and asked it because there were five of them in the room and a bench is a thing that asks things in rooms with people in them.
 
-"The oath says the stewards of the crossing shall answer for it and shall answer first," he said. "**And who is the steward of this crossing?**"
+"The oath says the stewards of the crossing shall answer for it and shall answer first," he said. "And who is the steward of this crossing?"
 
 The man with the mallet said: "There has not been one since the flood of the second year. The last was a woman named Ock and she is a boat on the north bank. The bench keeps it. The bench has always kept it. That is what a bench is."
 

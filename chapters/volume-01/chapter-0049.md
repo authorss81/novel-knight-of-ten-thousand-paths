@@ -16,7 +16,7 @@ He put his left hand flat on it. It was cold, and there was nothing in it, and h
 
 And then he said the thing out loud on a bridge in a fen county, alone, in daylight, and it is the whole of what happened in that year and it took nine seconds:
 
-"I know what it is. **I know why it opens when it opens.** And there is nobody in this kingdom I could say it to, and I have known that since the nineteenth of Mudmonth, and I have gone on being the best reader of this stone in this county for five months without a single one of them being able to help me, and that is not a mystery any more. That is a **trade**. It is the only trade I have. It is a man who can see a load path, and everything I can do in this county is built on it, and the price of it is that I can never tell anybody why I can do it, and the day I could tell anybody it would stop being a trade and start being a thing I own."
+"I know what it is. I know why it opens when it opens. And there is nobody in this kingdom I could say it to, and I have known that since the nineteenth of Mudmonth, and I have gone on being the best reader of this stone in this county for five months without a single one of them being able to help me, and that is not a mystery any more. That is a trade. It is the only trade I have. It is a man who can see a load path, and everything I can do in this county is built on it, and the price of it is that I can never tell anybody why I can do it, and the day I could tell anybody it would stop being a trade and start being a thing I own."
 
 ---
 
@@ -28,7 +28,7 @@ A bench of nine had voted, on the second of Fallowmonth, while he was under a bl
 
 So the town did not have a road warden who rang a bell. The town had a man whose brother had come down Weir Street on the fourth of Fallowmonth and been watched by four men and a woman with a sheet, and a bench had put a block into a parapet at its own cost, and nobody at all had asked the road warden.
 
-"That is what a legal loss is for," he said to himself, in a lane, with a basket. "Not to be proved wrong. **To be proved wrong by somebody else and to have the somebody else's handwriting on it.**"
+"That is what a legal loss is for," he said to himself, in a lane, with a basket. "Not to be proved wrong. To be proved wrong by somebody else and to have the somebody else's handwriting on it."
 
 The Market Square board had been wiped that morning for the first time in three weeks. The clerk had gone over the top four lines and left the bottom four alone, and the bottom four said what they had said in Fallowmonth, and the fourth of them — *Ask Kest. He knows what the oath is. He has not been here since the twenty-sixth* — had been wiped and re-chalked by a different hand, in a rounder hand, and under it somebody had put a fifth line, and the fifth line was the one that told him the town had changed its mind about him without ever once changing its opinion about him:
 
@@ -40,7 +40,7 @@ Captain Rell came to him on the twelfth, in daylight, in a lane, and did not ask
 
 "I have to tell you three things," said Captain Rell. "They are the last three I am going to tell you in a lane and I am not going to pretend it is anything else. It is three, and they are in a room in a building two hundred miles off, and none of them is about a bell.
 
-"One. **A writ of enquiry into a record office was stamped on the ninth of Rainmonth, returnable the same day, and it has been answered, and the answer is in the spaces and lists nine hundred holdings and one lending dated the twenty-second of Longlight.** I read the endorsement. I was not meant to and I have not got it in a file of my own and I am telling you the date and not the contents because I have decided that I have spent eleven years filling in forms and the one thing I am going to do before I go is leave one fact out of a conversation with a man in a lane.
+"One. A writ of enquiry into a record office was stamped on the ninth of Rainmonth, returnable the same day, and it has been answered, and the answer is in the spaces and lists nine hundred holdings and one lending dated the twenty-second of Longlight. I read the endorsement. I was not meant to and I have not got it in a file of my own and I am telling you the date and not the contents because I have decided that I have spent eleven years filling in forms and the one thing I am going to do before I go is leave one fact out of a conversation with a man in a lane.
 
 "Two. There is a second writ of the same kind, on the reeve's office, and a third went down the county post on Thursday, and I do not know what is on the third, and my sergeant has stopped asking me what is on things and has started telling me what he has not been able to find out, and that is a change in a man of forty-four and I do not have a word for it.
 
@@ -60,7 +60,7 @@ Aren Kest said no to it in about four seconds.
 
 He said no to the schedule. The schedule of the season's inspections, forty-one structures, a penny a mile and a shilling a day and the county's cart, taken last year by a man who signed his name in a column headed *Keeper* forty-one times.
 
-He took the post. **The copying post at three shillings a week in the county survey office, initialling Crown returns, which he had refused flat in Longlight and had said out loud in a gateway that he would refuse again in a year and had then bought two marks and three quarters of answer in.**
+He took the post. The copying post at three shillings a week in the county survey office, initialling Crown returns, which he had refused flat in Longlight and had said out loud in a gateway that he would refuse again in a year and had then bought two marks and three quarters of answer in.
 
 The reason was the same reason as the year before, and it was not the same reason, and he wrote it out in the yard's book and in the guild's roll and in a copy to the county surveyor, and dated it, and it is four lines and it is the single most useful thing he did in the year:
 
@@ -70,9 +70,9 @@ The reason was the same reason as the year before, and it was not the same reaso
 
 *And now: a schedule is forty-one more lines in a book two hundred miles off with his name in a column, in the fourth month of the year in which his name is in a claim's schedule of holdings on a separate sheet with a separate number, and a keeper of that office has told him in a filing room that the separate number is the only reason he is not a party, and he has taken that on the word of a woman who has never once been wrong about that office and he has not verified it and he cannot, because the thing it is about is in a building two hundred miles away and the woman is right and he is not able to check her.*
 
-*So: he refuses the column and takes the office. **He is not refusing a Crown's money out of principle. He is a man with a road-marked palm and a sister in a claim in a county file and no office at all, and a man with no office is a man nothing can be asked of, and he has been nothing that could be asked of for eleven years, and there is a form in this county with a column for exactly that.**
+*So: he refuses the column and takes the office. He is not refusing a Crown's money out of principle. He is a man with a road-marked palm and a sister in a claim in a county file and no office at all, and a man with no office is a man nothing can be asked of, and he has been nothing that could be asked of for eleven years, and there is a form in this county with a column for exactly that.
 
-*And the difference between this year and Longlight, and it is the whole of the difference: **he has taken one Crown job and not two.** In Longlight he took one and refused two. In Fallowmonth he takes one and refuses one, and refuses the one that has a column, and takes the one that has a wage, and the reason he has not refused both is written in the yard's book and it is that a man who takes no Crown money at all in a county of this size in the fourth month of a year in which the Crown has put a writ on a record office is a man who is being given no work in order to be visible, and being visible is a thing that works in one direction only.*
+*And the difference between this year and Longlight, and it is the whole of the difference: he has taken one Crown job and not two. In Longlight he took one and refused two. In Fallowmonth he takes one and refuses one, and refuses the one that has a column, and takes the one that has a wage, and the reason he has not refused both is written in the yard's book and it is that a man who takes no Crown money at all in a county of this size in the fourth month of a year in which the Crown has put a writ on a record office is a man who is being given no work in order to be visible, and being visible is a thing that works in one direction only.*
 
 "A post is a cage," said the man in the provincial coat, in the gateway, "and I would like you to understand that I am telling you that as a man who has watched six men take that post in nine years and four of them stopped coming in and one of them was a good clerk and one of them was a fool."
 
@@ -84,13 +84,13 @@ The bench had to be asked to do it twice.
 
 That came on the twenty-first, at the ninth hour, in the long room over the wharf, and it was not an argument; it was the reeve reading four lines out of a book and a man in a chair saying that the thing could not be done and cannot be got round.
 
-The Old Toll crossing's maintenance is three marks and about six the campaign, twice a year, **seven marks and no farthing.** What goes in the book is four marks and six a year.
+The Old Toll crossing's maintenance is three marks and about six the campaign, twice a year, seven marks and no farthing. What goes in the book is four marks and six a year.
 
 The bench had carried the second visit on the second of Fallowmonth against three marks and about six with two marks in the chest, and it had carried it because a bench that stops carrying a thing in the middle of the year has stopped being a bench and started being a place where things were once done, and the yard has about a fortnight and a half left in it and it is spoken for, and a factor's stone contract is finished and a county town's yard wall is going slow and will be finished about a week before the water is at the low of the year, and the fourth pier's iron shoes are in a dead man's cart behind the mill.
 
 "So we are asking a bench to spend seven marks," said the reeve, "out of two shillings, in the fourth month of a year, in a town that has lost its wharfage and its market and its tolls, and I have costed the loss of the wharfage and the market at four or five marks a year and a market day and I am not going to say it a fourth time in this room. I record only that the same bench has been asked twice and has voted twice and the second time it did not have the money and the first time it did not know the question."
 
-"And the question is now known," said the man in the chair, "because there is a hole in a bridge in this town. Not a crack in a pier four hundred miles off. **A hole in a bridge in this town, with the deck open on both ends and the closure taken on the second of Fallowmonth at about the fifth hour by a stranger who is not the bench, and about four hundred people saw it, and there is no money to mend it and there is a bench of nine that has been keeping four hundred yards of the oldest bridge in the county at four marks and six a year out of its own chest for four months.**"
+"And the question is now known," said the man in the chair, "because there is a hole in a bridge in this town. Not a crack in a pier four hundred miles off. A hole in a bridge in this town, with the deck open on both ends and the closure taken on the second of Fallowmonth at about the fifth hour by a stranger who is not the bench, and about four hundred people saw it, and there is no money to mend it and there is a bench of nine that has been keeping four hundred yards of the oldest bridge in the county at four marks and six a year out of its own chest for four months."
 
 "And that is the second time," said the reeve, "and the honest sentence is that the second time is more honest than the first, and that a bench that keeps asking to be asked is a bench that has understood something and I would like somebody to enter that it is the first time I have thought that of this room."
 
@@ -110,7 +110,7 @@ He read it back.
 
 Then he put his left hand flat on the table, palm up, in a filing room over a salt merchant, in front of two people, which he had not done in front of anybody in eleven years, and he said:
 
-"**I have crossed three times. I am not going to tell you why and I could not tell you if I tried, and there is nobody in this kingdom I could tell and I have looked, and looking took me two days and I did it in a lane like a man looking for a job.**
+"I have crossed three times. I am not going to tell you why and I could not tell you if I tried, and there is nobody in this kingdom I could tell and I have looked, and looking took me two days and I did it in a lane like a man looking for a job.
 
 "And here is what I have instead of a reason. On the second of Fallowmonth I came up out of that sill at a quarter to six in the morning and I put my hand on it and it was warm, and it has been warm three times in five months and it has never once been warm in Mudmonth, and I know the month it is in and I know the hour. I could not tell you what I know. I can tell you that I know it."
 
@@ -124,7 +124,7 @@ She did not ask him anything. She wrote, in the fair hand, on the sheet, with th
 
 *And that this office is not going to ask him again, and that if he wants to tell her anything else he will come up the stair, and that she will not ask, and that the not asking is entered so that in eleven years nobody is able to say that she extracted it out of a man who was ill.*
 
-*And that this office is going to ask him one thing, in a room, on the record, and that she is asking it now, and the thing is: **if it costs you something every time, and it costs more the better you get at it, then who pays it, and is the answer still you?**"
+*And that this office is going to ask him one thing, in a room, on the record, and that she is asking it now, and the thing is: if it costs you something every time, and it costs more the better you get at it, then who pays it, and is the answer still you?"
 
 He thought about it for a while.
 
@@ -138,7 +138,7 @@ He did not tell anybody else, and there is a line in a notebook in a coat on the
 
 *I am not going to tell anybody else and the reason is not trust. It is that a stage is a thing you qualify for and there is no room in this county in which to qualify for anything, and a man who tells six people in a market that he can cross will be a man with a reputation for it inside a month and a keeper of nothing by the spring, and by the spring I want to be a man who is on a contract at a yard rate and can be sent for and can be held to and has a page in three books and no name in a column.*
 
-*And the other reason, which is the real one, and it is that it would be a speech. Everything I have ever been given for it is a speech. I have had four of them in eleven years and three of them were from men in rooms and the fourth was eleven hundred words in a letter and it was the kindest one and it cost a valley. **I am not going to be the fifth.** If this is ever to be anything other than a thing I can do, then somebody else is going to have to hold it, and a man cannot arrange that by telling people he is good at it.*
+*And the other reason, which is the real one, and it is that it would be a speech. Everything I have ever been given for it is a speech. I have had four of them in eleven years and three of them were from men in rooms and the fourth was eleven hundred words in a letter and it was the kindest one and it cost a valley. I am not going to be the fifth. If this is ever to be anything other than a thing I can do, then somebody else is going to have to hold it, and a man cannot arrange that by telling people he is good at it.*
 
 ---
 

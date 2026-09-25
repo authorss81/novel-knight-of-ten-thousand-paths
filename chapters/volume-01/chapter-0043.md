@@ -18,7 +18,7 @@ The ninth space on the ninth of Longlight's form had been *the authority on whic
 
 The eighth space had been *items received after the date of this writ*, and the answer to it was the hardest one on the page and it took two of the four days, and it is the reason this chapter is about what it is about.
 
-In thirty days a keeper of records receives things. That is the whole of what a record office does; it is what the door is for. And in thirty days she could not move, copy out, or part with anything she held, and so every single thing that came up those stairs between the second hour of the ninth of Longlight and the second hour of the ninth of Rainmonth had to be **received and held and entered and not disposed of**, and a thing received and held and not disposed of is a thing a keeper has a key to and no authority over, and she wrote that down and it is the sentence she has since repeated more often than any other in her life:
+In thirty days a keeper of records receives things. That is the whole of what a record office does; it is what the door is for. And in thirty days she could not move, copy out, or part with anything she held, and so every single thing that came up those stairs between the second hour of the ninth of Longlight and the second hour of the ninth of Rainmonth had to be received and held and entered and not disposed of, and a thing received and held and not disposed of is a thing a keeper has a key to and no authority over, and she wrote that down and it is the sentence she has since repeated more often than any other in her life:
 
 *That during the pendency of the enquiry this office received items and held them and entered them, and did not move, copy out, or part with any of them, and that the receiving of an item is not a holding of it in the sense the writ uses, and that this office is aware of no authority in this county by which a keeper may refuse a thing that is brought up a stair, and has not refused one, and would not know how.*
 
@@ -30,7 +30,7 @@ One of them was a fishing-net weight with a name cut into the eye of it, which i
 
 One was a sheet of paper in a child's hand, folded four times, brought by a schoolmistress's daughter, and the paper said a name and a date and nothing else, and there was no way to know whether the name belonged to this matter at all, and it went in on the same terms as everything else and it was entered and it is still entered and nobody has been able to do one single thing with it.
 
-And two of them were **lendings**, which is a thing this office does and which the office has to do because a record held by one keeper is a favour, and the first was on the twenty-second of Longlight at the fourth hour of the afternoon, when a tradesman of Weir Street walked up that stair and left a bundle of eleven sheets with a man of sixty-one and put seven lines into a creditor's roll in his own hand, and the second was on the twenty-sixth of Longlight, at the fourth hour, and it was a man with a bar on his shoulder and a line in his voice and there was nothing in the room about a bell.
+And two of them were lendings, which is a thing this office does and which the office has to do because a record held by one keeper is a favour, and the first was on the twenty-second of Longlight at the fourth hour of the afternoon, when a tradesman of Weir Street walked up that stair and left a bundle of eleven sheets with a man of sixty-one and put seven lines into a creditor's roll in his own hand, and the second was on the twenty-sixth of Longlight, at the fourth hour, and it was a man with a bar on his shoulder and a line in his voice and there was nothing in the room about a bell.
 
 And she listed both. That was the cost.
 
@@ -46,7 +46,7 @@ She had known it would, from the fourth hour of the afternoon of the twenty-seco
 
 The other form came on the first of Fallowmonth.
 
-It came in the same tube as a county clerk's copy of a minute of a county council, which is what a tube is for, and it was two leaves and it was not sealed, and it was not a writ, and it had no returnable date on it, and the thing that made Mara Vey put it at the top of the table and not the bottom was that it was **polite.**
+It came in the same tube as a county clerk's copy of a minute of a county council, which is what a tube is for, and it was two leaves and it was not sealed, and it was not a writ, and it had no returnable date on it, and the thing that made Mara Vey put it at the top of the table and not the bottom was that it was polite.
 
 *To the keeper of the Bellweather Claims Archive.*
 
@@ -64,7 +64,7 @@ It was headed *Keeper*, and the column was ruled on every line, and it was ruled
 
 Sarn Oyelaran read it over her shoulder and said, "They have got the word from the schedule."
 
-"They have got the word from the county's own schedule of inspections," said Mara Vey. "There is a form in that county with a ruled column headed *Keeper* on every line, and a man's name went into it forty-one times in Longlight, and somebody in a provincial office read the heading off the form and never once read the line under it. **They are not asking me who I am. They are asking who I keep.** That is a different question and it has been sitting in that file since the second of Longlight and it has just walked out of it and into my building with a form."
+"They have got the word from the county's own schedule of inspections," said Mara Vey. "There is a form in that county with a ruled column headed *Keeper* on every line, and a man's name went into it forty-one times in Longlight, and somebody in a provincial office read the heading off the form and never once read the line under it. They are not asking me who I am. They are asking who I keep. That is a different question and it has been sitting in that file since the second of Longlight and it has just walked out of it and into my building with a form."
 
 "Are we going to answer it."
 
@@ -90,23 +90,23 @@ She took a clean sheet of the office's own paper and wrote in the fair hand, and
 
 The not-writing is the second of Fallowmonth and it is the only thing in six days that this office has ever put on its own account twice.
 
-On the second of Fallowmonth, at about the ninth hour, there is a wall in that filing room with a rule on it in a fair hand, and the second rule is: **no combined figure is entered in this office.** And under the counter, in a locked drawer, in a wrapper, there is the thing the rule exists for.
+On the second of Fallowmonth, at about the ninth hour, there is a wall in that filing room with a rule on it in a fair hand, and the second rule is: no combined figure is entered in this office. And under the counter, in a locked drawer, in a wrapper, there is the thing the rule exists for.
 
-Ferris Oat's **brine weights**: thirty-one days of salt weights at Saltbrim, the weighmaster's own arithmetic intact, four figures to a day and the day's tonnage under them, and the arithmetic adds up, and it cannot be argued with, because a weight is not an opinion.
+Ferris Oat's brine weights: thirty-one days of salt weights at Saltbrim, the weighmaster's own arithmetic intact, four figures to a day and the day's tonnage under them, and the arithmetic adds up, and it cannot be argued with, because a weight is not an opinion.
 
-It is in that building. It has been in that building for four years. It is **cited** in this office in eleven documents and in a magistrate's finding and in a claim and it is **not filed**, and it is not an exhibit, and it has not been an exhibit since the sixth of Mudmonth, and the reason it is not an exhibit is written on the wrapper in Sarn Oyelaran's hand and it is a line about an order, and it is a good line and it is the reason a roll of the dead has not been built.
+It is in that building. It has been in that building for four years. It is cited in this office in eleven documents and in a magistrate's finding and in a claim and it is not filed, and it is not an exhibit, and it has not been an exhibit since the sixth of Mudmonth, and the reason it is not an exhibit is written on the wrapper in Sarn Oyelaran's hand and it is a line about an order, and it is a good line and it is the reason a roll of the dead has not been built.
 
 And on the second of Fallowmonth, at the ninth hour, with a writ running against her and a form with a column on it for names in a drawer in a building two hundred miles off and a schedule of nine hundred holdings in four columns on a table by the window, Mara Vey sat down and worked out, for about four minutes, what the roll would be.
 
 It is not a hard thing to do. That is what nobody understands about it. It is four days of reading and one afternoon of arithmetic, and the arithmetic is already done, because Ferris Oat did it in YR 301 with a steelyard and a slate and no idea of what he was for.
 
-Eighty-one days of a market town's salt, weighed and carried and delivered, and every day of it with the number of loads and the number of households that a load went to, because a weighmaster in a salt town writes the load and not the soul and that is why his book cannot be argued with. **A city eats about this much salt in a month.** A village of two hundred people eats about this much in six weeks. And a low quarter where the people were already ill eats more than a low quarter where they were not, because salt is what you give a person with a fever, and there is a figure for that too and Ferris Oat has it in the third column of the fourth week, and it is the only line in the four hundred years of that office's books that anybody has ever wanted, and it wants the house, not the hearth.
+Eighty-one days of a market town's salt, weighed and carried and delivered, and every day of it with the number of loads and the number of households that a load went to, because a weighmaster in a salt town writes the load and not the soul and that is why his book cannot be argued with. A city eats about this much salt in a month. A village of two hundred people eats about this much in six weeks. And a low quarter where the people were already ill eats more than a low quarter where they were not, because salt is what you give a person with a fever, and there is a figure for that too and Ferris Oat has it in the third column of the fourth week, and it is the only line in the four hundred years of that office's books that anybody has ever wanted, and it wants the house, not the hearth.
 
 Put the thirty-one days against the eight places and a man can produce a number for each, and the numbers will be worse than the Crown's and better than anybody's, and every one of them will be a figure about weight.
 
 And then the names go in beside the numbers. And a roll of the dead built out of a weighmaster's ledger, entered in the order of the ledger, with the weights standing beside the names, is a document that can only be checked, and cannot be argued with, and cannot be improved, and cannot be got to change in a room.
 
-**It is the best document this office has ever been in a position to make. It is four years of work. It is the reason the office exists.**
+It is the best document this office has ever been in a position to make. It is four years of work. It is the reason the office exists.
 
 And on the second of Fallowmonth, at the ninth hour, with a return of nine hundred words half written and a form with a column for names in a drawer and a man under an arch four days off, she got out the office's own paper, and wrote the heading, and wrote for about eleven minutes, and it is a page in the day-book with no claim number on it and no press reference, because it is not a record and it has not been entered and never will be.
 
@@ -132,7 +132,7 @@ On the tenth of Longlight she had sent a certified copy of this office's own ins
 
 The man in the toll-house was a creditor, and a creditor has a chest, and a chest is a thing that is shut, and a shut thing in a town where the Crown's man has a commendation nailed to his own wall is a thing that will be opened in a year by a man with a form.
 
-The second thing went to **Tovan Kest**, at the fourth hour of the first of Fallowmonth, and it was the writ itself — a true copy of the instrument of the ninth of Longlight, all of it, the recital, the paragraphs, the stamped hour, and the bar — and she sent it in a plain wrapper with no seal on it at all, and she walked it down Weir Street herself with Sarn Oyelaran behind her, because the first time she had sent a boy up a stair with a thing in it the boy had come back with it in his hand.
+The second thing went to Tovan Kest, at the fourth hour of the first of Fallowmonth, and it was the writ itself — a true copy of the instrument of the ninth of Longlight, all of it, the recital, the paragraphs, the stamped hour, and the bar — and she sent it in a plain wrapper with no seal on it at all, and she walked it down Weir Street herself with Sarn Oyelaran behind her, because the first time she had sent a boy up a stair with a thing in it the boy had come back with it in his hand.
 
 He read it standing at a trestle with four men and the iron going, and he read it twice, and he gave it back, and said the thing about it that she had walked down the street to hear.
 
@@ -150,7 +150,7 @@ He read it standing at a trestle with four men and the iron going, and he read i
 
 "You have it in a page and you have come down here to say it out loud in a gateway, and I am going to say it out loud too, because you are right and because you came." He put the copy of the writ down on the trestle and squared it. "And here is what it costs, and I want it written down somewhere with an hour on it even though you will not write it in your book.
 
-"**A piece of Crown paper in this yard is a piece of Crown paper in this yard.** It is shut, and it is on a shelf, and a Crown's man can come into this gateway and put a hand on that shelf, and he can do it without a court, because there is no officer of this county with authority to ask me, and if he takes it off the shelf and goes up Weir Street with it, then in a year the Crown has a copy of its own writ in a carpenter's yard in a town where four men know where it is and two of them are mine. And that is the *best case*. The other one is that a man takes it off the shelf, and the Crown has in its file that a person in Merefen has concealed a document — and it does not matter that the document is the Crown's own, and it will not matter, and I will be a man who kept a Crown paper in a yard for a month because a woman he does not like came down the street and asked him to."
+"A piece of Crown paper in this yard is a piece of Crown paper in this yard. It is shut, and it is on a shelf, and a Crown's man can come into this gateway and put a hand on that shelf, and he can do it without a court, because there is no officer of this county with authority to ask me, and if he takes it off the shelf and goes up Weir Street with it, then in a year the Crown has a copy of its own writ in a carpenter's yard in a town where four men know where it is and two of them are mine. And that is the *best case*. The other one is that a man takes it off the shelf, and the Crown has in its file that a person in Merefen has concealed a document — and it does not matter that the document is the Crown's own, and it will not matter, and I will be a man who kept a Crown paper in a yard for a month because a woman he does not like came down the street and asked him to."
 
 "Does that change it."
 
@@ -164,7 +164,7 @@ The tube went back down the county road on the second of Fallowmonth at the firs
 
 Sarn Oyelaran tied it and Mara Vey counted the leaves and put her thumb on the knot the way she always did, and then she stood at the window in the dark for a while after the lamp had gone down the road, doing the thing she does, which is what it is she does.
 
-Because on the first of Fallowmonth, in the same tube, in a clerk's hand, there had also been a **second writ of enquiry into the custody of records**, and it had been stamped on the twenty-ninth of Longlight at the second hour, three days after hers, and it was addressed to **the office of the reeve of Merefen**, and it used the same form, and it named the same object, and it did not have a returnable date on it because it was returnable on the ninth of Rainmonth as well.
+Because on the first of Fallowmonth, in the same tube, in a clerk's hand, there had also been a second writ of enquiry into the custody of records, and it had been stamped on the twenty-ninth of Longlight at the second hour, three days after hers, and it was addressed to the office of the reeve of Merefen, and it used the same form, and it named the same object, and it did not have a returnable date on it because it was returnable on the ninth of Rainmonth as well.
 
 Two in the same tube, three days apart, on the same paper, from the same office, in the same matter.
 

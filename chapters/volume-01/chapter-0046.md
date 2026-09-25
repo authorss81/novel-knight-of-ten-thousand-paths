@@ -16,7 +16,7 @@ It went to no person. It was addressed *to the city of Bellweather, and to any p
 
 Sarn Oyelaran read it back and initialled the copy and said, without being asked, "That is the best paragraph of English I have ever copied and it is a list."
 
-"It is a list," said Mara Vey. "That is what it is for. **I have spent the whole of this year refusing to write a motive and I am not going to start in a paper that is going into another world, because a motive is a thing a clerk can be got to change and a list cannot.** When it comes back there will be a thing in it or there will not be, and either way it will be a thing I can read out in a room."
+"It is a list," said Mara Vey. "That is what it is for. I have spent the whole of this year refusing to write a motive and I am not going to start in a paper that is going into another world, because a motive is a thing a clerk can be got to change and a list cannot. When it comes back there will be a thing in it or there will not be, and either way it will be a thing I can read out in a room."
 
 ---
 
@@ -42,15 +42,15 @@ And Aren Kest was on the deck with his left hand on a dressed block in the fourt
 
 The specification's eighth line said: *that a seat so cut will be used and will fail, and that the number of uses is not stated here, because it is not a thing this bench may know.*
 
-**It had been used once, at the fourth hour of the afternoon of the twenty-sixth of Longlight, by this man, going the other way, and it was the second of three and there is no third, and the man who cut the glass told him so in his own hand on a page he would not charge for and he has carried the number about since Greenmonth and told a bench of nine rather than keep it to himself.**
+It had been used once, at the fourth hour of the afternoon of the twenty-sixth of Longlight, by this man, going the other way, and it was the second of three and there is no third, and the man who cut the glass told him so in his own hand on a page he would not charge for and he has carried the number about since Greenmonth and told a bench of nine rather than keep it to himself.
 
 ---
 
 He did not go through the glass. There was no glass. The last of the two discs had been used twice and had cracked a bed of lime in the fourth course and been prised out and carted away by a man in a wagon in Greenmonth who told Tovan Kest it was broken and Tovan Kest had believed him because it was broken.
 
-What came through on the first of Fallowmonth was a **line**, and two ends of it, and the whole of the trade in it.
+What came through on the first of Fallowmonth was a line, and two ends of it, and the whole of the trade in it.
 
-Tovan Kest had the near end. A hand on the far end of a line cannot be in two places, and if the hand at the far end is not there the line comes slack and the road does not open, and it does not fail and it does not tear and it simply does not open, which is the best kind of not opening there is. That is the whole of a stitch. Not a hole in a stone. **A hand, at each end, on a day, with a length of line between them, and the day in a book at both ends and a person against it.**
+Tovan Kest had the near end. A hand on the far end of a line cannot be in two places, and if the hand at the far end is not there the line comes slack and the road does not open, and it does not fail and it does not tear and it simply does not open, which is the best kind of not opening there is. That is the whole of a stitch. Not a hole in a stone. A hand, at each end, on a day, with a length of line between them, and the day in a book at both ends and a person against it.
 
 Four and a half seconds. He felt it in the back of the left hand before the glove and he counted them, and on the fourth second somebody's voice came up out of the air on the north side, very close, in a trade's flat register, saying a name he had not heard in six months and twenty days.
 
@@ -60,7 +60,7 @@ Four and a half seconds. He felt it in the back of the left hand before the glov
 
 ---
 
-It came through in a wrapper of oiled linen with a cord and a wax that was not a Crown's wax and had a device on it that was **a boat with a rope in it**, and it was the size of a folded shirt and it was heavier than that.
+It came through in a wrapper of oiled linen with a cord and a wax that was not a Crown's wax and had a device on it that was a boat with a rope in it, and it was the size of a folded shirt and it was heavier than that.
 
 The four conditions were on the outside of the wrapper, in a fair hand, in a clerk's hand, and the hand was not the hand of the person who wrote the arrest.
 
@@ -100,7 +100,7 @@ Mara Vey read it twice on a bridge deck and gave it back to the ferrywright, who
 
 "You have a name in your hand," said Sera Quen.
 
-"I have had a name in my hand once before in a room with two of your clerks in it," said Mara Vey, "and I said it out loud, and the man with the mallet read it out in a hall, and a clerk in a county town two hundred miles from here read a particular off a wrapper in Greenmonth and wrote the words* the marshal's emergency office *into a file of the superior court, and that is how a Crown's writ of enquiry into a record office got issued in Longlight. **So the name has been in a file in this country for five months and nobody in it knew where it came from, and this afternoon it has come out of a city that does not admit to the Crown that it exists, and it has come out through a line and two hands, and in about a year somebody in a provincial office is going to put those two facts side by side on a table and it will be the best day of his life and it will be the worst day of mine.**"
+"I have had a name in my hand once before in a room with two of your clerks in it," said Mara Vey, "and I said it out loud, and the man with the mallet read it out in a hall, and a clerk in a county town two hundred miles from here read a particular off a wrapper in Greenmonth and wrote the words* the marshal's emergency office *into a file of the superior court, and that is how a Crown's writ of enquiry into a record office got issued in Longlight. So the name has been in a file in this country for five months and nobody in it knew where it came from, and this afternoon it has come out of a city that does not admit to the Crown that it exists, and it has come out through a line and two hands, and in about a year somebody in a provincial office is going to put those two facts side by side on a table and it will be the best day of his life and it will be the worst day of mine."
 
 "Then it should not have come," said the ferrywright.
 
@@ -108,17 +108,17 @@ Mara Vey read it twice on a bridge deck and gave it back to the ferrywright, who
 
 Sera Quen looked at her for a moment.
 
-"Four minutes is quick," she said, "and I have known you eleven weeks and you have been in my city twice and you have never once told me a thing I did not already know, and the last of that was six months ago and it was a bench order with a date on it, and I wrote the date in a book on the north bank and I wrote *not here* under it, in a book, in a hand, with the hour, because that is what a road is. **You are not the mechanism.** I told a hall eleven weeks ago that the north does not get to decide what the road is for, and I have not said a word about it since, and the reason I have not said a word about it since is that there has been nothing to say, and today there was a list of four documents from a county clerk's refusal and a page with a name on it, and neither of them is about my city, and both of them are the answer to a question, and I would have been ashamed to have answered it out of anything but a schedule and two hands and a person at each end."
+"Four minutes is quick," she said, "and I have known you eleven weeks and you have been in my city twice and you have never once told me a thing I did not already know, and the last of that was six months ago and it was a bench order with a date on it, and I wrote the date in a book on the north bank and I wrote *not here* under it, in a book, in a hand, with the hour, because that is what a road is. You are not the mechanism. I told a hall eleven weeks ago that the north does not get to decide what the road is for, and I have not said a word about it since, and the reason I have not said a word about it since is that there has been nothing to say, and today there was a list of four documents from a county clerk's refusal and a page with a name on it, and neither of them is about my city, and both of them are the answer to a question, and I would have been ashamed to have answered it out of anything but a schedule and two hands and a person at each end."
 
 She took the line up off the coping where Tovan Kest had it and did not let go of it, and looked north, and the arch was not there and the north bank was not there and the air was ordinary air on a Wednesday afternoon on a bridge in a fen county with the tide out.
 
-"We have to have another one," she said. "Not this. **Another one, on a day, with a date on it, and both ends written down before anybody moves.** And you will have a steward at your end and I will have a steward at mine and a witness at each end who is not the steward, and if the witness at my end is not here on the day then the road does not open, and it does not fail. It does not open. Do you understand that?"
+"We have to have another one," she said. "Not this. Another one, on a day, with a date on it, and both ends written down before anybody moves. And you will have a steward at your end and I will have a steward at mine and a witness at each end who is not the steward, and if the witness at my end is not here on the day then the road does not open, and it does not fail. It does not open. Do you understand that?"
 
 "I do."
 
 "Then say it back to me," said Sera Quen, "because you are the man who cut the seat in the stone and I am the woman who keeps the road, and the difference between those two facts is the entire of what has gone wrong in this business for eleven years, and I am not going to have it go wrong in a line."
 
-"I did not open the road," said Aren Kest. "The road opened because four men of a bench in a fen county cut a block into a parapet and paid for it out of a chest with two marks in it, and a carpenter held one end of a line and you held the other, and I was in the middle of it with my hand on a stone doing nothing at all. **I translated. That is the whole of what I am for and it took me six months and twenty days and a third of three to find out.**"
+"I did not open the road," said Aren Kest. "The road opened because four men of a bench in a fen county cut a block into a parapet and paid for it out of a chest with two marks in it, and a carpenter held one end of a line and you held the other, and I was in the middle of it with my hand on a stone doing nothing at all. I translated. That is the whole of what I am for and it took me six months and twenty days and a third of three to find out."
 
 And the woman who keeps that road wrote it in the book on the north bank that evening, in a living hand, with the hour, and it is the second entry under a date that has been blank for eleven years, and the entry says:
 

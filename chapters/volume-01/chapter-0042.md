@@ -42,15 +42,15 @@ He put the book down and put both hands flat on it, one on each side, the way a 
 
 He squared the book up, turned the leaves back the other way, and put his finger on the head of the first column.
 
-"The mark is taken twice a year and I will tell you why the two are different, because I have looked at it and you have not, and this is the trade's part and the trade's part is the only part I am entitled to in a room I do not own. **A ring stone opens in the cold and shuts in the warmth.** That is not a defect. That is what stone does when it has stood in a river for a hundred and forty years, and it is why your bench marks it at the two low waters and not at the two high ones. Your Longlight marking is the cold one, because Longlight is the end of the year in this valley and the ring stands open in the cold. Your Rainmonth marking is the warm one, because Rainmonth is the other low water and it is mild here, which I did not expect and learned in about a minute.
+"The mark is taken twice a year and I will tell you why the two are different, because I have looked at it and you have not, and this is the trade's part and the trade's part is the only part I am entitled to in a room I do not own. A ring stone opens in the cold and shuts in the warmth. That is not a defect. That is what stone does when it has stood in a river for a hundred and forty years, and it is why your bench marks it at the two low waters and not at the two high ones. Your Longlight marking is the cold one, because Longlight is the end of the year in this valley and the ring stands open in the cold. Your Rainmonth marking is the warm one, because Rainmonth is the other low water and it is mild here, which I did not expect and learned in about a minute.
 
-"So there have always been two numbers for that ring. Every Longlight in that book is bigger than every Rainmonth in it, and the gap between the two is two tenths in most years and three in one of them, and **the gap is the winter.**"
+"So there have always been two numbers for that ring. Every Longlight in that book is bigger than every Rainmonth in it, and the gap between the two is two tenths in most years and three in one of them, and the gap is the winter."
 
 ---
 
 He said what it was, and he said it in the fewest words he could find.
 
-"Your cold readings are the six Longlight entries and your warm readings are the seven Rainmonth entries, and the arithmetic of both sets is short. The cold set has gone from eight and three tenths to eight, which is three tenths of an inch in eighteen years. The warm set has gone from eight and one tenth to eight, which is an eighth of an inch. **Three tenths in eighteen years is a fifth of an inch in three years, and a fifth of an inch in three years is not a crack going anywhere. It is stone being stone, and on the whole of the twenty-four numbers on that page it is the only thing anybody can say.**
+"Your cold readings are the six Longlight entries and your warm readings are the seven Rainmonth entries, and the arithmetic of both sets is short. The cold set has gone from eight and three tenths to eight, which is three tenths of an inch in eighteen years. The warm set has gone from eight and one tenth to eight, which is an eighth of an inch. Three tenths in eighteen years is a fifth of an inch in three years, and a fifth of an inch in three years is not a crack going anywhere. It is stone being stone, and on the whole of the twenty-four numbers on that page it is the only thing anybody can say.
 
 "And the whole of that page is between eight and eight and three tenths. The largest number ever written in that book in nineteen years is eight and three tenths, and it is in the hand of a man who died in YR 308.
 
@@ -60,11 +60,11 @@ The man with the mallet had come in while he was saying it and stood at the end 
 
 "Eight," he said. "Say that again and say it slower."
 
-"Eight, at the fourth hour, at the lowest water, in the cold. And eight and one tenth in the cold the year before. And eight and one tenth in the warmth the year before that, and eight and two tenths in the warmth the year before that. **The whole of the twenty-four is between eight and eight and three tenths, and the difference between the two sets in any year is two tenths, and the two tenths is the winter.**"
+"Eight, at the fourth hour, at the lowest water, in the cold. And eight and one tenth in the cold the year before. And eight and one tenth in the warmth the year before that, and eight and two tenths in the warmth the year before that. The whole of the twenty-four is between eight and eight and three tenths, and the difference between the two sets in any year is two tenths, and the two tenths is the winter."
 
 "Six years," said the bench-clerk. "We have a figure for it after six years, and the figure is the winter, and I have a bench order on that stone and I have obeyed it since the year my boy was born."
 
-"Then your order is right and your book is wrong," said Aren Kest, "and the second one is nobody's fault and the first one is nobody's doing, and a bench that has kept a mark for six years without once reading the two sets against each other is not a bench that has been careless. **It is a bench that never had a reason to.** There has been no second pier in this city in eleven years. The marking is the oldest thing in the hall and it is the only thing in the hall that nobody has ever had to make a decision with."
+"Then your order is right and your book is wrong," said Aren Kest, "and the second one is nobody's fault and the first one is nobody's doing, and a bench that has kept a mark for six years without once reading the two sets against each other is not a bench that has been careless. It is a bench that never had a reason to. There has been no second pier in this city in eleven years. The marking is the oldest thing in the hall and it is the only thing in the hall that nobody has ever had to make a decision with."
 
 And then, because he was the best man in the room and the room knew it, and because a man who is the best man in a room has about four minutes in which anything he says is worth twice what it will be worth later, he said the other thing, and he said it before anybody had thought to ask.
 
@@ -76,7 +76,7 @@ The bench-clerk's pen came off the page.
 
 "Three inches. In a year."
 
-"That is not a mark on a ring. **That is a foundation.** I have seen one go three inches in a year and I have seen the year after that. A ring on a second pier does not do three inches in a year, because the stone is sound and it is four hundred years old and it is not carrying anything it was not carrying in the year it was built. **Three inches is not a ring. Three inches is a man on a tower with a sight-line and a bad rule, or a man in a tap-room with a bad memory, or a different bridge.**"
+"That is not a mark on a ring. That is a foundation. I have seen one go three inches in a year and I have seen the year after that. A ring on a second pier does not do three inches in a year, because the stone is sound and it is four hundred years old and it is not carrying anything it was not carrying in the year it was built. Three inches is not a ring. Three inches is a man on a tower with a sight-line and a bad rule, or a man in a tap-room with a bad memory, or a different bridge."
 
 "You have just said it in a room and you have said it about a mark in my country that you have never seen."
 
@@ -92,7 +92,7 @@ He did it in an hour. That is the part nobody in this city would believe afterwa
 
 And at the lowest water of the year, with the river out of the way, there is a hole on the river side of that shelf.
 
-Not a crack. A **scour**: a bowl about four feet across and about two feet deep at the deepest, with its lip soft and undercut on the north side and the gravel out of it gone down to bed, and eleven feet of it under the pier's footing that nobody had seen in eleven years, because in eleven years nobody had been in the water at the lowest water of the year.
+Not a crack. A scour: a bowl about four feet across and about two feet deep at the deepest, with its lip soft and undercut on the north side and the gravel out of it gone down to bed, and eleven feet of it under the pier's footing that nobody had seen in eleven years, because in eleven years nobody had been in the water at the lowest water of the year.
 
 The honest repair is a new cutwater. A new nose, coursed, carried down to bed. And the bed has to be cleared, and the old foot cut off, and a new foot set under a standing pier, and a standing pier is a thing you do not do to an arch in a season.
 
@@ -122,9 +122,9 @@ Then the man with the mallet said the second thing, and it was the reason there 
 
 "Alis Merrow is going to ask us for something in this hall before we break up," he said. "He has been asking me for a fortnight and I have been putting him off on the ground that a bench does not its business in public. That was a coward's ground and I am saying so in front of two hundred people.
 
-"**We have held this arch for four generations. We have never once been asked whether we will go on holding it.** Tonight we are going to be asked, out loud, in a hall, by a creditor, and we are going to have to answer, and the answer is going to be in this bench's book in a clerk's hand with the hour on it, and every man in this room is going to remember it in a market in a year. So I am going to ask it first, before he does, and I am going to put it in plain words, and I am not going to improve it and I am not going to ask it kindly.
+"We have held this arch for four generations. We have never once been asked whether we will go on holding it. Tonight we are going to be asked, out loud, in a hall, by a creditor, and we are going to have to answer, and the answer is going to be in this bench's book in a clerk's hand with the hour on it, and every man in this room is going to remember it in a market in a year. So I am going to ask it first, before he does, and I am going to put it in plain words, and I am not going to improve it and I am not going to ask it kindly.
 
-"**Does this bench hold the arch, or does it not?**
+"Does this bench hold the arch, or does it not?
 
 "Not a stone. Not a repair. Not a bench's intentions. Does this bench hold the arch — this arch, this pier, this crossing, and the tolls and the water and the four generations of men who put their names in this book — through nine months of a cutwater, and after it? And if the answer is no, then we say no in this hall tonight, and we say what we are going to do instead, and nobody in this city will ever be able to say afterwards that this bench was asked and did not answer."
 
@@ -138,6 +138,6 @@ He stood up in a hall where he had been the best man in the room twice, and wher
 
 He said one sentence, in the trade's terms.
 
-"Scour holes get bigger while they are being looked at," he said. "That is what a scour is. It is the only failure in a bridge that improves on being reported. **Do not put a number on it in this hall tonight. Put a date on it and put a man on it, and go back to the water in the spring and read it again.**"
+"Scour holes get bigger while they are being looked at," he said. "That is what a scour is. It is the only failure in a bridge that improves on being reported. Do not put a number on it in this hall tonight. Put a date on it and put a man on it, and go back to the water in the spring and read it again."
 
 And then the creditor stood up at the near side of the table, with a bundle of string on the end of it, and did not thank him for that either.
