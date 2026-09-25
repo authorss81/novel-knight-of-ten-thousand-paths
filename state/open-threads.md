@@ -2,28 +2,39 @@
 
 ## Initial story threads
 
-1. **The cracked toll bell:** Why does the Bellweather anchor respond to Aren, and what does its first crossing cost him? Pay off the first local mystery in Volume 1, then carry the evidence forward.
-2. **The living Bellweather path:** Bellweather-Living has its own people, debt system, and refusal to be restored by the main world. The path must remain a recurring relationship, not a one-volume exhibit.
-3. **The official Sundering account:** Who authorized the cull, what did Aren actually know, and why was his disgrace manufactured? Reveal Edric’s involvement in Volume 1 and the full Council context by Volume 6.
-4. **The Gatehouse’s consent rule:** The archive was built to prevent forced historical selection, but the Council altered it. Reveal the First Witness in Volumes 11–15; do not replace it with a later surprise system.
-5. **Ilyra Kest’s crossing:** Aren’s mother used the Gatehouse to carry him from a sealed path. Her route is answered by the final volume; her exact survival is intentionally unknown.
-6. **Aren and Mara:** Their relationship begins as evidence custody versus intrusion. It must develop through disagreement and changed decisions, not instant attraction or dependence.
-7. **Aren’s command flaw:** Every major victory should force a choice between acting alone and sharing authority. The final charter fails once because he repeats the old pattern.
-8. **Roads without Aren:** The series must establish early that local custodians, not Aren, are what make a road real, so that Volume 18 can remove him without removing the network.
-9. **The named dead:** Ferris Oat, Hanna Vey, Corin Slate, Bess Alder, Anwen Rusk, and Bryn Rusk exist as records, not as figures. They are the reason the case has a moral weight the Crown cannot dismiss. Jos Rusk, who survives and claims for them, is a different person and must stay distinct from Pei Tarrow.
-10. **Hushwater’s silence:** The drowned hamlet’s name in older records hints that the Bellweather-Living path was known to the archive system before the cull. This stays a hint until Volume 09.
+1. **The cracked toll bell:** Why does the Bellweather anchor respond to Aren, and what does its first crossing cost him? The local mystery pays off in Volume 1 — a damaged anchor that still remembers refusing a severance writ, a permanent roadmark, the remembered pitch of one verse, nine lost days, and three days of fever. The bell's provenance and its two-pence purchase stay live for the whole series, because at Chapter 900 it is silent under his hand.
+2. **The living Bellweather path:** Bellweather-Living has its own people, debt system, and refusal to be restored by the main world. Established in Volume 1 through the guild, the toll houses, and the Hushwater ferry cooperative, and carried forward as a recurring relationship rather than a one-volume exhibit.
+3. **The official Sundering account:** Who authorized the cull, what did Aren actually know, and why was his disgrace manufactured? Edric's name is put on paper in Volume 1's midpoint, by the toll houses rather than by the guild. The full Council context, the post-Sundering inquiry, and the cost of Aren's own silence are spread through Volumes 2, 6, 11, and 18.
+4. **The Gatehouse's consent rule:** The archive was built to prevent forced historical selection, but the Council altered it. The First Witness is revealed in Volumes 11–15; Volume 01 may only show its *effect* — a private-keeper clause being applied to Aren in a provincial letter — and must not name the mechanism.
+5. **Ilyra Kest's crossing:** Aren’s mother used the Gatehouse to carry him from a sealed path. Her route is answered by the final volume; her exact survival is intentionally unknown and is untouched in Volume 01 except as the verse whose pitch he loses.
+6. **Aren and Mara:** Their relationship begins as evidence custody versus intrusion. Volume 1 stages it as a fight over a filing system, with her winning the terms of his only evidence. It develops through disagreement and changed decisions, never instant attraction or dependence.
+7. **Aren's command flaw:** Volume 1 stages his first failure of the pattern inside the path (Chapters 6 and 41–47): a solo Bind that puts the force into the pier and hurts a man, because he is the best reader of the load path in the room. Volume 1's smaller version is volunteering for a cost nobody asked him to pay, in Chapter 7.
+8. **Roads without Aren:** Established in Volume 1 by the guild bench, the path's stewards, and the refusal to be grateful. The limited channel that opens at the volume's close is run by a Merefen steward and a Bellweather-Living steward with one independent witness each; Aren witnesses and translates. Volume 18 can therefore remove him without removing the network.
+9. **The named dead:** Ferris Oat, Hanna Vey, Corin Slate, Bess Alder, Anwen Rusk, and Bryn Rusk exist as records, not as figures. They are the reason the case has a moral weight the Crown cannot dismiss. Jos Rusk, who survives and claims for them, is a different person and must stay distinct from Pei Tarrow; both first appear in Batch 0002, never together.
+10. **Hushwater's silence:** The drowned hamlet's name in older records hints that the Bellweather-Living path was known to the archive system before the cull. Volume 01 gives the hint its physical form — Hushwater Reach, a living hamlet of about eighty on a channel that is drowned in the main world, with a crossing book in a living hand — and explains nothing. This stays a hint until Volume 09.
 
-## Questions the next phase must answer
+## Answers to the questions the outline phase had to settle
 
-- What exactly is Aren doing, and for whom, in the first three chapters before any crossing occurs?
-- What makes him ring the bell on the anniversary storm rather than any other night?
-- How does Mara first become involved, given that she works above a salt merchant and Aren works a bridge?
-- Which of the seven villages gives Volume 01 its most immediate human stake?
+- **What exactly is Aren doing, and for whom, in the first three chapters before any crossing occurs?** He is holding a road at flood stage for a town that cannot pay him properly, in the cheapest labor available, and he is doing it because it is the only problem he is allowed to have. The first three chapters are one working day argued over by four parties with money at stake, his own bond, and the bell he should have sold.
+- **What makes him ring the bell on the anniversary storm rather than any other night?** Three reasons, all concrete: the storm is the only night the river is loud enough to cover the sound of a working; the town's custom puts him among the ferrymen ringing for the drowned, so one man with a bar is nobody's story; and the Archive's claim must be entered before the province renews its no-survivor line on the anniversary, which gives him a deadline Mara sets and he privately resents. The cracked bell is the hinge of a refusal made in a storm on that date, and it answers the same weather.
+- **How does Mara first become involved, given that she works above a salt merchant and Aren works a bridge?** She needs a sworn tradesman's account of what the bell is attached to, because the Archive cannot record an anchor on a clerk's word, and the bell is the only surviving object she can put in front of a magistrate. She finds him through the Old Toll Bridge's parish repair marks. She offers custody and a claim number in exchange for a promise not to ring it. He agrees and does not tell her the bell rings by itself.
+- **Which of the seven villages gives Volume 01 its most immediate human stake?** **Hushwater.** It is the only one with a living claimant in Merefen, and its crossing book is the document that can be checked against a ferryman's memory. Jos Rusk is the first claim Mara personally refutes, in Batch 0002, and he is wrong about the cause and does not want to be argued with. Alder Cross carries the second stake, through Bess Alder's parish list, which is what splits the Crown's four thousand back into two hundred dead who can be named. Volume 01 keeps the two figures on separate pages and never prints a combined total.
+
+## Threads opened by the Volume 01 plan
+
+1. **The seizure order was prepared in advance.** The guild's removal notice is dated the eleventh; the watch's sealed order arrives in the same week. Somebody in the marshal's office expected an answer from that bell. Volume 01 shows the date and never explains it.
+2. **The private-keeper clause.** A provincial document calls Aren the road-keeper of Merefen, holding the Bellweather hinge. Nobody can find the authority for the title. It is the plant for Volume 03's discovery that his route signature is being read as a keeper credential.
+3. **The toll houses' northern trade.** The path's creditors want the main world reopened far more than the guild does, which is why contact inside Bellweather-Living is a political fight and not a rescue.
+4. **The unpaid seam in the outer arch ring.** A moving crack the debt forbids them to repair, carried from Chapter 7 to the volume climax, where the only way through is a public promise they cannot keep.
+5. **The seal of the severance writ.** A physical match between the path's counterfoil and the Crown seal on the Merefen storehouse. A Volume 01 hook that must survive to Volume 11's trial record.
+6. **The register's index.** The toll-house register shows a second severance authorization in the same hand, four years later, in a county no one in Merefen can name. This is the door into Volume 02.
 
 ## Final-volume questions
 
-- Can the Gatehouse be opened to thousands without making one person’s memory the lock?
+- Can the Gatehouse be opened to thousands without making one person's memory the lock?
 - Can path communities share roads while retaining the right to refuse contact?
 - Will Aren surrender the private power that makes him useful?
 
-No chapter has been written; these are planned promises, not events already established on the page.
+## Planning status
+
+Volume 01 is outlined in `outline/volume-01.md`. Chapters 1–10 are carded in `outline/batches/volume-01-batch-0001.md`. No chapter prose has been written; everything above is a planned promise, not an event established on the page.
