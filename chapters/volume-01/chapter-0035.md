@@ -172,7 +172,7 @@ It touched it, probably. She worked it out for a day and a half and wrote the wo
 
 And she told the man she was sending it to the cost of it before he took it, which is a thing she has done exactly twice in four years.
 
-Dace Millward was in the toll-house at the eighth hour of the tenth of Longlight with his hat on, and he had come in for the week's business and had been told by a boy on Weir Street at the seventh hour that a keeper of records had a sheet for him and had named a price, and he had come in with his hat on, and when he had the sheet in his hand he did not read it for about a minute.
+Dace Millward was in the toll-house at the eighth hour of the tenth of Longlight, and he had come in for the week's business and had been told by a boy on Weir Street at the seventh hour that a keeper of records had a sheet for him and had named a price, and he had not taken his hat off, and when he had the sheet in his hand he did not read it for about a minute.
 
 "Three things it costs you," said Mara Vey, "and I am going to name them before you say a word, and then I am going to leave and let you decide and I am not going to come back.
 
@@ -184,13 +184,13 @@ Dace Millward was in the toll-house at the eighth hour of the tenth of Longlight
 
 "And what is the third thing," said Dace Millward, "if I have understood the second?"
 
-"The third thing is the one I would not have given you a week ago and I am now going to say it, and it is not a cost and it is the reason I am here, and I have thought about saying it in a room and I have decided that a man who has held tolls on a bridge for nineteen years deserves to be told a thing in his own counting house.
+"The third thing is the one I would not have given you a week ago and I am now going to say it, and it is not a cost and it is the reason I am here, and I have thought about saying it in a room and I have decided that a man who has held tolls on a bridge and written a book about them deserves to be told a thing in his own counting house.
 
 "I have held one set of records outside Crown custody for four years and I have been frightened every day of it and I have had four marks a year of the town's money and no authority and one clerk, and I have kept it because a thing in a room can be taken out of a room. I have never once had a second place, and I did not know until the sixth of Greenmonth that I did not have one, and on the sixth of Greenmonth I got one, and I have got it in a press and a yard book and a toll-house, and two of those three are this county's fault and not mine, and one of them is a yard book on Weir Street in a man's own hand and that is a whole paragraph I did not expect to be able to write."
 
 "Go on."
 
-"You have never had anybody want a page out of your roll," said Mara Vey. "Not once in nineteen years. And I am asking you for one, and I am asking you for it as a creditor and not as a charity, because a toll-holder's roll is the one book in this county that is not a record and is not a claim and is not a guild minute, and it is a book of what a man is owed, and a book of what a man is owed is the only kind of book a court in a hundred years will take seriously, and this town is going to want one of those before the end of my life."
+"You have never had anybody want a page out of your roll," said Mara Vey. "Not once in two years. And I am asking you for one, and I am asking you for it as a creditor and not as a charity, because a toll-holder's roll is the one book in this county that is not a record and is not a claim and is not a guild minute, and it is a book of what a man is owed, and a book of what a man is owed is the only kind of book a court in a hundred years will take seriously, and this town is going to want one of those before the end of my life."
 
 Dace Millward stood at the counter of his own toll-house with a sheet of paper in his hand and did not put it down.
 

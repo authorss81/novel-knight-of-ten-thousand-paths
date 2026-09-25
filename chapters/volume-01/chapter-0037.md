@@ -1,6 +1,6 @@
 # Chapter 0037
 
-The bell went into Merefen on the ninth of Longlight in a cart at the fourth hour in the morning and eleven people saw it happen and four of them told somebody.
+The bell came into Merefen on the ninth of Longlight in a cart at the fourth hour in the morning, and eleven people saw it happen and four of them told somebody, and it stood in the storehouse by the fish weir for one night, and a watch captain moved it out of there into his own watch house before daylight on the tenth.
 
 That was all it was. There was no order in it, no seal on the cart, no officer walking beside it, and no boy sent ahead. A handcart came up the lane by the fish weir with a rope at the tail of it and two men walking, and the rope went through the headstock loop and a man on each side took the weight, because that is how a nine-stone bell is moved and nobody in Merefen had to be told, and a woman putting a line out of her door saw it go past and said the thing out loud and a boy on the wharf heard her and repeated it, and by the fourth hour of the afternoon there were three versions of it in the town and by the sixth there was one.
 
@@ -36,7 +36,7 @@ The clerk entered the absence, and he entered it in a particular form, and Tovan
 
 *No reason given.*
 
-Six of those five words were the clerk's own and the seventh was the guild's standing joke and there were now four of them in the roll in four months and the clerk had said in a yard in Greenmonth that he hoped in five years somebody would find the four and read them together, and he had not said it again, and he had begun, quietly, to write the dates in the margin beside them.
+It is three words, and two of them are the clerk's own hand and the third is the guild's standing joke, and it was the fifth of them in the roll in four months, and the clerk had said in a yard in Greenmonth that he hoped in five years somebody would find the five and read them together, and he had not said it again, and he had begun, quietly, to write the dates in the margin beside them.
 
 ---
 
@@ -60,11 +60,11 @@ The clerk read it out. It took four minutes. Nobody interrupted.
 
 "Thank you. Now, the true thing, and I am going to say it because I have costed it and I have a minute to write and the minute is the only thing any of us will be left with.
 
-"In eleven weeks this bench has entered, in its own hand and in its own book, a notice of removal with a valuation on it, a bond for six marks with a surety's chest on it, a valuation of a bell as unclassified municipal salvage, a vote carrying that bond, a minute saying the trust of the Old Toll crossing is in abeyance, a minute saying a man is to be commended, and a survey mark on a Crown's schedule. **That is seven documents. All of them are ours. Every one of them is true. Not one of them was written by a Crown.**"
+"In eleven weeks this bench has entered, in its own hand and in its own book, a notice of removal with a valuation on it, a bond for six marks with a surety's chest on it, a valuation of a bell as unclassified municipal salvage, a vote carrying that bond, a minute saying the trust of the Old Toll crossing is in abeyance, a minute of a Saturday in which a member of this bench is entered absent and no reason is given, and a resolution to keep the crossing out of our own materials and our own men's time. **That is seven documents. All of them are ours. Every one of them is true. Not one of them was written by a Crown.** And the two things that are the Crown's are not in that list, because we never entered either of them, and I will come to them."
 
 She let that sit for about three seconds, which was a long time in a guild hall.
 
-"Everything that office has in this county, it has because a bench of bridgewrights in a fen town did its job properly and wrote it down. The bond is the reason they know his name and his chest. The notice is the reason they know the bell was on our stone. The valuation is the reason they know a thing of six marks was on it and who said so. The minute on the ninth is in a provincial file, and a word is in a provincial ledger, and both of those are in there because this bench sat for two hours and a half and did its work. **Nobody has forged anything. We handed it all over in our own hands and then we complained that it was being used, and that is the whole of the last eleven weeks and it is the most shameful thing I have ever had to say in this room.**"
+"Everything that office has in this county, it has because a bench of bridgewrights in a fen town did its job properly and wrote it down. The bond is the reason they know his name and his chest. The notice is the reason they know the bell was on our stone. The valuation is the reason they know a thing of six marks was on it and who said so. The account this bench swore to in Mudmonth is in a provincial file, and a word about a man on this roll is in a provincial ledger in another one, and both of those are in there because this bench sat for two hours and a half and did its work. And the two that are theirs are a quarter of an inch in a remarks column on a county schedule, which one of our own men put there in his own hand with a witness, and a piece of paper nailed to a watch house with four nails, which this bench did not write and did not enter and cannot answer for." **Nobody has forged anything. We handed it all over in our own hands and then we complained that it was being used, and that is the whole of the last eleven weeks and it is the most shameful thing I have ever had to say in this room.**"
 
 The guild's man with the levels put his hand flat on the table, and did not speak, and nobody spoke for about ten seconds.
 
@@ -80,7 +80,7 @@ The guild's man with the levels put his hand flat on the table, and did not spea
 
 "I am on the roll. I am his brother. I hold the advance of two marks and three quarters at eight pence a day, and it is entered in that roll as a debt of his and not of the guild's, and I said in this room in Greenmonth that a man on both sides of a thing cannot weigh it, and I am not voting now for the reason I gave then and not for a better one, and if I give you a better one today you should stop trusting anything I put in a minute."
 
-"Master Kest, you said that in this room in June," said the clerk, "and I have it in the roll, and I would like it entered that this is the second time in five months that a man has stood up in this room and said the true thing and then declined to vote on it, and I would like the second occasion entered as a second occasion."
+"Master Kest, you said that in this room in Greenmonth," said the clerk, "and I have it in the roll, and I would like it entered that this is the second time in five months that a man has stood up in this room and said the true thing and then declined to vote on it, and I would like the second occasion entered as a second occasion."
 
 "Enter it," said Tovan Kest.
 
@@ -150,4 +150,4 @@ There was nothing wrong with the resolution. He had read it four times and it wa
 
 And a man who was not in the room had not been able to be in the room, and the clerk had entered the fact of his absence in a form that said the bench was protecting him, and that was true, and it was also the first document in the whole of this business that had been written in order to keep something out of it, and Tovan Kest had watched it happen and had put his name under the clerk's and not over the clerk's and had said the true thing in a public room and had not voted, and he was going to have to live here, and the road was going to be shut for a year, and his brother was going to read this minute in a year in a room like this one and would understand every word of it and would not be able to do one single thing about it.
 
-He got up off the stool and went down to the Old Toll abutment at the eleventh hour with the bar over his shoulder, and the crossing was there, and the coping was sound, and the iron cradle was gone and the moss had come back over the whole of the bed of the stone, and the wax on the post had not run, and four hundred yards of the oldest bridge in the county was going to be kept, for a year, by nine men who had voted to keep it in a room on a Saturday, out of materials and time and not one penny of anybody's money, and not a single person in Merefen knew a thing about it.
+He got up off the stool and went down to the Old Toll abutment at the eleventh hour with the bar over his shoulder, and the crossing was there, and the coping was sound, and the iron cradle was gone and the moss had come back over the whole of the bed of the stone, and the wax on the post had not run, and four hundred yards of the oldest bridge in the county was going to be kept, for a year, by nine men who had voted to keep it in a room on a Saturday, out of materials and time and not one penny of anybody's money, and not a single person in Merefen knew a thing about the four marks and six, and the two men who had been sent up the hill to clear the bed of the stone that morning knew the first half of it and had been told nothing at all of the second.

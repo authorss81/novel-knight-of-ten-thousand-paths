@@ -30,13 +30,7 @@ Sarn wrote it down.
 
 "All right." Mara Vey read the outside of it once and then turned it round so the seal was up. Grey wax, the size of a crown piece, a hand laid flat on a book. "The seal is the third one. Post, storehouse, and now an order on this office. Sarn, that is a fact and not a piece of writing, and I am going to have it in a file in a fair hand inside a month or it will have happened for nothing.
 
-"Three instruments, in the order this county uses them, and the order is the order in which they work.
-
-"A **memorial** is a paper a person writes who cannot sue. It asks for nothing in particular. It says that a keeper of records in Merefen is harbouring a man without a warrant, and that she has twice named an office the Crown has not produced, and it asks that the keeper be instructed. And the answer to a memorial is nothing, because a memorial dies of its own weight in about five years and then somebody reuses it in a different case and finds that it does not work, because a thing with no answer on it has never been answered. That is our standing rule and it is in the day-book in my own hand and in yours.
-
-"A **petition** is the same paper with a man's name on the top of it and a court named at the head, and it is a door. A door has to be answered, and answering it means producing a record or refusing to produce a record, and refusing in front of a court is a thing that gets entered.
-
-"An **order** is a third thing and it is the one that works, and I am going to explain why in the plainest words I have and then I am never going to have to say it again. A memorial is a complaint. A petition is an application. An order is a *frame put round this office*. It does not say do not do a thing. It says do a thing, by a date, and it names the person who is to do it, and it can be made without anybody being summoned and without anybody being told until the day it arrives. And when it arrives there is no room in the room. There is a date. And a date, Sarn, is the only thing anybody in this county has ever been able to make anybody do."
+"Three instruments, in the order this county uses them, and the order is the order in which they work. A **memorial** is a paper a person writes who cannot sue; it asks for nothing in particular, and the answer to it is nothing, because a thing with no answer on it has never been answered, and that is our standing rule and it is in the day-book in my own hand and in yours. A **petition** is the same paper with a man's name on the top of it and a court named at the head. An **order** is a third thing and it is the one that works."
 
 She had it open by then. It was one page. It was returnable.
 
@@ -44,11 +38,15 @@ She had it open by then. It was one page. It was returnable.
 
 "The ninth of Longlight."
 
-"Eleven days from the eighteenth. Count it. Today is the twenty-first, so it is nineteen days in this building and ten days after it is returnable." She sat down. "Sarn, when a county has no superior court inside a day's ride, a returnable order is worth what the distance is worth. It is worth a day of yours for every hundred miles, and it is worth the clerk's patience, and it is worth the fee, and it is worth precisely one thing above all: it is worth a court. And a return is a date on which this office either produces a thing or does not, and both of those are entered."
+"Three days from the eighteenth. Count it. Today is the twenty-first, so it is three days in this building and there are eighteen days to the ninth." She sat down. "Sarn, when a county has no superior court inside a day's ride, a returnable order is worth what the distance is worth. It is worth a day of yours for every hundred miles, and it is worth the clerk's patience, and it is worth the fee, and it is worth precisely one thing above all: it is worth a court. And a return is a date on which this office either produces a thing or does not, and both of those are entered."
 
 "I will be here on the ninth."
 
 "You will be here on the ninth and so will I and so will a man from the provincial court who will be in this room with a form, because that is what the ninth is, and the twelfth of Greenmonth is a *memorial* that came into this room and died in a week, and this is its second cousin and it has a seal on it, and if the twelfth was a complaint and this is a frame, then somebody in a provincial office has read a complaint and written a frame, and the frame has one job and the job is to put a date round this office and then wait for the date."
+
+"And the three of them," said Sarn Oyelaran, "and which is the one that works."
+
+"The order," said Mara Vey. "And I am going to tell you why in a room in a month, in front of a man who is a worse lawyer than you are, and not in this room at the seventh hour with a lamp going, because I have nineteen days to do it in and a return to answer on the ninth, and I have never once in four years got the machinery right inside the hour I was given it." She put two fingers on the sheet. "Write *order* at the head of a page, and the date, and nothing else."
 
 She read the prayer.
 
@@ -206,7 +204,7 @@ The yard at the fourth hour of the twenty-first, and Tovan Kest had four men on 
 
 Tovan Kest put the envelope on the weight and did not touch it for about four seconds.
 
-"Read me the eleventh item," he said, "and then I will put it in at the eighth page and write the hour beside it, and it will be the eleventh item and not a leaf, and it will be in a yard's book and not a claim's, and you will get no copy back because you have just told me a copy is the wrong thing."
+"Read me the eleventh item," he said, "and then I will put it in at the foot of the list on the eighth page with the hour beside it, and it will be the eleventh item and not a leaf, and it will be in a yard's book and not a claim's, and you will get no copy back because you have just told me a copy is the wrong thing."
 
 "It is a dressed fragment of a bridge face out of Stonebarrow," said Aren Kest, "brought in a bag by a woman who would not give her name, entered at the ninth hour of the sixteenth by a keeper of records, and refused as a claim and kept as a stone. And it is the only item in that list that is a person, and it is in the list because a woman walked a hundred miles with it and asked for a number, and the number is on it and the number is the reason she is not on it."
 
@@ -228,7 +226,7 @@ She drafted the letter at the seventh hour of the twenty-first, and it was four 
 
 ---
 
-They had it on the bench at the eighth hour of the twenty-first and she read it out in the outer room to a man from Hushwater who came up two flights of stair in a good coat on his own feet, and she gave him the second column of the petition and the date on it and the hour, and she did not apologise, and he read it twice and gave it back and stood a while with his hand on the counter.
+They had it on the bench at the eighth hour of the twenty-first and she read it out in the outer room to a man from Hushwater who came up two flights of stair in a coat he had bought new for the occasion, and she gave him the second column of the petition and the date on it and the hour, and she did not apologise, and he read it twice and gave it back and stood a while with his hand on the counter.
 
 "You told me in Mudmonth that my name was not going anywhere."
 
