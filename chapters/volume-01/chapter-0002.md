@@ -52,11 +52,13 @@ The clerk of the Merefen bridge guild came at eight with a boy carrying a ledger
 
 "Twenty-fourth."
 
-"Twenty-fourth." The clerk wrote something in the ledger, and did not read it out. "The trust requires a surety for anything in its care at a valuation. Six marks. Your tool-chest?"
+"Twenty-fourth." The clerk wrote something in the ledger, and did not read it out. "The trust requires a surety for anything in its care at a valuation. Six marks."
 
-"That'll do."
+"The chest," said Aren. "My tool-chest. I'll stand the bond on it."
 
-"That'll be three and a half and half of it is rust." The clerk waited, pen up, with the enormous patience of a man who is paid by the hour for the whole day.
+It was out before the clerk had finished the sentence, and Aren heard it go, and understood about half a second later that he had walked onto a bridge at eight in the morning with a decision already made and had not known it was in his coat.
+
+"That's three and a half," said the clerk, "and half of it is rust." He waited, pen up, with the enormous patience of a man who is paid by the hour for the whole day.
 
 "It's good for six marks," Aren said.
 

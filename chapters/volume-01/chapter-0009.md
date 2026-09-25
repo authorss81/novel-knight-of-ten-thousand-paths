@@ -52,6 +52,12 @@ Tovan looked at him.
 
 "Get your stone off the bank by Friday," he said, "and if you ask me a fourth time in front of my crew I'll put your eleven tons where the river can have them."
 
+The factor did the sum where he stood, which is what a man does with stone. Eleven tons. A fortnight gone already. A third crew of barges hired on the strength of a date that had moved once and would move again. And at the end of that, a yard at the western end of the channel that would send a man down here at the end of the month to find out whether the setts had come off a bank or were still standing in the mud in a river that does not care which.
+
+He had a want of his own and it had nothing to do with a bell, a road, or a road warden. He wanted to be a man who had not eaten it. And there was a way to be that man, and the way was to cut new stock at the western end at a price that made the stone somebody else's problem for a season, and to carry the difference out of a year instead of out of a quarter, which is a thing a young factor can do once and an old one cannot do at all.
+
+He said as much, pleasantly, on his way up off the deck, and then said that he would come back on the first and ask again, in the yard, and not in front of the crew, and that this was a concession and not a favour, and that he did not intend to make it twice.
+
 That was the shortest available version of the truth and it was not the truth. The truth was that his brother had gone off a bridge on the night of the storm with a bar over his shoulder and had not come back, and that the town had worked that out by the twenty-first and had decided, in the way towns do, what it meant.
 
 What it meant, as far as Tovan had been able to establish, was that the Kest brothers are the sort who are not told. Not the sort who are in debt. Not the sort who are a disgrace. The sort who are not told. The miller's man had said it to a carter on the wharf road and the carter had said it to a woman selling oatcakes and by the twenty-fourth there were people in Merefen who said *you'd have to ask Tovan Kest* and meant it kindly, and Tovan had stood in the middle of Weir Street and heard it three times in a day and had not been able to make himself answer any of them.
@@ -80,7 +86,7 @@ He put his hand on his brother's ankle.
 
 "That'll be the fever."
 
-"It's not the fever. It's not fever, it's not a bridge, it's a bench of men and a writ and a third bell and a boy of seventeen with a bar in his hand who was told he had a full minute." He stopped to breathe, and it took a while, and the cloth came off his face and his forehead was grey. "The fever was real. There was a fever in the low quarter, in Mudmonth, and the woman on the gallery said two hundred and eleven, and they have a ledger for it themselves, and I have spent eleven years being the man who lost a city to a fever, and there was a fever, and it did not take the city. It was a real thing. The crown took a real thing and used it for a false one, and that is worse, brother, that is a great deal worse, because it means the fever was not a lie anybody invented to cover a murder. It was a murder with a true coat on."
+"It's not the fever. It's not fever, it's not a bridge, it's a bench of men and a writ and a third bell and a boy of seventeen with a bar in his hand who was told he had a full minute." He stopped to breathe, and it took a while, and the cloth came off his face and his forehead was grey. "The fever was real. There was a fever in the low quarter, in Mudmonth, and a ferryman on a north bank told me the number — two hundred and eleven — and the woman on the gallery asked me how I would know, and neither of them was wrong, and they have a ledger for it themselves, and I have spent eleven years being the man who lost a city to a fever, and there was a fever, and it did not take the city. It was a real thing. The crown took a real thing and used it for a false one, and that is worse, brother, that is a great deal worse, because it means the fever was not a lie anybody invented to cover a murder. It was a murder with a true coat on."
 
 Tovan sat with his hands on his knees.
 
