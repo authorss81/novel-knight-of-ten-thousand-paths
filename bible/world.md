@@ -22,6 +22,20 @@ Bellweather was a river city built around a massive arched bridge, a bell foundr
 
 Alder Vale is the fertile basin around the old city. It is the Crown’s most politically important breadbasket and therefore the first place officials prefer to call a natural loss.
 
+### The seven villages
+
+The Sundering took the city and seven settlements in the same radius. They are named in the salvage rolls, the parish lists, and the Bellweather Claims Archive, and they are the moral core of the entire case: seven places where people were not the point of the decision.
+
+1. **Alder Cross** — a crossroads village of about two hundred people with a tithe barn, an almshouse, and a schoolmaster who kept the best account book in the vale.
+2. **Saltbrim** — salt works on the eastern channel, 90 people, mostly one extended family, producing the vale’s best grey salt.
+3. **Wrenlow** — a fen-edge hamlet of eel pens and reed cutters, 60 people, poor and proud and the first to be called independent.
+4. **Cobbett** — a mill village on the Alder water, 140 people, with a wheelwright house that supplied the whole district.
+5. **Nine Elms** — an orchard and hop village, 110 people, whose cider was sold as far away as the Morrow Coast.
+6. **Stonebarrow** — a quarry hamlet of 40 people who cut the vale’s paving stone, including the bridge itself.
+7. **Hushwater** — a river-cla hamlet of about 80 people on the drowned channel. Its name is the reason the Bellweather-Living path is also sometimes called the Hushwater road in older records.
+
+Bellweather itself held about four thousand people. The combined loss is the figure the Crown uses when it needs to sound decisive and the figure the Archive refuses to round.
+
 ### The Hearth Marches
 
 Rolling farm country divided into household fields, communal woods, and seasonal oath-stones. Farmers use small workings to improve seed memory and keep wells from silting up. The Marches are politically fractured between hereditary landlords, tenant leagues, and traveling bridge crews. Their first volume-level conflict is whether to sacrifice a village’s old boundary oath to keep a shared river alive.
@@ -80,7 +94,7 @@ Edric’s **One Road** is an attempted counterworking. It uses the **Last Common
 
 Eleven years before the opening, the Lantern Council identified the first severe cluster of the Wound around Bellweather. A succession dispute, a contaminated oath-stone, and a Gatehouse resonance had made local memories incompatible. Marshal Edric Hunn authorized a full severance of the city and its surrounding villages. The official account blames Captain Aren’s failed bridge defense and calls the event a magical fever.
 
-The truth is more damaging: Edric knew the cull would kill everyone inside the severing radius. He was convinced that the alternative would let the Wound consume several kingdoms. Aren was sent to hold the bridge, was not told the true purpose of the operation, and failed to reach the inner city before the cut. He is guilty of bad judgment and obedience, but he did not author the order. The path of living Bellweather is a continuation that the cull was meant to erase before it could become an independent witness.
+The truth is more damaging: Edric knew the cull would kill everyone inside the severing radius. He was convinced that the alternative would let the Wound consume several kingdoms. Aren was sent to hold the bridge, was not told the true purpose of the operation, and failed to reach the inner city before the cut. He was twenty-one, commissioned by brevet a few months earlier, and the youngest captain in the Guard. That is why Edric chose him, and why the Crown can say out loud that a boy lost a city. He is guilty of bad judgment and obedience, but he did not author the order. The path of living Bellweather is a continuation that the cull was meant to erase before it could become an independent witness.
 
 ## Factions and institutions
 
@@ -98,6 +112,30 @@ The truth is more damaging: Edric knew the cull would kill everyone inside the s
 Oathlight is used for practical things: keeping a well from poisoning, warming a seedbed through a cold night, sealing a wine vault, making a bridge marker glow for a few hours, or guiding a night ferry. The most common working requires a visible anchor and a real counterweight. People know the formulas, but formulas do not guarantee a good decision.
 
 Road work is political. A bridge repaired for a merchant route can deprive a village of its toll income. A ferry guild can keep a town alive while a new road makes it obsolete. Officials publish safety rules that favor central control because central control is easier to inspect than a thousand local compromises.
+
+## Ordinary life, in concrete detail
+
+The world is only believable if it is made of jobs, not atmosphere. When a scene needs texture, use the labor underneath it.
+
+**A day in Merefen.** Fisher families are on the channels before light and sell at the weir by the sixth hour. The peat-cutters spend the summer cutting and stacking, then start hauling as soon as the roads will bear a cart, which is why the winter money arrives just as the roads turn to mud. The cooper on Weir Street works with his door open and trades gossip for scraps. Twice a week the salt merchant lets the Bellweather Claims Archive use his upper loft, which is how a records office ends up above a man who weighs salt for a living.
+
+**The market rhythm.** Merefen keeps market days on the fourth and ninth day of each month, with a bigger fair in Harvestmonth when the fruit comes in and a smaller one in Embermonth for the last of the year’s stone and timber work. A bridge or a road that closes on a market day costs a town more than a month of tolls.
+
+**The work year.** Nobody is idle in Mudmonth. The thaw runs, the approaches wash out, and every crew in the vale is short-handed and expensive. Bridge season is Fallowmonth through Embermonth, when the river drops and the piers can be worked. Hearthmonth is when records are copied, bells are cast, and indoor trades do their heaviest year. Longlight is when boundary oath-stones are renewed and the year’s promises are made in public.
+
+**Money and pride.** A shilling a day is a living wage and not a comfortable one. Toll-holders, ferry cooperatives, and the Council are the only people who command real money in Merefen, which is why everyone in the town has an opinion about tolls and almost no one has an opinion about magic.
+
+**What people actually fear.** A washed-out road, a bad harvest, a fever in the low quarters, a landlord, and a levy. Magic is feared too, but as a rarer hazard: a bad well, a broken oath-stone, a bell that rings when nobody rang it. The Unwritten Wound is not part of ordinary fear, and characters should not use the word for ordinary misfortune.
+
+**Travel.** Most people never leave the vale. A courier takes five weeks to cross Neyra. A letter is a commitment of months. This is why news, when it arrives, has usually been overtaken by the event.
+
+## The Bellweather bell in the main world
+
+The cracked toll bell has a documented, boring, and highly useful provenance. A Crown salvage crew lifted it from the riverbed in the year after the Sundering, recorded it as unclassified municipal salvage, and sold it at a Merefen clearance auction to recover a small part of the crew’s costs. It changed hands four times, always cheaply, because everyone who owned it understood immediately that it was a liability rather than a curiosity.
+
+Aren buys it at the Mudmonth clearance of YR 312 for two pence, because he is the only bidder who does not mind being laughed at. He buys it as scrap bronze, which is what he tells people, and because a foundry would otherwise charge him forty marks to recast the tools he needs.
+
+The bell is not a spyglass, a key, or a summons. It is a damaged anchor that still remembers what it was for, and it rings because Aren finally rings it during the anniversary storm, when the road is loud enough to cover the sound.
 
 ## Path worlds
 

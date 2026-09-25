@@ -42,6 +42,8 @@ The team must restore contact with the lower archive while the One Road’s forc
 
 The chapters alternate between the Gatehouse occupation, Mara’s public record rooms, and path delegates negotiating safe passage. The first concrete discovery is that Edric’s authority depends on the First Witness treating Aren as the last private keeper and on the Last Common Key’s ten anchor fragments. If Edric can make the world accept Aren as a universal confirmer, he can activate the One Road without a new council.
 
+The storm on the eleventh anniversary of the Sundering is the volume’s clock. The occupied timetable is shortest that night, the river is loud enough to cover the lower archive, and every character who was present the first time recognizes the weather. Nobody says the date out loud until Aren does, near the end of the block.
+
 ### Chapters 859–866: The first charter fails
 
 A provisional Charter of Many Roads is drafted. It seems to solve the crisis, but it gives Aren a confirming role that lets him override local refusal. Main-world officials support the provision because they want a recognizable commander; some path delegates support it because they believe Aren is the least bad custodian.
@@ -84,7 +86,7 @@ Edric is captured when the One Road loses its final anchor. He is not killed. Un
 
 The immediate aftermath is practical. The wound remains visible in places where maps disagree. Several paths are unreachable and cannot be reopened. The dead of Bellweather are named, but the living Bellweather-Living community is not folded into the main world. Tovan and his crews begin rebuilding a bridge that can carry people and records from both sides. Orrin’s workshop suffers sabotage and must decide which anchors to repair first. Lysa holds public hearings on the Culling Order.
 
-The corrected court judgment resolves the central lie without pretending Aren was innocent of everything. It states that Edric and the Lantern Council ordered the cull, that Aren held the outer bridge under incomplete orders and failed to reach the inner city, and that he later withheld his own contradictory field notes and repeated the official fever account. He did not know the cull’s purpose, but his silence helped make the lie durable. His knighthood and full back pay are restored as matters of record. The court refuses to return him to active command while the Lantern Guard retains the same unreformed emergency powers. Aren accepts that result; clearing his name does not require restoring the office that rewarded blind obedience. Rell, Halven, Sera Dain, and Veyra Senn receive separate judgments based on their own acts, while Edric is tried for the cull, the Culling Order, and the attempted One Road.
+The corrected court judgment resolves the central lie without pretending Aren was innocent of everything. It states that Edric and the Lantern Council ordered the cull, that Aren held the outer bridge under incomplete orders and failed to reach the inner city, and that he later withheld his own contradictory field notes and repeated the official fever account. He did not know the cull’s purpose, but his silence helped make the lie durable. His knighthood and full back pay are restored as matters of record. The court refuses to return him to active command while the Lantern Guard retains the same unreformed emergency powers. Aren accepts that result; clearing his name does not require restoring the office that rewarded blind obedience. Rell, Halven, Sabin Dain, and Iselde Senn receive separate judgments based on their own acts, while Edric is tried for the cull, the Culling Order, and the attempted One Road.
 
 Aren visits Ilyra’s sealed path only as a witness at its boundary; it does not open for him. He learns that the path has made its own decision about contact. This is painful, but it confirms the ending’s central principle. The mystery is answered without turning the answer into a reunion.
 
@@ -129,6 +131,32 @@ The story answers all central questions:
 - What are the long-term effects of the visible Unwritten Wound on law, family memory, and trade?
 
 These questions preserve the world’s mystery without threatening the central ending or implying a new enemy.
+
+## Setup to payoff map
+
+The ending only rewards attention if the setups exist. Each of these is planted early and must still be alive at Chapter 900.
+
+| Planted in | Setup | Payoff |
+| --- | --- | --- |
+| 1 | The cracked bell, bought as scrap for two pence | Ch. 900: he touches it and it is silent. A local custodian, a child witness, and a Bellweather-Living steward open the road instead |
+| 1 | Ferris Oat’s brine weights — a record that cannot be argued with about quantity | Ch. 892: the Archive’s named roll of the dead is entered as a ledger, not a speech, and it is the first document the Charter names |
+| 1 | Aren’s repeated acceptance of the official fever account in debriefs | Ch. 893: the judgment records his post-Sundering silence as its own wrong, distinct from the order he did not write |
+| 1 | The bell rang during the eleventh-anniversary storm | Ch. 851–858: the anniversary is the volume’s clock — shortest timetable, loudest river, and the one night nobody hears the lower archive open |
+| 2 | Halven’s missing-anchor ledger | Ch. 894: the ledger is the exhibit that proves anchors were sold rather than sealed, and it is why Halven is called back to testify |
+| 3 | The Marches council refusing outside command | Ch. 886: the Hearth Marches ratify last, and only after setting their own terms, because they remember Volume 03 |
+| 5 | A path city that refused to be rescued | Ch. 889: an unreachable path’s silence is cited as legitimate rather than as a failure to be corrected |
+| 6 | The cut made on a forged witness, and the contact lost forever | Ch. 890: the Law of Unopened Doors carries a compensation clause written for that loss, which is how the dead return as policy instead of resurrection |
+| 7 | A path community that deliberately kept its painful memories | Ch. 895: the Archive’s founding rule that no copy may be made without a named holder in the community it describes |
+| 8 | Edric’s use of the refuge register | Ch. 894: the register is entered into the trial record as the instrument, and it is what disqualifies him |
+| 8 | Tovan refusing to open the road on Aren’s order | Ch. 897: Tovan’s crews run the crossings with no power to open a path at all, and he says so in the hearing |
+| 9 | The founding Charter’s deliberate fragmentation | Ch. 884: the Charter is drafted in fragments on purpose, exactly as it was first written, and Aren is the last person to understand why |
+| 10 | Paths influencing each other through ordinary trade | Ch. 896: the first inter-path market is a market, with a dispute about tolls, not a treaty ceremony |
+| 11 | The First Witness refusing an unwitnessed closure | Ch. 890: the refusal state returns, by the same mechanism rather than a new working |
+| 12 | The Orchard’s peace bought with a buried cull memory | Ch. 886: the Orchard delegate’s insistence on an explicit right to refuse is written into the Charter text |
+| 13 | A minority route closed on Aren’s own authority | Ch. 859–866: he repeats the act at scale, it fails the same way, and the communities revoke him rather than argue with him |
+| 15 | Both his paths refusing to open for him | Ch. 895: Ilyra’s sealed path refuses him again and he accepts it again, which is the same choice made twice |
+| 16 | One path closing itself to protect its children | Ch. 894: a road closes by local decision, and the Charter does not treat closure as a crime |
+| 17 | Ilyra’s notes addressed to a child he no longer is | Ch. 895: the last line of the sealed path is addressed to the infant, he reads it as an adult, and neither reading is wrong |
 
 ## Final image
 

@@ -10,6 +10,7 @@ This file is the canonical glossary for names, rules, and terms. Use these spell
 - **Bellweather-Living:** The major path in which Bellweather survived. It is a sovereign continuation with its own people, debt system, and political conflicts.
 - **Merefen:** Aren’s fen-side home town, built around reed channels, peat, fish, and bridge work.
 - **Alder Vale:** The fertile basin surrounding Bellweather and the site of the Sundering.
+- **The seven villages:** Alder Cross, Saltbrim, Wrenlow, Cobbett, Nine Elms, Stonebarrow, and Hushwater. Lost in the Sundering with the city. Refer to them by name in dialogue; "the villages" is a Crown phrase, not a person’s.
 - **Morrow Abbey:** A public archive and monastery on a dry river island. The Gatehouse lies beneath it.
 - **The Glass Steppe:** A high plateau of volcanic glass and independent glasswright workshops.
 - **The Morrow Coast:** A group of salt ports and ferry cooperatives.
@@ -22,6 +23,40 @@ This file is the canonical glossary for names, rules, and terms. Use these spell
 - **Bellweather Claims Archive:** The main-world records office in Merefen where Mara Vey keeps copied deeds, salvage claims, and testimony about the Sundering. It is not the archive inside Bellweather-Living.
 - **The Glasswright Cantons:** Independent workshops that make anchor-glass, bridge pins, heat jars, and path equipment.
 - **Path communities:** The people living inside any continuation. They may share language and history with main-world Neyra, but they are not a unified faction.
+
+### Merefen local names (Volume 01)
+
+- **Sedge Reach Bridge:** The main town crossing at Merefen, built on four timber bays. It is the structure Aren is known for and the site of most of his ordinary work.
+- **The Old Toll Bridge:** A narrower, older crossing upstream that the town stopped using for carts two generations back. The cracked Bellweather bell still hangs there because nobody could think of a better place for it.
+- **Weir Street:** The street of working yards along the west channel — coopers, a foundry, Tovan’s yard, and the cooper’s rooms where Aren lodges.
+- **The Reed Line:** The straight cut of cut reeds along the old raised road. Locals use it to date floods: if the reeds stand, the water never reached the bank.
+- **The Bellweather bell:** Official designation in the Merefen clearance roll: *unclassified municipal salvage, Bellweather, crack through the mouth.* It is roughly the height of a man’s chest, bronze gone green-black, with a long hairline split from lip to shoulder.
+- **The salt-loft rooms:** The two flood-safe rooms above a Merefen salt merchant that hold the Bellweather Claims Archive.
+
+## Calendar and dating
+
+- **The Quiet Reckoning:** Neyra counts years from the year the Gatehouse was commissioned. The opening is **YR 312**. The Bellweather Sundering happened in **YR 301, Mudmonth**, so the story opens on the eleventh anniversary, in the same season and the same kind of weather.
+- **Months, in order:** Thawmonth, Mudmonth, Greenmonth, Longlight, Rainmonth, Harvestmonth, Fallowmonth, Embermonth, Wolfmonth, Frostmonth, Hearthmonth, Goatmonth.
+- **Seasons, three months each:** Thawtide (Thawmonth–Greenmonth), Highsun (Longlight–Harvestmonth), Lowsun (Fallowmonth–Wolfmonth), Deepwinter (Frostmonth–Goatmonth).
+- **Work-year rules:** Mudmonth is the worst month for roads, because the thaw and the spring floods overlap. Fallowmonth through Embermonth is bridge season, when the river runs low enough to work in. Hearthmonth is the copying and bell-founding season, when indoor record work is done. Longlight is when boundary oath-stones are renewed.
+- **A season of three months is a working season, not a quarter of a year.** When a character says "by Harvestmonth," mean the named month, not a vague span.
+- **Widely known dates, in order:** the First Quiet (roughly YR 9, recorded as YR 0 by later reckoning and disputed); the Quiet Assembly’s commission of the Gatehouse (YR 41); the founding of the Lantern Council (YR 132); the Sundering (YR 301, Mudmonth); Aren’s court-martial and discharge (YR 301, Embermonth); the opening (YR 312, Mudmonth).
+
+## Money
+
+- **Coin:** 1 farthing = ¼ penny. 1 shilling = 12 pence. 1 **mark** = 8 shillings = 96 pence. The mark is Neyra’s contract and guild unit; a Crown writ is valued in marks.
+- **Wages, one working day:** unskilled day labour, 3–4 pence; a skilled road worker, 6–8 pence; a master repairer such as Aren, 1 shilling plus materials at cost.
+- **Prices that matter to the plot:** a loaf, 1 penny; a bushel of oats, 4 pence; a bushel of imported salt, 3 shillings; a foot fare over Merefen’s ferry, 1 farthing; a cottage room in Weir Street, 2 shillings a month.
+- **A bridge is expensive and unglamorous.** A new Sedge Reach span costs roughly 400 marks. A bell-foundry casting of one Bellweather-sized bell costs about 90 marks, which is why a cracked bell is sold for pennies and why nobody wants it.
+- **Never let a character be casually rich.** Aren earns a shilling a day and is paid badly. The people whose money moves are toll-holders, ferry cooperatives, guild treasurers, and the Council.
+
+## Distance, weight, and building measure
+
+- **Distance:** 1 league ≈ 3 miles. A day’s hard walk, 6 leagues. A loaded cart, 3 leagues. A horse at a canter, 18–20 leagues on a sound road and 8–10 on a washed-out one. A courier who rides the whole length of Neyra needs about five weeks.
+- **Weight:** 12 ounces to the pound, 16 pounds to the stone.
+- **Bridge vocabulary** (use these, not "bridge bits"): **sill**, **arch ring**, **voussoir**, **spandrel**, **cutwater**, **string course**, **pier**, **batten**, **shear pin**, **camber**, **pack joint**, **pointing**, **scour**.
+- **River depth is measured in fingers.** A finger is the width of a finger, roughly three-quarters of an inch. Bellweather ferrymen talk about the river being “eleven fingers and rising.” This is folk measure, not survey measure, and surveyors correct them.
+- **Surveyors** use chains and levels and produce written gauge tables that local people distrust as being slow to change.
 
 ## Historical terms
 
@@ -88,10 +123,31 @@ This file is the canonical glossary for names, rules, and terms. Use these spell
 - **Sera Quen:** Ferrywright in Bellweather-Living and representative of a path community.
 - **Orrin Shade:** Glasswright engineer and maker of anchor-glass.
 - **Lysa Fenn:** Merefen magistrate and later Charter judge.
-- **Sera Dain:** Culling Order field warden; an early ideological opponent.
-- **Veyra Senn:** Chancellor of the Lantern Council; turns the Sundering into legal precedent.
+- **Sabin Dain:** Culling Order field warden; an early ideological opponent. Her surname is never shortened to "Dain" in her presence; a junior warden who does it is noted for it.
+- **Iselde Senn:** Chancellor of the Lantern Council; turns the Sundering into legal precedent.
 - **Rell:** Merefen watch captain who first tries to seize the Bellweather anchor.
 - **Halven:** Opportunistic gatekeeper at the Bellweather Claims Archive who trades access to records.
+- **Wenna Koll:** Merefen ferry operator who first carries word from Bellweather-Living.
+- **Bram Ottery:** Merefen watch sergeant who carries out the bell seizure under Rell.
+- **Pei Rusk:** Hushwater survivor’s son, a ferryman in Merefen who refuses to be a symbol of the Sundering.
+- **Sarn Oyelaran:** junior clerk at the Bellweather Claims Archive who first detects an altered date.
+- **Ilvane Quarren:** glasswright working the Steppe road out of Merefen; sells Aren his first honest anchor-glass.
+- **Aldis Fenn:** Merefen reeve and Lysa’s elder sister.
+- **Hollis Dree:** toll-clerk and archivist in Bellweather-Living.
+- **Ruen:** an independent barge escort who is grateful to Aren and will still testify against him.
+- **The erased:** Ferris Oat, Hanna Vey, Corin Slate, Bess Alder, and Jos Rusk’s family, named in the Bellweather Claims Archive as the people behind the numbers.
+
+## Custody and office titles
+
+These titles are used loosely in ordinary speech and precisely in law. Do not let a character use the wrong one in a formal document.
+
+- **Custodian:** The person a community appoints to authorize one named contact. Answerable to the appointing council, revocable by it, and forbidden from representing anyone else. This is the only title that carries consent.
+- **Steward:** A local household or community official responsible for a specific road, ford, wharf, or anchor. Path communities prefer this word. A steward maintains; a custodian authorizes.
+- **Keeper:** A worker whose job is to maintain a place or its records — the Bellweather Claims Archive, a foundry, a ferry. “Keeper” is employment, not jurisdiction.
+- **Registrar:** A Crown office official who controls a public register and the access of the public to it. Registrar Halven is an office, not a neutral clerk.
+- **Warden:** A field officer of an enforcement order, such as the Culling Order. A command rank.
+- **Witness:** Anyone who can confirm that a promise was made and whether it was kept. A role in a working, not an office, and never a substitute for a community’s consent.
+- **Custodian of the Gatehouse:** No such office exists in canon. The title is refused in public in Volume 18 and is not used before then except as a corrupted private-keeper claim.
 
 ## Language conventions
 

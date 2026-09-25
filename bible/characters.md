@@ -24,7 +24,20 @@ Aren’s mother, **Ilyra Kest**, was a quiet path-stitcher who worked with the G
 
 Aren has a fragmentary memory of a woman singing near water, a brass toll bell with a split rim, and a child’s hand that may or may not be his own. These fragments are not supernatural prophecies. They are the residue of an ordinary bond under impossible pressure. He does not learn the full answer until the middle volumes, and learning it does not restore the missing years.
 
-For the first three years after the Sundering, Aren repeated the official fever account in debriefs and withheld his own field notes because challenging the inquiry would have cost him his rank and the road work he was using to support his aunt. He did not know that Edric had ordered the cull, but he understood that his account contained gaps and chose silence because action felt impossible. His later demand that the record be corrected therefore includes an admission he cannot outsource to Edric: he helped make the lie durable.
+### The arithmetic of his disgrace
+
+Aren was **twenty-one** at the Sundering: born in YR 280, orphaned to his aunt within the year, apprenticed to a bridgewright in Merefen at twelve, entered the Lantern Guard at seventeen, and commissioned a field captain by brevet at twenty-one to hold the Alder Vale survey. He was the youngest captain in the Guard’s history, and the appointment was widely treated as a favour rather than a judgement.
+
+This is load-bearing, not incidental.
+
+- **It is why Edric chose him.** A young captain with no established following is the ideal man to send to hold a bridge that the order intends to fall. He would obey, he would not have a network of older officers who could object, and his own advancement would make the outcome easy to pin on him.
+- **It is why the official account works.** A Crown can tell the public that a boy lost a city. Nobody objects loudly on behalf of a twenty-one-year-old, and the story of a hot-headed youngster who panicked is far more comfortable than a marshal who ordered a cull.
+- **It is why Aren believed his own defence for three years.** He had been twenty-one, he had been given half a briefing, and he had failed at the one thing he had been sent to do. The explanation fit him. That fit is the trap the whole first volume has to open.
+- **It is why he is not a hardened cynic at thirty-two.** Eleven years of road work, a pay cut, a medal-shaped scar, and a public story built around his youth have left him tired rather than embittered. He still believes a person can be competent and therefore trusted, which is a twenty-one-year-old’s mistake carried into his thirties.
+
+Do not rewrite the Sundering as something a child was made to do alone. Aren was given a real command, real men, and a real chance to hold a bridge. He failed that. The order behind it is what makes the failure unforgivable.
+
+For the first three years after the Sundering, Aren repeated the official fever account in debriefs and withheld his own field notes because challenging the inquiry would have cost him his rank and the road work he was using to support his aunt. He did not know that Edric had ordered the cull, but he understood that his own account contained gaps and chose silence because action felt impossible. His later demand that the record be corrected therefore includes an admission he cannot outsource to Edric: he helped make the lie durable.
 
 ## Primary relationship: Mara Vey
 
@@ -98,12 +111,42 @@ For the first three years after the Sundering, Aren repeated the official fever 
 
 Aren’s mother, a path-stitcher missing from the public record. She is not an all-knowing ghost or a guaranteed reward for finding her. Her messages are partial, physically costly, and often addressed to the child she knew rather than the man her son becomes. She chose to save one life and condemn a path to secrecy; her choices are part of the mystery and part of the moral complication. She does not return to absolve Aren.
 
+## The erased: people who exist as records
+
+These are not cameos. They are the reason the book is about anything, and they appear as named entries in the Bellweather Claims Archive, as testimony fragments, as unfinished claims, and as the specific dead that people in Volume 01 argue about. Every one of them had a life that was not about the cull.
+
+- **Ferris Oat**, 44, weighmaster at Saltbrim. Recorded 31 days of brine weights before the cull, with his arithmetic intact. The Archive’s single most useful witness document, because weight never lies about quantity even when people do.
+- **Hanna Vey**, 9, of Hushwater. There is no reason her name should be the emotional center of a political case except that someone wrote it legibly. Do not overuse her; the tragedy is that she is one of four thousand and one of seven hundred named people.
+- **Old Corin Slate**, 61, quarry foreman at Stonebarrow, who cut the voussoirs of the Bellweather bridge and signed for them by number. The bridge he cut is the reason Stonebarrow appears on the salvage rolls at all.
+- **Bess Alder**, 36, schoolmistress at Alder Cross, who kept the parish list. The list is the document that turns four thousand into names.
+- **Wife and daughter of Jos Rusk**, the Hushwater ferryman, whose claim is the first one Mara Vey personally refutes. Rusk was not erased. He is alive in Merefen, and he is wrong about the cause, and he does not want to be argued with.
+
+Use these people sparingly and concretely. Do not give them speeches. A ferryman’s claim form, a weight ledger, a parish list, and a man who will not stop arguing are enough.
+
+## Voice and dialogue rules
+
+Prose consistency in a long serial comes mostly from who is allowed to say what. These are binding.
+
+- **Aren:** short sentences when working, longer when remembering. He answers the question asked and adds the load-bearing fact unprompted. He apologizes by naming what he should have done, not by expressing regret. He does not explain his feelings in dialogue. Under stress he gets more precise, never louder.
+- **Mara:** exact about names, dates, and who said what. She asks exactly one follow-up question that makes a witness feel foolish, then apologizes in plain words. She distinguishes "what the record says" from "what happened" out loud, because she has been burned by others not doing it. She never says "trust me."
+- **Tovan:** talks while working with his hands and stops talking when he is angry. Uses tradesman shorthand and insults affectionately. Refers to Aren as "brother" or "sir" and switches deliberately to "sir" to make a point.
+- **Edric:** never raises his voice, never gives an order he has not thought about twice, and always offers a reason. He uses the truth as a tool and is not lying when he does. His most frightening quality is that he is easy to agree with and right often enough to keep agreeing.
+- **Sera Quen:** ferrywright directness. Names costs out loud, in front of the people paying them. Refuses to be grateful to Aren and says why it is more useful to refuse.
+- **Orrin:** prices things, including arguments. Treats sentiment as an unpriced liability. Becomes warm only about glass and about people who admit they do not know something.
+- **Lysa:** procedural, procedural, procedural — and then, at the exact moment a procedure would fail a person, entirely direct. She is not cynical. She believes procedure is the only thing standing between a frightened person and a generous stranger with a sword.
+- **Sabin Dain:** gives reasons in the order she would act. Admits costs before asking for agreement. The most dangerous trait is that she is not lying.
+- **Iselde Senn:** speaks in precedents. Names the case, the year, and the authority. Rarely uses a first person.
+- **Rell:** ordinary competent authority, worried about his town and about his own report. Pleads guilty to nothing and understands exactly what he did.
+- **Halven:** transactional to the point of comedy, then abruptly sincere about one thing, usually a document.
+
+Do not let any two characters answer the same question in the same rhythm. If a line could be said by anyone in the room, cut it and give the point to the person with the most to lose.
+
 ## Antagonist ladder
 
 1. **Local authority and the official lie:** Captain **Rell**, the Merefen watch captain, receives a sealed emergency order from Edric’s office and seizes the toll bell. He is not secretly cruel: he believes the bell caused the fever recorded after Bellweather and wants to prevent another outbreak. In Volume 11 he testifies that the order concealed the cull, is suspended, and later loses his command, but the unlawful seizure remains part of his record.
-2. **The archive gatekeeper:** Registrar **Halven** controls the main-world Bellweather copies and sells access to whichever office pays him. In Volume 2 he trades a missing-anchor ledger to the Council after Edric offers him a legal shield. He later testifies against Veyra Senn, accepts a judgment of restitution and archive labor, and is permanently barred from holding office.
-3. **The Culling Order:** Field Warden **Sera Dain** is a disciplined woman who believes stable history is worth any number of private losses. She gives Aren evidence, recruits him, and proves that coherent tactics do not excuse coercive intent. She refuses to sign the Charter, surrenders at the Gatehouse in Volume 17, and is imprisoned with the other Order commanders.
-4. **The Council’s political machinery:** Chancellor **Veyra Senn** turns the Sundering into legal precedent and uses Mara’s records to justify a “temporary” expansion of emergency powers. Her attempt to create an uncontrolled quarantine in Volume 8 briefly forces cooperation between Aren and Edric, but Edric later uses the resulting refuge register against its owners. Senn is stripped of office in Volume 11 and convicted after the final trial.
+2. **The archive gatekeeper:** Registrar **Halven** controls the main-world Bellweather copies and sells access to whichever office pays him. In Volume 2 he trades a missing-anchor ledger to the Council after Edric offers him a legal shield. He later testifies against Iselde Senn, accepts a judgment of restitution and archive labor, and is permanently barred from holding office.
+3. **The Culling Order:** Field Warden **Sabin Dain** is a disciplined woman who believes stable history is worth any number of private losses. She gives Aren evidence, recruits him, and proves that coherent tactics do not excuse coercive intent. She refuses to sign the Charter, surrenders at the Gatehouse in Volume 17, and is imprisoned with the other Order commanders.
+4. **The Council’s political machinery:** Chancellor **Iselde Senn** turns the Sundering into legal precedent and uses Mara’s records to justify a “temporary” expansion of emergency powers. Her attempt to create an uncontrolled quarantine in Volume 8 briefly forces cooperation between Aren and Edric, but Edric later uses the resulting refuge register against its owners. Senn is stripped of office in Volume 11 and convicted after the final trial.
 5. **Edric Hunn’s personal doctrine:** Edric offers Aren conditional restoration in Volume 1, access to selected records in Volume 2, and rank in Volume 3, always using truth to recruit rather than demanding obedience at once. He uses every failed path and every surviving person as evidence for the same argument: someone must choose the least painful history.
 6. **The final external antagonist:** Edric and the Culling Order attempt to activate the One Road, forcing every path toward a single controlled continuation. It is the planned endpoint, not a new enemy introduced later. Edric survives, loses all custodial power, and faces public judgment.
 
@@ -111,7 +154,7 @@ Aren’s mother, a path-stitcher missing from the public record. She is not an a
 
 - **Aren–Mara:** hostile cooperation in Volume 1; a first rupture when Aren hides a crossing cost in Volume 2; explicit working rules and chosen intimacy in Volumes 3–5; political separation in Volumes 6–8; equal public partnership in Volumes 9–12; deliberate separation and chosen reunion in Volumes 13–17; civil marriage without merged offices after the Charter.
 - **Aren–Tovan:** estrangement after the Sundering; practical collaboration in Volume 1; Tovan’s refusal to be his soldier in Volume 3; reconciliation through the inter-path bridge in Volume 8; family reconciliation without erasing the argument in the aftermath.
-- **Aren–Edric:** former devotion; warnings and selective truth; temporary cooperation in Volume 8 against Veyra Senn’s uncontrolled quarantine; betrayal when Edric uses the refuge register; a final ideological break over who may choose a history.
+- **Aren–Edric:** former devotion; warnings and selective truth; temporary cooperation in Volume 8 against Iselde Senn’s uncontrolled quarantine; betrayal when Edric uses the refuge register; a final ideological break over who may choose a history.
 - **Aren–Sera Quen:** outsider interference; practical alliance; mutual suspicion; eventual recognition that Bellweather-Living is a sovereign community, not evidence to be collected.
 - **Aren–the Gatehouse:** a private wound, then a public tool, then a corrupted authority he must stop keeping.
 
@@ -121,3 +164,26 @@ Aren’s mother, a path-stitcher missing from the public record. She is not an a
 - Bellweather-Living is never erased for convenience. It may lose contact with the main world, but its people and local consequences remain part of the final accounting.
 - Edric survives to face judgment. His survival is intentional: the final answer is institutional accountability, not a last-minute redemption by execution.
 - Ilyra is not restored as a reward. The final resolution confirms her existence and choices without pretending that knowledge erases loss.
+
+## Supporting roster for Volumes 01–03
+
+These are working characters with immediate, local reasons to exist. Each has an interest that would survive the disappearance of the central mystery, which is the test for whether a character belongs in the book.
+
+- **Wenna Koll**, 29, Merefen ferry operator on the Sable channels. A practical employer of Aren’s labor, a gossip conduit, and the person who first carries word from Bellweather-Living without believing a word of it. She wants the ferry to keep running and resents anyone who closes it.
+- **Bram Ottery**, 47, Merefen watch sergeant, Rell’s subordinate and the man who actually carries out the bell seizure. He is frightened, thorough, and not a caricature. His awkward kindness in Volume 02 costs him his post and is never rewarded with promotion.
+- **Pei Rusk**, 52, Hushwater survivor’s son, ferryman, lives in Merefen and refuses to be a symbol. He is the recurring face of the argument that Aren is doing to survivors as well as for them.
+- **Sarn Oyelaran**, 26, junior clerk at the Bellweather Claims Archive, copies in a hurry, and is the one who first notices that a date has been altered. Wants a post of her own. She is the natural source of Volume 03–05 archive pressure because her competence is useful to people who want the records shut.
+- **Master Ilvane Quarren**, 68, glasswright working the Steppe road out of Merefen, sells Aren his first honest anchor-glass at a price he resents. Small, gruff, and the reason anchor-glass in the story is a real commodity rather than a plot convenience.
+- **Reeve Aldis Fenn**, Lysa’s elder sister, reeve of Merefen, and the reason Lysa has both a salary and a leash. Not an antagonist. A person who thinks her sister’s work is a public subsidy for people who will not govern themselves.
+- **Hollis Dree**, 33, Bellweather-Living toll-clerk and archivist, whose archive refuses to surrender copies to the main world at Volume 01’s climax. He becomes the first recurring path-side counterpart to Mara.
+- **Captain Ruen**, 50s, an independent barge escort Aren worked for once, who is grateful to him and will still testify against him if the question is put properly.
+
+## Cast discipline
+
+- **A named character appears in the volume that needs them.** Do not seed a name in Volume 01 for a Volume 12 payoff.
+- **At most six new named characters per batch.** More than that and nobody can be remembered.
+- **Every recurring character needs one want unrelated to Aren**, stated at least once in their own voice. If a character exists only to inform, contradict, feed, or heal the protagonist, cut them.
+- **No character is written to be secretly reasonable.** If an opponent has a good argument, they get a good argument; if they are wrong, they are wrong for a reason the reader can see.
+- **Aren does not get a new ally every volume.** He is allowed to lose one.
+- **Do not kill a named supporting character for shock.** A death must be caused by something the reader watched happen, and it must change who is left to do the work.
+- **Path-side and main-world casts stay separate.** A Bellweather-Living character is not a main-world character who happens to be elsewhere, and a main-world character who has crossed is not thereby a member of that community.

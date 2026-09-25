@@ -31,11 +31,34 @@ The same craft appears differently in each region, but these effects are stable 
 
 A competent craftsperson can combine two workings, but a third combination usually requires a new method, a stronger anchor, or a social agreement. No character solves a famine, a siege, or a political crisis with one hidden working.
 
+## Practitioner types
+
+Neyra has no guild of adventurers. Magic is taught inside trades, and each trade has a characteristic set of working habits, blind spots, and social standing. A character who performs outside their type pays for it in materials, time, and standing.
+
+- **Roadwardens** build, load, inspect, and repair. Their usual working is Bind on a structure, with the pier or abutment as anchor. They are excellent at holding a known thing still and poor at anything they cannot stand under and touch.
+- **Oath-smiths** write, register, and dispute oaths. They can Veil a document, Call a person to a hearing, and Remember the residue of a signature. They are the closest thing Neyra has to lawyers who can lie in the truth’s service.
+- **Glasswrights** cut, anneal, and set anchor-glass. They Mend and Bind with a precision no other craft matches, and they can pair two anchors so a road holds without a keeper touching it. They distrust working they cannot measure, and they charge for the measuring.
+- **Ferrywrights and bridge carpenters** work in wet conditions against a moving load. They use Warm to keep a cable workable in frost and Bind to hold a span while they replace it. They are the most physically tolerant practitioners and the most superstitious about working above moving water.
+- **Bell-founders** shape bronze and the voices it makes. A founder can Call at a distance limited by bell-metal they have cast, which makes founders unusually good at signalling and unusually bad at secrecy.
+- **Anchor-keepers** and **stewards** do not perform workings so much as maintain the conditions that make them legal: a named local official who keeps the anchor, the register, and the renewal date. This is the least visible craft in Neyra and the one the Council has tried hardest to bureaucratize.
+
+None of these types can open a path. Only the Gatehouse protocol does that, and only through the custody rules below.
+
 ## The Gatehouse
 
 The **Gatehouse** is a buried archive and road-engine beneath Morrow Abbey. It was built by the Quiet Assembly to let separated communities preserve and negotiate possible continuations. Its deepest function is not prediction. It is **conservative**: it keeps a history from being destroyed merely because the main world rejects it.
 
 The Gatehouse is made of anchor-glass, oath-stone, bell-metal, and human-maintained records. It can sense a living continuation when a person remembers a hinge and touches an anchor connected to it. It cannot invent a people, a geography, or a history that has no living continuity.
+
+## Who can open a road, and why Aren is not required
+
+Aren is a **bridge between worlds**, not the only mechanism by which worlds touch. The Gatehouse stores roads; local custodians walk them.
+
+- **Path to path:** Two communities that each hold a living anchor and a named custodian can open a road to each other without the main world, without the Gatehouse network, and without Aren. This is how the Morrow Coast Commons, the Hearth Marches cooperative, and the first inter-path bridge function. It is slower, narrower, and must be renewed, but it predates Aren and survives him.
+- **Path to main world:** The same rule applies, with one extra step. The main-world side needs a local custodian and a public anchor, which is why a Merefen salt merchant’s loft, a council chamber, or a bridge pier can serve as an endpoint. A roadhouse on a public road is the ordinary, intended case.
+- **Aren’s special position:** He can act as translator, witness, and temporary common anchor because his route signature is already legible to the damaged protocol. He is also the worst possible long-term custodian, because one person carrying every route is precisely the failure the Gatehouse was built to prevent. Volume 18 must therefore end with the roads working *without* him, not with him supervising them.
+- **Why roads are not constantly open:** Paired anchors are rare, expensive, and slow to prepare. Properly annealed anchor-glass takes a year. A road also takes real time and real people to walk, which is why delegations travel physically in Volumes 9 and 14 and why a refusal can arrive before a message does.
+- **Council control by paperwork:** The Council rarely needs to steal an anchor to stop a road. Sealing the anchor, arresting the custodian, or issuing a writ of quarantine is enough. This is the ordinary mechanism of coercion in Volumes 5–8 and is more frightening than magic, because it is signed.
 
 ## Custody protocols
 
@@ -112,9 +135,9 @@ At any moment, Aren can keep only a limited number of paths visibly open. The li
 - **Second Door:** two open paths.
 - **Threadkeeper:** three open paths.
 - **Convergence:** five open paths.
-- **Witness Crown:** seven open paths.
-- **Many-Handed:** ten open paths.
-- **Unowned Road:** no exclusive personal capacity; crossings require at least two consenting custodians and a public anchor.
+- **The Witness Crown:** seven open paths.
+- **The Many-Handed:** ten open paths.
+- **The Unowned Road:** no exclusive personal capacity; crossings require at least two consenting custodians and a public anchor.
 
 The limit is not a queue of disposable maps. Each open path occupies a portion of Aren’s attention and sense of self. If he exceeds the limit, the oldest route tears shut unless he chooses which route to lose. The Gatehouse gives him a warning, but it cannot choose for him.
 
@@ -129,6 +152,32 @@ Path time is not synchronized with Neyra. A path can experience months while the
 When Aren exits, he can bring back only limited **carryover**. At first this is one residue: a physical sense, a practiced motion, a name, or a fragment of a person’s remembered voice. It is not a complete skill, inventory, or factual record. Later stages allow him to carry more forms of residue, but each additional form increases path bleed and the chance that a path’s emotion will overwrite one of his own.
 
 A skill learned in a path must be taught, tested, and physically practiced in Neyra before it becomes reliable. A powerful discovery in Bellweather-Living cannot be activated on demand in a different country. Knowledge can be a map, a clue, or a new question, but not an instant upgrade.
+
+## The physical budget of a crossing
+
+Crossing is not a spell on cooldown. It is a piece of a person’s finite capacity that takes months or years to grow back. These are planning figures, not a stat sheet, and they should be honored in prose as ordinary physical limits.
+
+- **One opening, roughly a day of work.** Opening a route takes hours of preparation, an anchor in hand, and a period of not being interrupted. Any fight, injury, or urgent task during the opening can spoil it.
+- **After a return, three days of fever** at Stage 1, growing to a week at Stage 3 and to a month of visible illness at Stage 6. The fever is not symbolic. Someone else has to hold his tools, run his errands, and tell his family where he is.
+- **A season’s limit is three attempted crossings** for a Stage 1 roadwarden and about the same number at every later stage, because the bottleneck is his body, not his rank. Anyone who wants more must be in one of the rare stages where another person is anchoring him.
+- **A return stitch is consumed by use.** A stitch used three times is worn out. Preparing a new one is days of work and emotional memory, and a place used as a stitch becomes a place other people will notice.
+- **A path left open always costs something while it is open.** Small, constant, and easy to ignore: he sleeps badly, misremembers meals, and cannot stay interested in a conversation for its whole length. This is why ordinary work becomes the last casualty of the power and why Tovan notices before anyone else.
+- **Time divergence is a cost, not a convenience.** A long passage spends the body as well as the calendar. Coming back ten years older in a path leaves him ten years older everywhere.
+
+## Failure modes
+
+A failed working has a shape. Use these shapes rather than inventing new consequences, and make the recovery take as long as the mistake.
+
+| What fails | What it costs | What it cannot be undone by |
+| --- | --- | --- |
+| A Bind on a structure | Force transfers into the anchor: cracked stone, a splintered pier, a burned working. Injuries are real. | Mend, which repairs the object but not the person who paid. |
+| A Warm transfer | The source is drained. A banked hearth goes cold for a season; a living body is left weak. | Sleep. The loss is measured in the source’s season. |
+| A Veil | The gap is noticed by someone looking for a landmark, a familiar, or a specific oath. A broken Veil strands the hidden group somewhere uncomfortable and public. | Repeating it. A failed Veil is usually a matter of timing, not power. |
+| A Remember reading | The residue is interpreted through the reader’s own guilt and wish. Two competent readers can honestly disagree. | A second reading by the same person. |
+| A Sunder | The cut is reciprocal. Injury, memory loss, or exposure travels back into the anchor. | Nothing. The scar is part of the record afterward. |
+| A Mend | It repairs the shape, not the history. A mended bell still has the crack that stopped it ringing. | Any working. The event stays in the object. |
+| A Gatehouse opening that fails midway | A half-visible road, a damaged anchor, fever, and a frightened community. Local people may close the road themselves. | A second attempt on the same day. The anchor needs repair first. |
+| A cut made on a false witness | The community’s own anchor tears. Contact ends, sometimes for good. | Another crossing. Volume 6 exists because of this row. |
 
 ## What Aren can and cannot do
 
@@ -207,7 +256,7 @@ Before the first crossing, Aren has ordinary battlefield and bridgecraft compete
 - **Limit:** Consent must be demonstrated by a local community, not inferred from one representative or from Aren’s belief that contact would help.
 - **Failure and recovery:** A transfer made through the wrong anchor can expose private memories or damage trade. Recovery requires withdrawal, restitution, and rebuilding the local record rather than a magical purge.
 
-### Stage 5: Witness Crown — Volumes 11–14
+### Stage 5: The Witness Crown — Volumes 11–14
 
 - **Ability:** Maintain seven paths, see the major choices around a hinge, and prevent a forced cull by becoming a temporary anchor.
 - **Qualification:** Hold seven routes through a threatened cull while appointed local custodians direct the defense, then transfer each route back without claiming a permanent share in its governance.
