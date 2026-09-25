@@ -60,7 +60,7 @@ Tovan Kest looked at the purse for a while.
 
 He was aware, with a clarity that arrived about four seconds too late to be of any use, that he had four men on the payroll for the week and no work for them, that the trust owed his brother eleven days, that his brother had a bond standing for six marks against a tool-chest that the guild's clerk had priced at three and a half and half of which was rust, and that there were, in this room, four marks.
 
-"Right," he said. "I'll have it in the chest and I'll have your name against the cutting and I'll start on the eighth, and the eighth is a Tuesday and the trestles will be up by the fourth hour."
+"Right," he said. "I'll have it in the chest and I'll have your name against the cutting and I'll start on the eighth, and the eighth is a Thursday and the trestles will be up by the fourth hour."
 
 "I'll want it in writing."
 
