@@ -53,9 +53,10 @@ This file is the canonical glossary for names, rules, and terms. Use these spell
 ## Distance, weight, and building measure
 
 - **Distance:** 1 league ≈ 3 miles. A day’s hard walk, 6 leagues. A loaded cart, 3 leagues. A horse at a canter, 18–20 leagues on a sound road and 8–10 on a washed-out one. A courier who rides the whole length of Neyra needs about five weeks.
-- **Weight:** 12 ounces to the pound, 16 pounds to the stone.
+- **Weight:** 12 ounces to the pound, 16 pounds to the stone. **Hundredweight is not a Neyra measure** — do not use it. Say a number of pounds, or a number of stones and pounds, and let the character round it the way his trade rounds it.
+- **A bell is lifted by its headstock, never by its body.** A cracked toll bell of the Bellweather size is about **nine stone** of green-black bronze, chest-high, split lip to shoulder. Nobody lifts nine stone off a cradle by hand; a bar goes through the headstock loop, two men take the ends, and the whole conversation is about where the weight goes if somebody lets go.
 - **Bridge vocabulary** (use these, not "bridge bits"): **sill**, **arch ring**, **voussoir**, **spandrel**, **cutwater**, **string course**, **pier**, **batten**, **shear pin**, **camber**, **pack joint**, **pointing**, **scour**.
-- **River depth is measured in fingers.** A finger is the width of a finger, roughly three-quarters of an inch. Bellweather ferrymen talk about the river being “eleven fingers and rising.” This is folk measure, not survey measure, and surveyors correct them.
+- **River depth is measured in fingers.** A finger is the width of a finger, roughly three-quarters of an inch. Bellweather ferrymen talk about the river being “eleven fingers and rising,” and Merefen ferrymen talk the same way. This is folk measure and it belongs to people who are in the water; **a surveyor never quotes it, and a written gauge board never reads in fingers.** A character who puts a folk reading into a written table is making a mistake the story can use.
 - **Surveyors** use chains and levels and produce written gauge tables that local people distrust as being slow to change.
 
 ## Historical terms
@@ -128,7 +129,7 @@ This file is the canonical glossary for names, rules, and terms. Use these spell
 - **Rell:** Merefen watch captain who first tries to seize the Bellweather anchor.
 - **Halven:** Opportunistic gatekeeper at the Bellweather Claims Archive who trades access to records.
 - **Wenna Koll:** Merefen ferry operator who first carries word from Bellweather-Living.
-- **Bram Ottery:** Merefen watch sergeant who carries out the bell seizure under Rell.
+- **Bram Ottery:** Merefen watch sergeant under Rell, named in Volume 02. The bell seizure in Volume 01 is Rell's watch; the sergeant overseeing it is addressed by office, not named.
 - **Pei Tarrow:** Hushwater survivor’s son, a freight ferryman on the Old Toll channel in Merefen who refuses to be a symbol of the Sundering. No relation to Jos Rusk.
 - **Sarn Oyelaran:** junior clerk at the Bellweather Claims Archive who first detects an altered date.
 - **Ilvane Quarren:** glasswright working the Steppe road out of Merefen; sells Aren his first honest anchor-glass.

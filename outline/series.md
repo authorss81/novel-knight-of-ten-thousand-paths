@@ -18,7 +18,7 @@ Path calendars are not mechanically interchangeable with the main world. The tab
 
 | Volume | Main-world elapsed | Longest path interval | Planning note |
 | --- | ---: | ---: | --- |
-| 1 | 5 months | 7 months in Bellweather-Living | First time drift; allow 3–10 days of uncertainty at return. |
+| 1 | 5 months | 7 months in Bellweather-Living | First time drift; allow three days to three weeks of uncertainty at return, widening with each volume. |
 | 2 | 7 months | 9 months in the County of Ash | The Second Door amplifies drift; preserve dated market days. |
 | 3 | 8 months | 13 months in the Hearth Marches | Aren’s limp is acquired before the return stitch closes. |
 | 4 | 8 months | 16 months in the Ninefold Winter | The valley’s generations continue even if Aren’s route ages unevenly. |
@@ -471,7 +471,7 @@ The middle of a long novel fails when each volume is the last crisis with a bigg
 
 | Volume | Dominant pressure | Recovery anchor | Relationship work |
 | --- | --- | --- | --- |
-| 1 | Action / survival | The fever after the first crossing, Ch. 12–18 | Aren and Mara negotiate custody; Tovan refuses to be his soldier |
+| 1 | Action / survival | The fever itself, Ch. 8–10, and the work it costs other people, Ch. 9–18 | Aren and Mara negotiate custody; Tovan refuses to be his soldier |
 | 2 | Mystery / investigation | Ordinary work in Merefen while testimony travels | Aren hides a cost; Mara finds it |
 | 3 | Political pressure | Tovan’s yard and the Marches delegation | Brother conflict over command |
 | 4 | Training / experimentation | The valley thaws; ordinary labour resumes | Aren and Edric’s last private warning |

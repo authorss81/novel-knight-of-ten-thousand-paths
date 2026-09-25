@@ -58,13 +58,14 @@ The pressure is not "will he find the lost city." He finds it in Chapter 4. The 
 - **The north-bank steps and the ferry slips** — where Aren arrives, in the wrong place, with no papers, and is annoyed at.
 - **The guild hall and the bench** — the bridge guild, the institution that refused the cull, and the body that answers him.
 - **The toll-house counting room** — the hereditary debt books, and the outgoing writ register that names the marshal who signed the order. Held by people who have no reason to give it to a bridge guild or to him.
-- **Hushwater Reach** — a living hamlet of about eighty on a channel that is drowned in the main world. Nobody in Volume 01 explains why the name is familiar. Do not draw the conclusion on the page; it is held for Volume 09.
+- **Hushwater Reach** — a living hamlet on a channel that is drowned in the main world, on a drowned channel's own ferry cooperative. Its people are counted the way a cooperative counts, by ferry hands and hearths rather than by souls, which is why nobody can put a number on it and why the best estimate anyone offers is near sixty. That figure is deliberately nowhere near the eighty erased at Hushwater, and no character notices the gap. Nobody in Volume 01 explains why the name is familiar. Do not draw the conclusion on the page; it is held for Volume 09.
 
 ## Major factions
 
 Each of these has a want that survives Aren leaving the room.
 
 - **The Merefen bridge crews and the toll-holders** — the road must earn. The road toll-holder's income fails if the road closes and the ferry carriage's income fails if it opens, which is why the two of them have never needed to agree on anything else. The crews' wages fail if the work stops. A bridge kept for the fourth-day market is worth a month of tolls.
+- **The Merefen bridge guild** — the town's craft body of bridgewrights and road-wardens, which holds the Old Toll crossing in municipal trust, keeps the scrap roll the bell's six-mark valuation comes from, and wants the cracked bell off its books before the anniversary. It is a small, quarrelsome, entirely local institution with no interest in the Sundering beyond the paperwork it inherits. **It is not the Bellweather Bridge Guild**, it has no contact with it, and no member of either appears in the other's world in this volume.
 - **The Merefen watch under Captain Rell** — Rell received a sealed emergency order from the marshal's office before the anniversary, believes the bell caused the fever recorded after Bellweather, and wants to prevent another outbreak. He is frightened, thorough, and not cruel.
 - **The Bellweather Claims Archive** — restore the names and last known wishes of the erased, and keep the record outside Crown custody. Mara Vey will use people well and grieve neatly.
 - **The Lantern Council's emergency office** — treat a forced severing as a public safety measure. It is off-page and signed. Its instrument is paperwork: a sealed order, a provincial renewal line, and the private-keeper clause that will start calling Aren "keeper" in official documents for reasons nobody can yet explain.
@@ -84,7 +85,7 @@ Each of these has a want that survives Aren leaving the room.
 
 ### Block 1 — Chapters 1–10: The nineteenth of Mudmonth
 
-Ordinary work at flood stage, the guild's valuation on the bell, Tovan's claim on the bronze, the Archive's custody demand, the anniversary storm. Aren rings the bell at the ninth hour and crosses. Six days in a city that is alive, in debt, and entirely uninterested in being saved. He repairs a ferry plank the hard way under a ferrywright who will not be grateful, because gratitude is not useful. He cannot leave: he prepared no return stitch, and a return stitch is a thing other people help you make. He comes back nine days later — the Gatehouse promised three — to find the bell gone, the road closed, the market lost, and a fever starting in his own chest. He spends the first piece of evidence in a public record that includes his own complicity. **Changes:** the promise, the mark, the cost, the loss of the verse's pitch, and the first sight of a named office calling him keeper.
+Ordinary work at flood stage, the Merefen bridge guild's valuation on the bell, Tovan's claim on the bronze, the Archive's custody demand, the anniversary storm. Aren rings the bell at the ninth hour and crosses. Six days in a city that is alive, in debt, and entirely uninterested in being saved. He repairs a ferry plank the hard way under a ferrywright who will not be grateful, because gratitude is not useful. He cannot leave: he prepared no return stitch, and a return stitch is a thing other people help you make. He comes back nine days later — the Gatehouse promised three — to find the bell gone, the road closed, the market lost, and a fever starting in his own chest. He spends the first piece of evidence in a public record that includes his own complicity. **Changes:** the promise, the mark, the cost, the loss of the verse's pitch, and the first sight of a named office calling him keeper.
 
 ### Block 2 — Chapters 11–20: What the fever cost everyone else
 
@@ -132,7 +133,8 @@ The collapse is contained, not repaired. The scar stays in both worlds, and both
 - Aren holds Stage 1, the First Stitch: one open route, one carryover residue, a permanent roadmark, a return stitch that must be prepared before every crossing, and no ability to choose the path's politics.
 - The Crown declares the contact illegal in writing, confirms that no Bellweather survivor claims exist, and instructs the watch to prevent further contact. The sealed seizure order is entered into the record as lawful procedure and is never mentioned again by the office that wrote it.
 - Edric Hunn offers conditional restoration: rank, back pay, the old office, and a legal shield for the Archive, in exchange for the route and an inspection of Bellweather-Living. He is entirely reasonable and entirely correct that a man with a private road and no constitution is a public danger.
-- The Archive files a claim number for the writ register page, keeps a copy outside Crown custody, and enters Ferris Oat's brine weights — thirty-one days of salt weights with the arithmetic intact — as its first exhibit, because a ledger cannot be argued with about how much there was. Four thousand and seven hundred and twenty are never added together on one page.
+- The Archive files a claim number for the writ register page, keeps a copy outside Crown custody, and enters that page as its first exhibit. Ferris Oat's brine weights — thirty-one days of salt weights with the arithmetic intact — stay a cited authority inside the office rather than a filed exhibit, because the named roll of the dead built out of them is reserved for Chapter 892, where it is entered as a ledger and becomes the first document the Charter names. Volume 01 pays off the register, not the roll. Four thousand and seven hundred and twenty are never added together on one page.
+- The bell comes back to the Old Toll Bridge before the last week of Fallowmonth. The Crown's later order forbids contact, not municipal custody of a cracked bell, and the town reclaims its own iron on its own authority: the new iron band is the town's work, the old split is re-sealed with dull red oathlight by the Bellweather-Living steward's hands on the far side of the scheduled crossing, and nothing in the bell breaks again in this volume. The bell returns to the bridge. It does not return to Aren, and it is not his to ring.
 - Aren pays for all of it in the only currency he has: a road-marked palm, three days of fever he did not choose, the remembered pitch of one verse of his mother's river song, nine days of his own calendar on the first crossing, and a brother who will mend his bridge but will not keep his secret.
 
 ## Next-volume question
@@ -143,27 +145,31 @@ Three concrete hooks leave the volume. A claimant's form arrives at the Archive 
 
 ## Final chapter image
 
-The last week of Fallowmonth, low water, bridge season. Sedge Reach holds. The Old Toll bell is back on its cradle with a new iron band and a new crack sealed with dull red oathlight, and it is not Aren's to ring. A Merefen boy, the steward's apprentice, stands on the near abutment with the Bellweather-Living steward on the other side of a scheduled crossing, and they ring it together because that is the arrangement. Aren is on the Sedge Reach deck with a tool bag, counting load points out of habit, when he hears the note go out and the answer come back. His palm is warm. He does not need it, and nothing in the sound is his.
+The last week of Fallowmonth, low water, bridge season. Sedge Reach holds. The Old Toll bell is back on its cradle with a new iron band and the old split sealed with dull red oathlight, and it is not Aren's to ring. A Merefen boy, the steward's apprentice, stands on the near abutment with the Bellweather-Living steward on the other side of a scheduled crossing, and they ring it together because that is the arrangement. Aren is on the Sedge Reach deck with a tool bag, counting load points out of habit, when he hears the note go out and the answer come back. His palm is warm. He does not need it, and nothing in the sound is his.
 
 ## Power and cost ledger for the volume
 
 | Beat | Gain | Cost |
 | --- | --- | --- |
 | Crossing 1, Ch 4–8 | The roadmark; the first sight of a living Bellweather; the ferry-plank motion | The remembered pitch of one verse of Ilyra's river song; nine days of main-world calendar the Gatehouse promised as three; a cut hand; a debt owed to a guild bench |
-| The fever, Ch 8–18 | A public statement in the watch record; the first Archive custody entry | Three days of fever; the Old Toll sill scarred; the bell in a storehouse; the guild bond; the barge contract; the lost market days |
+| The fever, Ch 8–18 | A public statement in the watch record; the first Archive custody entry | Three days of fever; the Old Toll sill scarred; the bell in a storehouse; the six-mark bond he signed and cannot discharge; the barge contract; the lost market days |
 | Crossing 2, Ch 22–30 | The writ counterfoil; the writ register page; a route held open with a named local agreement | Nineteen path days for six main-world days; anchor-glass money; Stage 1's second fever; his written admission of his own post-Sundering silence |
 | Block 4, Ch 31–40 | Copies held outside Crown custody; a roadwarden's reputation that survives a legal loss | No crossing available while he needs one; a market day and a season's tolls the town never got back |
 | Crossing 3, Ch 41–47 | Stage 1, the First Stitch, qualified; one carryover; a consented, limited, steward-run channel | A hurt man on the arch; a splintered pier; a permanent scar in two worlds; his last attempt at solo command, failed in public |
 
-## Cast plan, six new named characters per batch
+## Cast plan, six named characters per batch
 
-| Batch | Chapters | New named characters |
+All the names below already exist in `bible/characters.md` with a want, a flaw, and a function. The column means **first named in prose**, not invented by the batch, and a batch may name fewer than six. A reserve slot is only filled if that batch's work actually needs a voice; a slot is never filled to fill it.
+
+| Batch | Chapters | Named in prose |
 | --- | --- | --- |
 | 1 | 1–10 | Tovan Kest, Mara Vey, Wenna Koll, Lysa Fenn, Captain Rell, Sera Quen |
 | 2 | 11–20 | Jos Rusk, Bram Ottery, Halven, Pei Tarrow, Sarn Oyelaran, Ilvane Quarren |
-| 3 | 21–30 | Hollis Dree, Alis Merrow (path-side toll-house steward, planned name), Ruen, Aldis Fenn, + 2 reserve |
-| 4 | 31–40 | A Merefen toll-holder, a provincial factor, a Council clerk or courier, + 3 reserve |
-| 5 | 41–50 | Edric Hunn, the marshal's secretary, + 4 reserve |
+| 3 | 21–30 | Hollis Dree, Alis Merrow (path-side toll-house steward), Captain Ruen, Reeve Aldis Fenn (Lysa's elder sister, reeve of Merefen — a declared kinship, per `bible/characters.md`, and therefore not a second unrelated Fenn), + 2 unfilled |
+| 4 | 31–40 | A Merefen toll-holder, a provincial factor, a Council clerk or courier, + 3 unfilled |
+| 5 | 41–50 | Edric Hunn, the marshal's secretary, + 4 unfilled |
+
+The volume's continuity traps are the two that a reader would notice: police Vey and Rusk, and Rusk and Tarrow. The Fenn family is the third and is deliberate rather than accidental — Reeve Aldis Fenn is the reason Lysa has both a salary and a leash, and staging the two sisters is a permitted scene.
 
 Path-side institutions are addressed by office — the bench, the toll-house steward, the bench-clerk — until a later volume needs a named holder. Do not name a Gatehouse Order member: Sabin Dain enters in Volume 2, and the phrase "Culling Order" may appear at most once in this volume, in a document or a claimant's mouth, without a member attached to it.
 
@@ -193,12 +199,19 @@ Whenever Aren learns a fact in this volume, someone who matters already knew it 
 
 | Beat | Main world | Path time |
 | --- | --- | --- |
-| Ch 1–3 | sixth–eighth of Mudmonth | — |
-| Crossing 1 | opens the nineteenth, returns the twenty-seventh | six days |
+| Ch 1 | sixth of Mudmonth | — |
+| Ch 2–3 | eleventh–twelfth of Mudmonth | — |
+| Cut | thirteenth–eighteenth of Mudmonth | no event, no fact, no visitor |
+| Crossing 1 | opens the night of the eighteenth into the nineteenth, returns the twenty-seventh | six days |
+| Ch 8–10 | twenty-seventh–thirtieth of Mudmonth, the fever running the twenty-seventh to the twenty-ninth | — |
 | Ch 9–20 | twenty-seventh of Mudmonth – fourth of Greenmonth | — |
 | Crossing 2 | opens the ninth of Greenmonth, returns the sixteenth | nineteen days |
 | Ch 21–40 | sixteenth of Greenmonth – twenty-second of Longlight | — |
 | Crossing 3 | opens the twenty-sixth of Longlight, returns the second of Fallowmonth | six months and twenty days |
 | Ch 41–50 | second – last week of Fallowmonth | — |
 
-The two calendars run about a month apart and the Gatehouse's warnings are rough: wrong by six days on the first crossing and by three weeks on the third. Never silently by months. The drift is stated in the prose as a warning that was wrong, not as a surprise.
+The six days between Chapter 3 and Chapter 4 are a stated cut in the main world. They exist so that Chapter 4 is a decision made after a wait rather than a decision made on the spot, and nothing may be planted in them that a later chapter needs.
+
+The bell's own paperwork runs underneath all of it. Chapter 1 signs a hold on the bell in Aren's own name, good until the Merefen bridge guild's next sitting, **the twenty-fourth**. Nothing happens on the twenty-fourth: a bench cannot act against a man who is not in front of it, and Aren is nine days gone. That is the town's ordinary process for a cracked bell, and the watch's sealed order replaces it three days later on the twenty-seventh, without anybody in Merefen getting to choose between them. The twenty-fourth requires no scene and exists so that the seizure reads as an override rather than a schedule.
+
+The two calendars run about a month apart and the Gatehouse's warnings are rough: wrong by six days on the first crossing and by three weeks on the third. Never silently by months. The drift is stated in the prose as a warning that was wrong, not as a surprise. The three-week error on the third crossing is the widest allowance the series makes at this scale and is the ceiling recorded for Volume 01 in `outline/series.md`; later volumes widen it, Volume 01 does not.

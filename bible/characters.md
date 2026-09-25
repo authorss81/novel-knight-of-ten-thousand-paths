@@ -91,7 +91,7 @@ For the first three years after the Sundering, Aren repeated the official fever 
 ### Lysa Fenn
 
 - **Age:** Thirty.
-- **Role:** A Merefen magistrate who once filed Aren’s salvage claim after the Sundering.
+- **Role:** A Merefen magistrate who once filed Aren’s salvage claim after the Sundering — eleven years before the opening, in YR 301. That filing predates the bell and has nothing to do with it: **the story does not say what was salvaged, and no volume before the trial may say so.** It must never be merged with his two-pence purchase of the Bellweather bell on the first of Mudmonth, YR 312. If a scene needs to know what was in the 301 filing, it is a later volume’s discovery, not a convenience.
 - **Want:** Make the law useful to people who cannot afford a title or a patron.
 - **Flaw:** Believes a careful procedure can contain any moral problem until the procedure becomes the thing being protected.
 - **Function:** Gives the main world a legal and political pressure independent of Edric. She challenges Aren’s assumptions about consent, evidence, and who gets to define an emergency.
@@ -170,7 +170,7 @@ Do not let any two characters answer the same question in the same rhythm. If a 
 These are working characters with immediate, local reasons to exist. Each has an interest that would survive the disappearance of the central mystery, which is the test for whether a character belongs in the book.
 
 - **Wenna Koll**, 29, Merefen ferry operator on the Sable channels. A practical employer of Aren’s labor, a gossip conduit, and the person who first carries word from Bellweather-Living without believing a word of it. She wants the ferry to keep running and resents anyone who closes it.
-- **Bram Ottery**, 47, Merefen watch sergeant, Rell’s subordinate and the man who actually carries out the bell seizure. He is frightened, thorough, and not a caricature. His awkward kindness in Volume 02 costs him his post and is never rewarded with promotion.
+- **Bram Ottery**, 47, Merefen watch sergeant, Rell’s subordinate. The bell seizure in Volume 01 is carried out by Rell’s watch, and the sergeant who oversees it is **addressed by office and not named on the page**, because Volume 01’s six-name cap is already spent. Bram enters by name in Volume 02, when somebody has to answer in writing for what the watch did. He is frightened, thorough, and not a caricature, and his awkward kindness in Volume 02 costs him his post and is never rewarded with promotion.
 - **Pei Tarrow**, 52, Hushwater survivor’s son, freight ferryman on the Old Toll channel, lives at the north end of Merefen and refuses to be a symbol. He is the recurring face of the argument that Aren is doing to survivors as well as for them. He is no relation to Jos Rusk, and nothing else about them matches: a different surname, channel, and set of years. Do not stage the two men together and do not let a bystander call him a Rusk.
 - **Sarn Oyelaran**, 26, junior clerk at the Bellweather Claims Archive, copies in a hurry, and is the one who first notices that a date has been altered. Wants a post of her own. She is the natural source of Volume 03–05 archive pressure because her competence is useful to people who want the records shut.
 - **Master Ilvane Quarren**, 68, glasswright working the Steppe road out of Merefen, sells Aren his first honest anchor-glass at a price he resents. Small, gruff, and the reason anchor-glass in the story is a real commodity rather than a plot convenience.
