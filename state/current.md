@@ -1,44 +1,44 @@
 # Current State
 
-Current phase: outline (Volume 01 and Batch 0001 planning)
+Current phase: batch writing (Volume 01, Batch 0001 complete; Chapters 11–20 are next)
 
 Current volume: 1
 
-Current batch: 1
+Current batch: 1 complete; next batch is 2 (Chapters 11–20)
 
-Last completed chapter: none
+Last completed chapter: `chapters/volume-01/chapter-0010.md`
 
-Last batch summary: none yet. Completed batch summaries are appended to `state/batch-summaries.md`, and this field names the most recent entry.
+Last batch summary: the **Batch 0001 — Volume 01, Chapters 1–10, "The Nineteenth of Mudmonth"** entry in `state/batch-summaries.md`. Read that entry first; it carries the canon the batch invented and the question Chapter 11 opens on.
 
-File convention, for the next phase: write `chapters/volume-01/chapter-0001.md` through `chapters/volume-01/chapter-0010.md` for this batch — four digits, matching the `### Chapter 0001` card labels in `outline/batches/volume-01-batch-0001.md`. `PHASE_SYSTEM.md` is the authority and is controller-owned; do not edit it, and do not improvise a different path.
+File convention: chapter files are `chapters/volume-01/chapter-0001.md` through `chapter-0010.md`, four digits, matching the `### Chapter 0001` card labels in `outline/batches/volume-01-batch-0001.md`. Batch 0002 continues the same convention at `chapter-0011.md` through `chapter-0020.md`.
 
-Canon status: The bible, series outline, and ending outline are established. `outline/volume-01.md` (Chapters 1–50) and `outline/batches/volume-01-batch-0001.md` (chapter cards for Chapters 1–10) are written, mutually consistent, and carry a reviewed fix pass. No chapter prose has been generated.
+Canon status: the bible, series outline, ending outline, `outline/volume-01.md` (Chapters 1–50), and `outline/batches/volume-01-batch-0001.md` are all established. **Chapters 1–10 exist as finished prose**, ten complete scenes, roughly 36,600 words, POVs Aren ×8 / Mara ×1 / Tovan ×1, with exactly two Gatehouse lines in the whole batch. Per-chapter summaries are in `state/chapter-summaries.md`; the canon the batch established is `state/continuity.md` items 32–42; the new threads are in `state/open-threads.md`.
 
 Active threats:
 
-- **Merefen watch captain Rell**, holding a sealed emergency order from Marshal Edric Hunn's office, written and sealed *before* the anniversary. He believes the cracked bell caused the fever recorded after Bellweather. In the plan, Rell seizes the bell during Aren's first absence and delivers the seizure in Chapters 8–10.
-- **The private-keeper clause**, applied to Aren in provincial correspondence for reasons no character can explain. Nobody in Volume 01 learns why he can cross.
-- **The Bellweather Bridge Guild's debt**, the toll houses' push to reopen the northern trade, and the outer arch's moving crack: the path's own problems, which are not waiting for Aren.
-- **The path continues without him.** The longest quiet stretch in Volume 01 is deliberate.
+- **Captain Rell and the watch**, holding a bell under a Crown seal in a storehouse by the fish weir, on an order dated the sixteenth of Mudmonth, before the storm and before the anniversary. A second letter, dated the twenty-ninth, again names Aren road-keeper of Merefen and summons him to the provincial town on the ninth of Greenmonth. Lysa Fenn's hearing on the seizure is set for the **fourth of Greenmonth**; the province's renewal is the **second**.
+- **The private-keeper clause**, applied twice to Aren in documents nobody can source, and Lysa has searched three registers for the office and found nothing.
+- **Bellweather-Living's own problems**, running without him: a moving crack in the outer ring of the second pier, a new cutwater nine months long that the debt forbids, forty-one toll-houses three of which want the northern trade reopened badly enough to be arguing with a stranger, and a register page offered to him in exchange for one in a year.
+- **The path continues without Aren.** He has promised the bench to return and has no way to, and at Stage 1 he has no way to send or receive a word.
 
 Active promises:
 
-- The Bellweather Sundering's official account is false, and Edric Hunn signed the fatal cull order. In Volume 01's midpoint, the toll-house outgoing writ register names him.
+- The Bellweather Sundering's official account is false, and Edric Hunn signed the fatal cull order. In Volume 01's midpoint, the toll-house outgoing writ register names him. The counterfoil that proves a writ was sent, sealed, dated, and unsigned on the stub is now in the Archive.
 - The Gatehouse preserves living continuations and cannot reset them while conscious life exists.
-- Aren's mother Ilyra crossed a sealed path to save him; her exact fate remains intentionally unresolved and is not touched in Volume 01.
-- Aren and Mara Vey's slow-burn relationship begins as hostile cooperation over custody of the evidence.
+- Aren's mother Ilyra crossed a sealed path to save him; her exact fate is intentionally unresolved and untouched except as the verse whose pitch he has lost.
+- Aren and Mara Vey's slow-burn relationship begins as hostile cooperation over custody of the evidence, and the undated promise is the shape of it.
 - The final resolution is a distributed Charter of Many Roads, not a single ruler's perfect world.
 
-Current relationship pressure: Aren and Mara have a custody fight, not a romance. Tovan has stated the volume's refusal — he will mend the bridge, he will not hold the road. Aren's relation to Edric is unexamined devotion that Volume 01 begins to sour without resolving.
+Current relationship pressure: Aren and Mara have a filed exhibit, a broken undated promise, and a working disagreement about what may share a page. Tovan has stated the volume's refusal — he will mend the bridge, he will not hold the road, will not keep the secret, and will not be the man holding the span — and the refusal has not been answered. Aren's relation to Edric is unexamined devotion that has begun to sour without Edric appearing in person.
 
-Current power state: Stage 0 at the opening, and still Stage 0 at the end of Chapter 10. The first crossing pays the roadmark and the lost verse-pitch immediately, nine days of main-world calendar against a warning of three, and **three days of fever, the twenty-seventh to the twenty-ninth, breaking on the thirtieth**. Stage 1 requires a second crossing plus an informed local consent, so it is reached at Volume 01's climax (Chapters 41–47) and not before.
+Current power state: **Stage 0 with a roadmark, still unqualified.** The first crossing paid the roadmark, the lost verse-pitch, nine days of the main-world calendar against a saying of three, a crossed scar on the Old Toll sill, and three days of fever that broke on the thirtieth. One carryover exists: the motion of a narrow Mend, which came back in his fingers unbidden and cannot be reproduced without a stone, a narrow bound, and a teacher, and which he does not have. **No return stitch is prepared and none can be until the sill is mended with anchor-glass — two Steppe discs, four marks, money before cutting.** Stage 1 needs a second crossing plus an informed local consent, and is reached at the volume's climax (Chapters 41–47) and not before.
 
-Fixed story frame for Chapter 1: **YR 312, Mudmonth, the sixth day**, in Merefen at flood stage. The eleventh anniversary of the Sundering falls on the **nineteenth of Mudmonth**, in the storm that night. Volume 01 runs from the sixth of Mudmonth to the last week of Fallowmonth, about five months of main-world time, with three crossings whose longest path interval is six months and twenty days.
+Fixed story frame: **YR 312, Mudmonth to Fallowmonth**, in Merefen at flood stage. The eleventh anniversary of the Sundering fell on the **nineteenth of Mudmonth**, in the storm. Volume 01 runs from the sixth of Mudmonth to the last week of Fallowmonth, about five months of main-world time, with three crossings whose longest path interval is six months and twenty days.
 
-Batch 0001 day map, which the chapter cards now share: Ch 1 the sixth · Ch 2 the eleventh · Ch 3 the twelfth · Ch 4 the night of the eighteenth into the nineteenth · Ch 5–7 path time, no main-world clock · Ch 8 the twenty-seventh · Ch 9 the twenty-seventh to the thirtieth · Ch 10 the thirtieth. The thirteenth to the eighteenth is a stated cut with nothing in it.
+Day map so far, main world, Mudmonth YR 312: Ch 1 the sixth · Ch 2 the eleventh · Ch 3 the twelfth · Ch 4 the night of the eighteenth into the nineteenth · Ch 5–7 path time, no main-world clock · Ch 8 the twenty-seventh · Ch 9 the twenty-seventh to the thirtieth · Ch 10 the thirtieth. Markets in Mudmonth fall on the fourth, ninth, fourteenth, nineteenth, twenty-fourth and twenty-ninth; the market of the nineteenth was lost to the storm and the twenty-fourth was lost to the shut road, and the twenty-fourth was put off to the twenty-seventh. **Block 2 runs from the thirtieth of Mudmonth to the fourth of Greenmonth**, with the province's renewal on the second.
 
-Next planned phase: this fix pass closes `phase-001-outline`; the runner marks the phase done, and the next dispatch in sorted order is `workspace/volume-01/batch-0001/PROMPT.md` — Chapters 1–10 as finished prose. **Exactly one prompt may exist per batch.** Do not create a second Chapters 1–10 prompt, and do not recreate `workspace/phase-002-batch-plan/`, which was deleted for exactly that reason.
+Next planned phase: `workspace/volume-01/batch-0002/PROMPT.md` — Chapters 11–20 as finished prose, Block 2, "What the fever cost everyone else." **Exactly one prompt may exist per batch.** The Batch 0001 prompt directory stays on disk as the record of the phase that ran; do not rewrite it, and do not create a second prompt for Chapters 11–20 anywhere else.
 
 Standing pipeline guard: `state/phase-ledger.json` is controller-owned, is never written by the writer, is stale by design, and is not what dispatch reads — dispatch reads the sorted `workspace/**/PROMPT.md` files. `AGENTS.md` says to update the ledger and the writer agent's rule forbids it, and the runner's restore list does not include the ledger, so nothing will undo a careless edit. Leave it alone.
 
-Last change: the outline phase, plus a reviewer fix pass on it. `outline/volume-01.md` and `outline/batches/volume-01-batch-0001.md` were filled in from their structured templates; the fix pass then corrected the batch's date arithmetic, the fever's length, the brine-weight double spend, the empty-cradle contradiction, the Hushwater headcount, the two-guild collision, and the units, and recorded the decisions in `state/continuity.md` items 15, 22, and 24–31. The reviewer's findings and their dispositions are persisted at `reviews/volume-01/outline-phase-0001.md`. No prose, no volume plot change, and no controller file was edited.
+Last change: Batch 0001. Ten chapters written to `chapters/volume-01/`, then the batch summary, chapter summaries, continuity items 32–42, the relationship state, and the open-threads file were updated, and one next-phase prompt was created for Chapters 11–20. The Batch 0001 prompt directory was left in place as the record of the completed phase. No controller file was edited.
