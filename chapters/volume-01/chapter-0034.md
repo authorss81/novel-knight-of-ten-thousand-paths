@@ -6,11 +6,11 @@ He had come out at the fourth hour for the ordinary reason and had stopped at th
 
 **SCHEDULE OF THE SEASON'S INSPECTIONS.** The county of the Sable. By the hand of the county's surveyor. Returnable at the fourth hour of the sixth of Longlight, at the survey office in the county town, and not elsewhere. **A penny a mile and a shilling a day and the cart at the county's.**
 
-Forty-one structures on it. Eleven bridges. Four culverts. Two fords. Nine causeways. Fifteen pieces of raised road the county claims to keep and does not. And a column on the right-hand side of every line headed, in the surveyor's good hand, in eleven characters:
+Forty-one structures on it. Eleven bridges. Four culverts. Two fords. Nine causeways. Fifteen pieces of raised road the county claims to keep and does not. And a column on the right-hand side of every line headed, in the surveyor's good hand, in one word:
 
 *Keeper.*
 
-He read it four times on the second of Longlight standing at a gate in the sun with the tube in his hand, and then he went and did the work, and he came back to it at the eleventh hour at the end of the day, and it was still the same eleven characters.
+He read it four times on the second of Longlight standing at a gate in the sun with the tube in his hand, and then he went and did the work, and he came back to it at the eleventh hour at the end of the day, and it was still the same one word.
 
 ---
 
@@ -40,11 +40,11 @@ Then he did the work, because that is what he had decided and the deciding had t
 
 ---
 
-He started at the fourth hour of the Sunday at the north end of the county and worked south, and he is a man who counts load points under a structure before he enters it, and he counted them at every one of the forty-one, and he had been doing it since he was seventeen and he did not know that he did it.
+He started at the fourth hour of the Sunday at the north end of the county and worked south, and he is a man who counts load points under a structure before he enters it, and he counted them at every one of the forty-one, the way he had counted them at every one of the forty-one since he was seventeen.
 
-Nine bridges. Four of them were sound and he wrote *sound* and the date and the hour. Two were the Sable's own crossings and had been in his yard's memory since Mudmonth. One was a plank bridge on a mill leat with a rotted string and a sound abutment, and the sound abutment and the rotted string is the whole of what a culvert or a leat is: somebody in the middle of the last three generations cut a corner.
+Of the nine: four were sound, and he wrote *sound* and the date and the hour. Two were the Sable's own crossings and had been in his yard's memory since Mudmonth. One was a plank bridge on a mill leat with a rotted string and a sound abutment, and the sound abutment and the rotted string is the whole of what a culvert or a leat is: somebody in the middle of the last three generations cut a corner. The other two he had not reached the near side of and did not guess at.
 
-The Sedge Reach was the eleventh.
+The Sedge Reach was the ninth, and the ninth was the worst of the nine, and it was not on the list as a bad one.
 
 He was on the deck at the ninth hour with the tube open and the sheet on the low parapet weighted against the wind, and the deck was true to the chalk marks he had put there on the twenty-first of Greenmonth, and the third bay's pack joints were what he had said they would be, and the fourth bay's string course had a crack in it that was not structural and was going to be, and he measured it twice and wrote it down and wrote the word *watch* beside it, which is a word that means nothing in law and everything in the trade.
 
@@ -68,7 +68,7 @@ Aren Kest wrote:
 
 And then, underneath, in the same hand and the same ink, because a thing written underneath a thing is read underneath it:
 
-*DATUM. The bench mark at the low end of this deck was re-cut by hand on the sixth of Mudmonth, YR 312, by three men of this guild, the instrument being three days away, the minute being in the bench's book. By the same means in Mudmonth of YR 297, and in the twenty-eighth year, the minutes being in the bench's book. I have taken two readings off this mark. It reads a quarter of an inch below the height given in the bench's own figure of the twenty-eighth year. I cannot give the intermediate figure, which is not recorded, and the bench has never compared the three, and I have asked and been told that the bench has no wish to be compared. Every level in this county taken since the twenty-eighth year is therefore out by not less than a quarter of an inch, in the direction that makes a deck appear sounder and a crown appear higher than it is. Entered here on the county's paper, with the day and the hour, by Aren Kest, road warden of Merefen, in the presence of a man of the Merefen bridge guild. The bench has been asked for this figure for nine days and has declined. This is entered on Crown paper because it is Crown paper and not because the bench is wrong, which I have not alleged and do not know.*
+*DATUM. The bench mark at the low end of this deck was re-cut by hand on the sixth of Mudmonth, YR 312, by three men of this guild, the instrument being three days away, the minute being in the bench's book. By the same means in Mudmonth of YR 297, and in the twenty-eighth year, the minutes being in the bench's book. I have taken two readings off this mark. It reads a quarter of an inch below the height given in the bench's own figure of the twenty-eighth year. I cannot give the intermediate figure, which is not recorded, and the bench has never compared the three, and I have asked and been told that the bench has no wish to be compared. Every level in this county taken since the twenty-eighth year is therefore out by not less than a quarter of an inch, in the direction that makes a deck appear sounder and a crown appear higher than it is. Entered here on the county's paper, with the day and the hour, by Aren Kest, road warden of Merefen, in the presence of a man of the Merefen bridge guild. The bench has been asked for this figure for eleven days and has declined. This is entered on Crown paper because it is Crown paper and not because the bench is wrong, which I have not alleged and do not know.*
 
 He put the instrument away and the guild's man took his cap off.
 
@@ -78,7 +78,7 @@ He put the instrument away and the guild's man took his cap off.
 
 "I have said it, in the sheet, in your hand, and I have not said one word of it." He put his cap back on. "I am going to say the rest of it, and I am going to say it to you and not to the county, and then I am going to go home.
 
-"You asked me on the twenty-first to put a quarter of an inch in this bench's roll and I would not, and I have not, and I am not going to, and I have thought about it for nine days and I am still not going to and I want to tell you exactly why, because I have never in thirty-one years told anybody why I do the things I do in this building and I have started twice.
+"You asked me on the twenty-first to put a quarter of an inch in this bench's roll and I would not, and I have not, and I am not going to, and I have thought about it for eleven days and I am still not going to and I want to tell you exactly why, because I have never in thirty-one years told anybody why I do the things I do in this building and I have started twice.
 
 "A figure in my roll is a figure the bench owns. And if that figure is wrong — and I have not said it is wrong, I have said I cannot check it and I am sixty-one and the instrument is three days away — then it is wrong in a book in the guild house with my hand on the entry, and in ten years a man comes into that guild house and reads a quarter of an inch and says *in the twenty-eighth year, by the guild's own hand*, and he will be right, and it will be the third thing that guild has got wrong in a hundred years and the third one is the one that kills the reputation of the other two.
 
@@ -86,13 +86,13 @@ He put the instrument away and the guild's man took his cap off.
 
 "That is the whole of my trade and I have never been able to say it out loud in a yard. **A thing that is ours is a thing we are answerable for and a thing we cannot be corrected in. So keep the figures you can be got at.** I have been keeping this guild's wrong ones *ours* since I was thirty, because I did not know how to make them somebody else's, and you have made one somebody else's in eleven days by putting it on a sheet in a leather tube, and I want to tell you that it is the cleverest thing I have seen a road warden do in thirty-one years and I do not think you did it on purpose, and I am going to be irritated about it for a week and then I am going to be glad, and I am telling you both now so that you can be glad sooner."
 
-"A quarter of an inch in the direction that makes a deck look better than it is," said Aren Kest, "over a hundred and thirty years of it, is nine inches."
+"A quarter of an inch," said Aren Kest, "every level off that mark after the first re-cut, and every man since who took a figure off a book instead of off the stone. Copy a level once and it is a quarter out. Copy it twice and it is half. **There is no bench in this county that can tell me which of the three marks a level came off, and by the time there are four generations of that, it is nine inches.**"
 
-"Eight and three-quarters, if you take the twenty-eighth year's cut at a sixteenth, which nobody recorded, and a sixteenth is what a hand takes off a proud place. Call it nine. Call it a hand's width." He picked the tube up and gave it back. "Nine inches is four generations of men believing a deck is sounder than it is, and the fourth generation is us, and there is a man in this county who will build to a level taken off that mark this season because it is a good mark and it is the only one he has ever heard of. Sign it. Do not improve it. And then go and do the other thirty."
+"And if you ask me for the exact figure I will tell you that I have never once had it and neither has the bench, and a man who gives you an exact figure he has not measured is a man who is about to be asked for it in ten years by somebody with a rule." He picked the tube up and gave it back. "Call it nine. Call it a hand's width. And understand what I am telling you, which is that the stone is out a nail's width and it has been out a nail's width for thirty-five years, and **not one man alive in this county will ever find a nail's width on a mark a bench has dressed by hand.** The nine inches is not in the stone. The nine inches is in the heads. A man takes a level off that mark and writes it in his own book and does not write *this came off a mark that is a nail's width out*, because nobody ever told him, because telling would have to be in the book and the book says *re-cut in hand*. So he rounds it, because a round number is what a book takes. And the next man takes it off him and rounds it again, because he cannot check it either, and the third cannot, and by the fourth generation the figure in a young man's head is a hand's width out and the stone under his feet has never moved at all. **Four generations of men, and every one of them rounded it in his own favour.** And it is the heads that go on building for a hundred years. Sign it. Do not improve it. And then go and do the other thirty."
 
 ---
 
-The market was at the eleventh hour because the second of Longlight was a Sunday, and a Sunday market in Merefen is a small thing on the wharf road, and it was doing no business at all on the wharf road, because the wharf road was shut, and so a Sunday market in Merefen in Longlight is about forty stalls on four hundred yards of the Old Toll road and the Sedge Reach approach, which is a market that has been moved to a bridge it was not built for.
+The market was at the eleventh hour because the second of Longlight was a Sunday, and a Sunday market in Merefen is a small thing on the wharf road, and it was doing no business at all on the wharf road, because the wharf road was shut, and so a Sunday market in Merefen in Longlight is about forty of the forty-one stalls on four hundred yards of the Old Toll road and the Sedge Reach approach, which is a market that has been moved to a bridge it was not built for.
 
 He went through it at the eleventh hour on his way back to the gate with an empty tube and four days' work in him, and the woman who sold the good cheese from under the second awning said, to two other women, in the voice of a woman making a joke that is also a courtesy:
 
@@ -110,7 +110,7 @@ There were two words, and a market only had one pair of hands' worth of them, an
 
 So he said nothing, and he said it perfectly, and he walked down an approach in the sun in a market that had been moved onto a bridge it was not built for, being called the keeper of a crossing by a woman selling cheese.
 
-And then a man at the last stall, who was not a stranger and was not from the trade and had a week's wages in a bag, said the same eleven characters, meaning them, and a road warden corrected him, because that one was his business.
+And then a man at the last stall, who was not a stranger and was not from the trade and had a week's wages in a bag, said the same six letters, meaning them, and a road warden corrected him, because that one was his business.
 
 "No. I am the road warden. I am elected in this room in Frostmonth, I am paid a shilling a day when there is money in the trust and there has not been any since the fourth of Greenmonth, and the man who keeps that bridge is nine men in a bench who wrote *in abeyance* in their own book and cannot be asked for anything until they sit again, and the word you want for me is *keeper*, and the word you want for them is *bench*, and they are not the same and the difference is four marks and six a year and a crossing four hundred yards long."
 
@@ -138,7 +138,7 @@ He read it back twice and put it in the tube, and then he sat in the room with t
 
 *And the room is two shillings a month and it is due on the first of Longlight, which is tomorrow, and I have the money for it, and I have written that sentence out because I have written out the other four five times this month and a man who only writes down the figures that are wrong is doing a kind of arithmetic that gets him into a court.*
 
-*And the glass is four marks the pair, money before cutting, and four marks is sixteen shillings, and there is no fresh Steppe glass north of Merefen before Longlight, and it is the second of Longlight, and I have eleven shillings and fourpence, and I am four shillings and eightpence short of a pair of discs, and there is no man in this county who will cut them without the money, and there is no money in this county that is mine.*
+*And the glass is four marks the pair, money before cutting, and four marks is sixteen shillings, and there is no fresh Steppe glass north of Merefen before the Steppe road comes down in Frostmonth, and it is the second of Longlight, and I have eleven shillings and fourpence, and I am four shillings and eightpence short of a pair of discs, and there is no man in this county who will cut them without the money, and there is no money in this county that is mine.*
 
 ---
 

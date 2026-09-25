@@ -4,11 +4,11 @@ The twenty-first of Longlight was a Friday, and a Friday in Merefen is a market 
 
 She counted because she could not stop herself and because a keeper of records who has entered a report in a fair hand with a date and an hour on it is entitled to know how many people have heard it. That is not a service to the office. It is the one thing she is good at that nobody has ever paid her for.
 
-The board had nine lines on it. Four had the clerk's rule over them: the day, the tide, the two notices about a culvert, and a line about a load of stone expected at the mill.
+The board had ten lines on it. Four had the clerk's rule over them: the day, the tide, the two notices about a culvert, and a line about a load of stone expected at the mill.
 
-Five did not.
+Six did not.
 
-The three standing ones were there. *Ask Kest, he was gone.* *Road warden in the cart on Friday. Asked nobody anything.* And under them both, a small one in a different hand: *Ask him what the three and a half is for.*
+The four standing ones were there. *Ask Kest, he was gone.* *Road warden in the cart on Friday. Asked nobody anything.* And under the first, a small one in a different hand: *Ask him what the three and a half is for.* And last, on its own line and no longer new, because the clerk had written it twice since and neither time had been asked: *Road shut since the 19th of Mudmonth. Ask the road warden why.*
 
 And there were two new ones, and both of them were about a bridge, and neither of them had a name in them, and both of them had been on the board long enough to have been wiped over and re-chalked by whoever put them there.
 
@@ -28,7 +28,7 @@ The second version had the two halves of the town's whole life — a bridge in a
 
 She went and found Mounce at the tenth hour at a table in the tap-room on Weir Street, eating, with a barge's chalk on his right forearm and a coat that had been wet eleven days out of thirteen, and she did not go alone, because she had learned something in Mudmonth about a woman with a press and a lamp walking up alone to a table in a room where a man is telling a story.
 
-Sarn Oyelaran came. And before they came, Sarn had the outer room cleared, and the day-book open, and the office's paper out, and Mara Vey had written at the head of it the words that a keeper of records writes at the head of a page when she means to be exact and cannot be:
+Sarn Oyelaran came. And before she came, Sarn had the outer room cleared, and the day-book open, and the office's paper out, and Mara Vey had written at the head of it the words that a keeper of records writes at the head of a page when she means to be exact and cannot be:
 
 *Entered as reported. Limits stated in full. No opinion.*
 
@@ -54,7 +54,7 @@ Sarn Oyelaran came. And before they came, Sarn had the outer room cleared, and t
 
 "I will write that you did not go and read it, and I will write it in exactly those words, and thank you."
 
-"The steward told me the number. That is how I have it. He was the one who let the barge through the second time and would not let it through the first, and he has been at that toll-house thirty years and he keeps the mark's book when they are not in it, because they leave the book and the boy takes it, and he does not read it, and he told me eleven and he told me it was eight at the last one." He stopped. "And he was talking about the number. He was not talking about a bridge going. I want that in it, because I have said the other thing in three rooms since Thursday and I would like somebody to write down that I have said the other thing and not him."
+"The steward told me the number. That is how I have it. He was the one who let the barge through the second time and would not let it through the first, and he has been at that toll-house thirty years and he keeps the mark's book when they are not in it, because they leave the book and the boy takes it, and he does not read it, and he told me eleven and he told me it was eight at the last one." He stopped. "And he was talking about the number. He was not talking about a bridge going. I want that in it, because I have said the other thing in three rooms since Monday and I would like somebody to write down that I have said the other thing and not him."
 
 "What is the other thing you have been saying?"
 
@@ -62,9 +62,9 @@ Sarn Oyelaran came. And before they came, Sarn had the outer room cleared, and t
 
 "You have not been paid for saying it."
 
-"I have been paid for saying it," said Mounce. "That is the whole of the last five days. I have been out of work since I got off the water because there is no ninth load and the tenth is a field job at two shillings the day and the man that owns me will not take a boat on the salt cut for nothing. Four of those six days I have had a load because people in this town wanted to know about a bridge, and one man in the tap-room on Thursday put money in my hand and I have not spent it and I am not going to, and I am telling you that because you are going to find it out of the room in about a week and I would rather it was in the book."
+"I have been paid for saying it," said Mounce. "That is the whole of the last five days. I have been out of work since I got off the water because the ninth was the last of it and the next thing on the list is a field job at two shillings the day and the man that owns me will not take a boat on the salt cut for nothing. Four of those six days I have had a load because people in this town wanted to know about a bridge, and one man in the tap-room on Monday put money in my hand and I have not spent it and I am not going to, and I am telling you that because you are going to find it out of the room in about a week and I would rather it was in the book."
 
-Sarn Oyelaran wrote all of that down with the hour against it and read it back, and he made her read the paragraph about the four days back to him, and then he signed under it, and Mara Vey put the fourpence on the table and entered the fourpence in the day's column and told him it was a fee for an hour and his time and not for the four days of work, and he took it and said it was the first honest wage he had had in six weeks and that she was not to be doing that again.
+Sarn Oyelaran wrote all of that down with the hour against it and read it back, and she made Mara Vey read the paragraph about the four days back to her, and then she signed under it, and Mara Vey put the fourpence on the table and entered the fourpence in the day's column and told her it was a fee for an hour and her time and not for the four days of work, and she took it and said it was the first honest wage she had had in six weeks and that she was not to be doing that again.
 
 Then she asked him the four questions, and she asked them in the order she always asked them, and the third one is the one that makes a witness feel foolish and she apologised for it in plain words afterwards and has apologised for it every time since Mudmonth.
 
@@ -84,7 +84,7 @@ Then she asked him the four questions, and she asked them in the order she alway
 
 Mounce stopped and thought about it, and it took him a real amount of thinking, and Sarn Oyelaran's pen did not move.
 
-"He said: the Crown's been marking the north crossing two year since before your father. He said: they mark the second pier. He said: the ring's gone off a bit since the last one. And then I said, how much, and he said eleven, and I said, and what was it, and he said eight." Mounce's hand went flat on the table. "He never said the word *bridge*. He said the *pier*, and he said the *ring*, and he said *gone off a bit*. I said bridge. He said pier. I said crack. He said ring. I said going. He did not say going. **He has not said going once in my hearing and I have not said it in his.** I said it on Thursday night in this room to a man with bracken and he is not a man who would have known the difference, and I have said it twice since, and I would like it written that I have said it four times and that the man it came from has never been asked."
+"He said: the Crown has been marking the north crossing twice a year since before your father. He said: they mark the second pier. He said: the ring's gone off a bit since the last one. And then I said, how much, and he said eleven, and I said, and what was it, and he said eight." Mounce's hand went flat on the table. "He never said the word *bridge*. He said the *pier*, and he said the *ring*, and he said *gone off a bit*. I said bridge. He said pier. I said crack. He said ring. I said going. He did not say going. **He has not said going once in my hearing and I have not said it in his.** I said it on Monday night in this room to a man with bracken and he is not a man who would have known the difference, and I have said it twice since, and I would like it written that I have said it four times and that the man it came from has never been asked."
 
 "Write that," said Mara Vey, "exactly as he has said it, and do not improve one word of it, and I am sorry for the third question, and I am going to say the reason for it now, once, because you have earned it and because in four years I have never told a witness why I ask the same question twice.
 
@@ -198,6 +198,6 @@ She took a sheet of the office's own paper and wrote, in the fair hand, in the d
 
 "Read it back," said Sarn Oyelaran.
 
-"It is four lines and it says nothing," said Mara Vey, "and it is going to be the most important page in this office's day-book for a year, and nobody who reads it will know that, and that is what a day-book is for. Read it back and initial it and put the hour on it, and then go home, and then come back at the seventh hour tomorrow, because I want to do the twelfth of Rainmonth and I want somebody here who has read all three of the sheets when I do it."
+"It is four lines and it says nothing," said Mara Vey, "and it is going to be the most important page in this office's day-book for a year, and nobody who reads it will know that, and that is what a day-book is for. Read it back and initial it and put the hour on it, and then go home, and then come back at the seventh hour tomorrow, because I want to do the return of the ninth of Rainmonth and I want somebody here who has read all three of the sheets when I do it."
 
-Sarn Oyelaran read it back, and initialled it, and put the hour on it, and went home, and the filing room over a salt merchant in Merefen went dark for the night with a report about a bridge in a world that does not exist in it, and a stub of a writ that was refused on a deck eleven years ago, and a sentence on a chalked stair in a lane that said *ask the keeper, the keeper'll have it written down with the hour on it*, and nobody in the town had the least idea that any of the three had anything to do with the other two, and the only person in Neyra who did was on a stair with a lamp in her hand, and she had written the reason down in a fair hand with a date on it, and the reason was that being right four times is a woman who has begun to price it, and she had started pricing it, and she had noticed about an hour ago, and in this county that was the only thing anyone had done all day that was not in anybody's account.
+Sarn Oyelaran read it back, and initialled it, and put the hour on it, and went home, and the filing room over a salt merchant in Merefen went dark for the night with a report about a bridge in a world that does not exist in it, and a stub of a writ that was refused on a deck eleven years ago, and a sentence on a chalked stair in a lane that said *ask the keeper, the keeper'll have it written down with the hour on it*, and nobody in the town had the least idea that any of the three had anything to do with the other two, and the only person in Merefen who did was on a stair with a lamp in her hand, and she had written the reason down in a fair hand with a date on it, and the reason was that being right four times is a woman who has begun to price it, and she had started pricing it, and she had noticed about an hour ago, and in this county that was the only thing anyone had done all day that was not in anybody's account.

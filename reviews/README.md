@@ -2,3 +2,4 @@ Reviewer output lands in `logs/`, which is gitignored and leaves no durable reco
 
 - `volume-01/outline-phase-0001.md` — the Volume 01 outline and Batch 0001 cards. All 21 findings applied, in two passes.
 - `volume-01/batch-0001.md` — the review of the first ten chapters, with the disposition of all 13 findings. Applied in one pass; two findings (11, dialogue tags, and the two proposed remedies for 10, Ch 10's length) were measured and deliberately declined, with reasons recorded.
+- `volume-01/batch-0004.md` — **two reviews of the same phase.** The first returned 38 findings, 29 applied. The second reviewed the result of that pass and returned 28 must-fixes, 17 nits and 4 defects in the next-phase prompt; **all applied**. The second found that the first pass had left several fixes it claimed to have made — most importantly Chapter 40's coda was still opening a Gatehouse crossing while two state files asserted the batch had none. Read the second review first.

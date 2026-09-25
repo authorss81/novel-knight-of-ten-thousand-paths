@@ -16,13 +16,13 @@ Then he went down the road to the watch house, and the thing that had happened i
 
 ---
 
-The watch house on Weir Street had a door that was painted the watch's colour and a bench outside it and a board, and the board was not a market board and it had a Crown's frame round it, and on the board on the morning of the tenth of Longlight there was a notice nailed up on the eighth with four nails and a seal, and it was the second time in eleven weeks that anybody in Merefen had put a Crown seal on a thing in a public place, and the first had been the grey wax on a post four hundred yards up the Old Toll road.
+The watch house on Weir Street had a door that was painted the watch's colour and a bench outside it and a board, and the board was not a market board and it had a Crown's frame round it, and on the board on the morning of the tenth of Longlight there was a notice dated the eighth and nailed up by the watch captain himself on the ninth at the second hour, with four nails and a seal, and it was the second time in eleven weeks that anybody in Merefen had put a Crown seal on a thing in a public place, and the first had been the grey wax on a post four hundred yards up the Old Toll road.
 
 **The watch of Merefen is commended.** By the marshal's office, the eighth of Longlight, YR 312, for the execution of a lawful instruction in the matter of an object, at first light on the nineteenth of Mudmonth, in a county in which the object had been held in use among a company of persons.
 
 And at the foot of it, in the same wax, the same device: a hand laid flat on a book.
 
-Aren Kest read it twice on the outside of a watch house at the fifth hour of the morning and worked out, standing up, in about nine seconds, that the object had been described to two hundred miles of Crown paper as being in use among a company of persons, and that the bell of a bridge that four hundred people crossed every fourth day had been written down in a provincial building as a thing in the middle of people, and that this was the second time a Crown instrument in this county had used the same phrase about the same object in a fortnight.
+Aren Kest read it twice on the outside of a watch house at the fifth hour of the morning and worked out, standing up, in about nine seconds, that the object had been described to two hundred miles of Crown paper as being in use among a company of persons, and that the bell of a bridge that four hundred people crossed every fourth day had been written down in a provincial building as a thing in the middle of people, and that this was the second time a Crown instrument in this county had used the same phrase about the same object in about two months.
 
 *Held in use among a company of persons.* That is the phrase in the seizure order. That is what has been on the storehouse door since the nineteenth of Mudmonth. And the bell was on a cradle on a bridge abutment and four hundred people crossed that bridge over it and no one had ever in nineteen years given it a thought, and somebody in a provincial office has read *held in use among a company of persons* and understood it to mean *in the middle of people*, and has built a commendation on it, and the commendation is nailed to the outside of a watch house with four nails and a seal.
 
@@ -52,9 +52,9 @@ Rell had not sent for him. Rell had come out onto the step at the fifth hour of 
 
 "I could and I will not, and I want you to understand the shape of why, because you are the only man in this town who will do anything with the shape of a thing. If I take that paper down, then I am a watch captain who nailed up an honour and took it down, and that is a story, and a story is a thing a person can be got to change. If I leave it up, then it is a fact, with a date on it and four nails in it, and the whole of what it is doing in this town is being done to a piece of paper and not to a man. A fact with a date on it can be looked at. I have read that out of a drawer in a toll-house this month. I would not be surprised if somebody in this county has written it down."
 
-Then he took a folded paper out of inside his coat and he did not unfold it, and he held it, and Aren Kest understood that a man was about to be told something and wanted to have asked a question first.
+Then he took a folded paper out of inside his coat and he did not unfold it, and he kept it folded, and Aren Kest understood that a man was about to be told something and wanted to have asked a question first.
 
-"I have had this since the seventh hour yesterday," said Rell. "It is not the same paper as the other one. The other one was sealed and came by courier and I was told to keep it shut, and this one is sealed and came by the ordinary post from the county town with a watchman's hand on the wrapper, and it is from the same office, because the wax is the same wax, and I have now seen that device three times in this town in eleven weeks and I have got it in a book of my own at home with the three dates on the same page.
+"I have had this since the second hour this morning," said Rell. "It is not the same paper as the other one. The other one was sealed and came by a Crown's courier out of the marshal's office and I was told to keep it shut, and this one is sealed and came by the county's own man on a horse from the county town with a watchman's hand on the wrapper, because the county does not trust its own bag with a Crown's wax and has not since I came, and it is from the same office, because the wax is the same wax, and I have now seen that device three times in this town in eleven weeks and I have got it in a book of my own at home with the three dates on the same page.
 
 "You are going to want to read it, and I am not going to let you, and I am not going to tell you what is in it, and I am going to tell you the reason for both of those and then I am going to tell you what I have done with it, and I would rather tell you on this step than in my office because in my office it is a thing a watch captain has done and on this step it is a man standing in the rain next to another man who has come to him on his own."
 
@@ -66,7 +66,7 @@ Then he took a folded paper out of inside his coat and he did not unfold it, and
 
 Rell unfolded it, read four lines of it, and said the four lines, in order, without lowering the paper, because a man who reads a paper he has been given and has read before is not the same as a man quoting something from memory, and both of them understood that and neither of them said so.
 
-"It is dated the ninth of Longlight, which is yesterday, and it is stamped at the second hour, which is the same hour a writ of enquiry was stamped this morning in a room over a salt merchant, and I do not know that and I am telling you that I do not know it, and you may go and find out and I will not have said otherwise.
+"It is dated the ninth of Longlight, which is yesterday, and it is stamped at the second hour, which is the same hour a writ of enquiry was stamped yesterday morning in a room over a salt merchant, and I do not know that and I am telling you that I do not know it, and you may go and find out and I will not have said otherwise.
 
 "First: the object is held under the seal of this office, in the custody of the watch of Merefen, in a storehouse by the fish weir, and this office is satisfied that the custody has been lawful and is content that it continue so.
 
@@ -82,7 +82,7 @@ Nobody said anything for a moment. It was raining on the step of a watch house i
 
 ---
 
-"I have carried it out," said Rell. "I have carried it out this morning at the fifth hour, and I want to tell you how, and I have had a night to decide how, and I have not slept, and I have decided to do it the way you would do it.
+"I have carried it out," said Rell. "I have carried it out this morning at the fifth hour, and I want to tell you how, and I have had two hours to decide how, and I have not slept, and I did not sleep last night either and that is a different matter, and I have decided to do it the way you would do it.
 
 "First: the seal on the storehouse door stays and does not get renewed, because renewing a seal on a storehouse door is a thing a frightened man does and I am not going to do it. Second: the storehouse door stays open in the day, as it has been since the nineteenth of Mudmonth, because a locked door is a change and a change is a record and a record is what I have been made into. Third." He put the paper into his coat again. "I have had the object moved this morning at the fourth hour, before I came out on this step, from the storehouse by the fish weir into a room in this building, and the seal has been carried with it and re-laid on the new door, and the room is one this watch uses for a prisoner, and it is the only room in this building that has a lock and a man in it at all times, and I have done that for one reason and I am going to give you the reason and then I am going to tell you why it was the wrong reason and I have not worked out how to do both of those in the same breath.
 
@@ -122,7 +122,7 @@ He said it out loud on the step, in the rain, to a man he had arrested in a diff
 
 "Not who is responsible. Not who is to blame. Who holds it. Because in my trade that is not the same question and it is the only one that has ever mattered, and I have watched a great many men lose an argument because they were asked who was responsible and answered that instead.
 
-"And here is the trade's reason, and it is the only reason I have got, and it is not clever and it is thirty-one years old. A thing that is held by nobody at three o'clock in the morning is a thing that was not held. Not unlawfully. **Not held.** And there is no paper in the world that fixes it, because paper is written by people who are awake, and a chain of custody is a claim about a world in which somebody is always in the room, and that world stopped being this world's world the moment the last man in it went to bed.
+"And here is the trade's reason, and it is the only reason I have got, and it is not clever and it is older than I am. A thing that is held by nobody at three o'clock in the morning is a thing that was not held. Not unlawfully. **Not held.** And there is no paper in the world that fixes it, because paper is written by people who are awake, and a chain of custody is a claim about a world in which somebody is always in the room, and that world stopped being this world's world the moment the last man in it went to bed.
 
 "You have done the right thing. You have made the record unbroken, and I have never in eleven years known a man in your position do that, and it is the correct professional act, and it is a legal lie, and both of those are true at once, and you knew that when you did it at four o'clock this morning and you came out on this step and told me, and I do not think there is another watch captain in this county who would have told me."
 

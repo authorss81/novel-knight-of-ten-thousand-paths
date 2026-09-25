@@ -10,7 +10,7 @@ He looked at the tally and at the fourth mark and the quarter and did the other 
 
 "Which means that the second load, if it comes, is a fortnight's wages for four men, and a factor's margin in a bad month, and the difference between those two things is my margin, and I have not got a margin, and I have got a yard with four men in it and a rate and a Friday."
 
-The gate was open. The trestles were up. The iron went on the stone every four seconds and had gone on every four seconds since the sixth of Mudmonth, except for four days, and the four days were a bridge that was holding, and neither brother had said the word *holding* in a yard in ten weeks.
+The gate was open. The trestles were up. The iron went on the stone every four seconds and had gone on every four seconds since the sixth of Mudmonth, except for nine days, and the nine days were a bridge that was holding, and neither brother had said the word *holding* in a yard in ten weeks.
 
 ---
 
@@ -120,7 +120,7 @@ He counted the crew a crossing in abeyance would need, and what it would cost, o
 
 And that seven a year has come out of a wharfage of fourpence a load for two generations, and it has been paid every year, and this year it is not going to be paid, and the year after it will be against nothing, because the wharfage is suspended by a Crown's letter from the first of Longlight and there is nothing behind the wharfage but the trust, and the trust is in abeyance.
 
-"So the honest figure is: this crossing loses about four marks and six a year of maintenance and about eight marks and ten shillings in a winter half of tolls, and nobody in this town can pay either, and neither of those numbers is the reason anything has gone wrong and I want that written down somewhere by somebody who is not me.
+"So there are two figures and not one, and I have put them both down because a man who has just caught himself rounding is not to be trusted with the number he was rounding to. This crossing costs about seven marks a year to keep it the way it has been kept, and about four marks and six a year to keep it the way this bench has now resolved to keep it, and the second is the one that goes in the resolution, because it is the cheaper and because four is what a book takes. And on the other side of it the crossing loses eight marks and ten shillings in a winter half of tolls. Nobody in this town can pay either, and neither of those numbers is the reason anything has gone wrong and I want that written down somewhere by somebody who is not me.
 
 "The reason anything will go wrong is that in about a year there is going to be a hole in the guild's roll exactly the shape of this year, and in about six years after that there is going to be a hole in the roll the shape of six years, and the man who reads it in Fallowmonth in ten years is going to be perfectly correct to say that nobody kept this crossing, and there is going to be no page anywhere in this county that says anybody tried, and the thing that would be on the page is a handrail."
 
@@ -216,10 +216,10 @@ Sarrat stood in the gateway with the coat over his arm and did not say anything 
 
 ---
 
-He shut the yard at the ninth hour and hung the tally on its nail with the mark's name on it and the hour beside it, and then he did a thing he had never done in nineteen years of keeping this book, which was to go back to the eighth page and read two entries in his own hand in the lamplight, one of them six weeks old and one of them two hours old, with a rule over both.
+He shut the yard at the ninth hour and hung the tally on its nail with the mark's name on it and the hour beside it, and then he did a thing he had never done in nineteen years of keeping this book, which was to go back to the eighth page and read the two entries in his own hand in the lamplight, the stonecutter's fragment six weeks old and the line he had ruled over it two hours old, with a rule over each.
 
 The ninth ton was dressed and carted on the twenty-ninth and was at the mill on the thirtieth, and the factor's four marks were due at the fourth hour of the seventh of Longlight, and the wages came out of the cutting, and the second load would be a fortnight's wages for four men, and the second load might or might not come, and the man who would decide it was going to sleep in a house two days south of here with a coat over his arm and a letter to write that would not mention a road.
 
-Tovan Kest shut the book and put it on its shelf, and where the seat and the rail were there was a column for the day's weather and a column for the day's hours and a space at the foot of the page that he had ruled, without knowing he was doing it, at about the fourth hour of a Thursday, for things that were neither of them.
+Tovan Kest shut the book and put it on its shelf, and where the seat and the rail were there was a column for the day's weather and a column for the day's hours and a space at the foot of the page that he had ruled, without knowing he was doing it, at about the fourth hour of a Wednesday, for things that were neither of them.
 
 It was the smallest space he had ever ruled in a book, and it was the only one in the county that had anything in it.
