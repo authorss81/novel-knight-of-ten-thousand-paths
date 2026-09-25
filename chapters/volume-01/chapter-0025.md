@@ -30,7 +30,7 @@ The room smelled of ink and lamp oil and cold ash and about eighty years of men 
 
 Alis Merrow looked at him for a moment and then laughed, once, without any pleasure in it at all.
 
-"Six days," he said. "You have been in this city six days and you have worked the fourth camp and the second pier and you have not once asked me for the page, and I told a bench-clerk to your face on the ninth that you were going to come and ask me for it, and you have not. So either you have forgotten, which I do not believe, or you have decided to want it more."
+"Twelve days," he said. "You have been in this city twelve days and you have worked the fourth camp and the second pier and you have not once asked me for the page, and I told a bench-clerk to your face on the ninth that you were going to come and ask me for it, and you have not. So either you have forgotten, which I do not believe, or you have decided to want it more."
 
 "I have decided to want it more," said Aren Kest, "and I would like to be able to tell you that I have not noticed myself doing it."
 

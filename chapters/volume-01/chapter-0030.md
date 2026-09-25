@@ -1,6 +1,6 @@
 # Chapter 0030
 
-He came up out of the sill of the Old Toll crossing at the first light of the sixteenth of Greenmonth and got as far as the third setting and sat down on it with his back against the parapet, and stayed there for an hour and a half. He could not get up, and did not try again for about forty minutes, and in the hour and a half he did three things: he wrote the hour and the state of the seat, and he looked at the empty cradle for a while, and he listened to a town get on with a Wednesday, which is a thing a town does whether or not there is a man in the world who has been in a city of four thousand, and which is the first sound of his own country he had heard in nineteen days that had not come out of a conversation.
+He came up out of the sill of the Old Toll crossing at the first light of the sixteenth of Greenmonth and got as far as the third setting and sat down on it with his back against the parapet, and stayed there for an hour and a half. He could not get up, and did not try again for about forty minutes, and in the hour and a half he did three things: he wrote the hour and the state of the seat, and he looked at the empty cradle for a while, and he listened to a town get on with a Friday, which is a thing a town does whether or not there is a man in the world who has been in a city of four thousand, and which is the first sound of his own country he had heard in nineteen days that had not come out of a conversation.
 
 There was no fold in the air. There was no voice. There was a cold river and a wet road and the smell of the fen at six in the morning and a man sitting on a bridge in his own clothes, and the sky over the west channel going the colour of a bad coin, and nothing whatever happening.
 
@@ -22,11 +22,11 @@ They got him as far as the cart. It took a quarter of an hour and neither of the
 
 At the top of Weir Street a boy said a thing about the eel-man at the market, and a woman said a thing about the bench, and neither of them said anything about the road warden sitting in a cart, and that was not kindness, it was a town that had said the chalk and had moved on to the day's trade.
 
-In the room at the back of Tovan Kest's yard, which is the warm one, at the fourth hour, Aren Kest asked for a pen and Mara Vey brought him one, and he wrote out, on a sheet of the office's paper, with the hour in the corner, the whole of it, in the flat hand, and then he read it out loud to a keeper of records who had to write it down.
+In the room at the back of Tovan Kest's yard, which is the warm one, at the fourth hour, Aren Kest asked for a pen and Mara Vey brought him one, and Tovan Kest took the week-book off the nail and put it on the table and stood against the door, because a thing that is sworn wants a second hand on it and his was going to be one, and it was written out, on a sheet of the office's paper, with the hour in the corner, the whole of it, in the flat hand, and then read out loud to a keeper of records who had to write it down.
 
 "Nineteen days," he said. "I was nineteen days in that world and six days have gone in this one, and the ninth was the ninth and this is the sixteenth, and the saying in this country is three days out and three days back, and I have been nine days in the calendar for every six I spent there and I have checked it four times and it does not add up, and I have written that down, and I am not going to stand in a room and pretend it does.
 
-"The glass. Four marks the pair, and I have nothing. A mark and a quarter of it was mine and I entered it as paid and not as credited. Two marks and three quarters of it is a wage advance against my brother's cutting contract at eight pence a day, carried on if the cutting fails, entered on the guild roll as a debt and not as a surety, and it is in his book as a wage and not a favour, and it is a debt of mine to him and not a debt of his to me, and I have not paid a penny of it and I will not be able to for a long time. Eleven days of crew wages are owed by the trust and the trust has nothing in it until the frost, and eleven days of that came to my brother and not to the trust, and the town bill for those nine days is eleven marks and four pence and it is on a page of its own and I have never once let it share a page with anything.
+"The glass. Four marks the pair, and I have nothing. A mark and a quarter of the four was mine and I entered it as paid and not as credited. The other two marks and three quarters is a wage advance against my brother's cutting contract at eight pence a day, carried on if the cutting fails, entered on the guild roll as a debt and not as a surety, and it is in his book as a wage and not a favour, and it is a debt of mine to him and not a debt of his to me, and I have not paid a penny of it and I will not be able to for a long time. Eleven days of crew wages are owed by the trust and the trust has nothing in it until the frost, and eleven days of that came to my brother and not to the trust, and the town bill for those nine days is eleven marks and four pence and it is on a page of its own and I have never once let it share a page with anything.
 
 "The fever. Three days the first time, the twenty-seventh to the twenty-ninth of Mudmonth, broken on the thirtieth. Three days now, from the fifteenth into the sixteenth, and it will break on the eighteenth if it is the same fever, and I have not got anybody to check that against but a day-book.
 
@@ -98,7 +98,7 @@ Mara Vey sat quite still for a moment, and then she said:
 
 "You are allowed to enter it," said Aren Kest, "and you are not allowed to make it a condition of anything, and I am not going to be able to promise you I will stop, and I am not going to be able to promise you I will not."
 
-"I did not ask for a promise." Mara Vey wrote the hour in the margin and capped the ink. "I asked a man with a fever on him to hand me one true thing about himself that he had been managing for two months, and he has, and I have written it down, and he is going to lie in that room for two more days and I am going to let him, and on the eighteenth I am going to bring him the third thing in this file, which is the shelf register of the fourth press with a date on it and no name, and the fourth thing, which is a claim number I entered on my own account on Saturday against nobody, and he is going to read both of them and he is going to tell me they are a mess."
+"I did not ask for a promise." Mara Vey wrote the hour in the margin and capped the ink. "I asked a man with a fever on him to hand me one true thing about himself that he had been managing for two months, and he has, and I have written it down, and he is going to lie in that room for two more days and I am going to let him, and on the eighteenth I am going to bring him the third thing in this file, which is the shelf register of the fourth press with a date on it and no name, and the fourth thing, which is a claim number I entered on my own account on Friday against nobody, and he is going to read both of them and he is going to tell me they are a mess."
 
 "They are a mess," said Aren Kest.
 
@@ -124,11 +124,11 @@ It read:
 
 *Bell taken by the crown on the 19th. Nobody asked. Ask Kest, he was gone.*
 
-*Road warden in the cart on Tuesday. Asked nobody anything.*
+*Road warden in the cart on Friday. Asked nobody anything.*
 
 Nobody had wiped it, and Tovan Kest was not the sort of man who wiped a board, and there was one line with a rule over it and two without, and a board is a document a town keeps without knowing it is keeping one, and in a year somebody was going to count those lines and it was going to be the only paper in Merefen that anybody could put in front of a bench.
 
-He went to the toll-house at the second hour, because a man goes where the Crown's paper is, and the toll-clerk let him in and showed him a drawer, and on the outside of the drawer, in chalk, in an old man's good hand, there was a date and an hour and five words.
+He went to the toll-house at the second hour, because a man goes where the Crown's paper is, and the toll-clerk let him in and showed him a drawer, and on the outside of the drawer, in chalk, in an old man's good hand, there was a date and an hour and a sentence in which the word *no* stood three times.
 
 *Crown letter, twelfth of Greenmonth, YR 312, second hour. Addressed to the road-keeper of Merefen. No such office in this county. Not received. Not answered.*
 
@@ -176,9 +176,9 @@ He walked back down Weir Street at the sixth hour on the twentieth of Greenmonth
 
 The road did what it always did. The town said the chalk.
 
-He went and looked at the market board, which is not a square but a board a clerk wipes every morning, with a rule over every notice, where a line without a rule is a thing somebody has put there on purpose. There were five lines on it. Two had rules. Three did not. One of the three said *Ask Kest, he was there*, and one said *Ask Kest, he was gone*, and the third said *Road warden in the cart on Tuesday. Asked nobody anything*, and the man who had written that one was no longer a man who had ever been in a room with him, and it would still be on the board in Fallowmonth, and in Embermonth, and on a day in a year when somebody wanted to know what this town had believed.
+He went and looked at the market board, which is not a square but a board a clerk wipes every morning, with a rule over every notice, where a line without a rule is a thing somebody has put there on purpose. There were five lines on it. Two had rules. Three did not. One of the three said *Ask Kest, he was there*, and one said *Ask Kest, he was gone*, and the third said *Road warden in the cart on Friday. Asked nobody anything*, and the man who had written that one was no longer a man who had ever been in a room with him, and it would still be on the board in Fallowmonth, and in Embermonth, and on a day in a year when somebody wanted to know what this town had believed.
 
-He went and looked at the drawer in the toll-house, which had a Crown's letter in it and five words in chalk on the outside of it, and the toll-clerk let him stand and read the chalk without saying anything, which was the correct response and the only one that would have been any use.
+He went and looked at the drawer in the toll-house, which had a Crown's letter in it and a date and an hour and three noes in chalk on the outside of it, and the toll-clerk let him stand and read the chalk without saying anything, which was the correct response and the only one that would have been any use.
 
 And then Aren Kest went and got his own notebook out of the coat he had crossed in, and stood on the wharf road where the road was shut, and read the four lines he had written at the fourth camp on the back of his own entry, and then he did a thing he had not done in nineteen days and had not expected to do, which was to turn the page forward instead of back.
 

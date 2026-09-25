@@ -54,11 +54,11 @@ Aren came in at the ninth with the market still going on the other side of the s
 
 "Second."
 
-"A witness's sight of a thing set, in a tradesman's hand, with the date and the hour, and the seat, and the maker's hand, and one line at the foot that says a page cannot be asked to turn round." The clerk read the entry and then read it again, which he had not done for anybody's line. "I have entered it and I have entered the whole of it, and I have not entered a reason, and I will not be asked for a reason by this bench or by any office, because I do not have one and a man in my position who makes one up is worse than a man who writes none."
+"A witness's sight of a thing set on the eighth, in a tradesman's hand, with the date and the hour, and the seat, and the maker's hand, and one line at the foot that says a page cannot be asked to turn round." The clerk read the entry and then read it again, which he had not done for anybody's line. "I have entered it and I have entered the whole of it, and I have not entered a reason, and I will not be asked for a reason by this bench or by any office, because I do not have one and a man in my position who makes one up is worse than a man who writes none."
 
 "Correct," said Aren Kest.
 
-"I have it written as *no reason given*," said the clerk, "which is the third time this month that phrase has gone on a roll in this town and which is beginning to sound like a habit."
+"I have it written as *no reason given*," said the clerk, "which is the second time this month that phrase has gone on a roll in this town, and there will be a third before the month is out. I can tell you that much of it now, and I would rather told it than have anybody surprised."
 
 Then the door at the back opened, and two people came in, and the room's whole weather changed, and Aren understood immediately that the reeve of Merefen had come to the guild bench on a market morning and that this was not a thing she did often, and that she had sent for it rather than arrived in it.
 

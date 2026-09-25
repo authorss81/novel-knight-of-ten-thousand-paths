@@ -50,11 +50,11 @@ There is no truth in that, said Aren Kest, when he had got to the front and the 
 
 "I am going to say a thing out loud in a room and I am going to say it badly, and I would like the clerk to write it in the form I say it and not improve it, because I have been on the improving end of that trade for twenty-one years and it has cost this country a city.
 
-"There is a document in the north. A sworn account, in my own hand, entered in a magistrate's court in a county four days off, on the thirtieth of Mudmonth of the last year, with a claim number and a chain of custody with three hands on it. It says four things and I will read the four things out and then I will say the fifth, and the fifth is not in the document, and that is why I am standing here.
+"There is a document in the north. A sworn account, in my own hand, entered in a magistrate's court in a county four days off, on the thirtieth of Mudmonth, YR 312, six weeks ago, with a claim number and a chain of custody with three hands on it. It says four things and I will read the four things out and then I will say the fifth, and the fifth is not in the document, and that is why I am standing here.
 
 "One. That a bell in the north is this city's bell. Two. That I was twenty-one years old at the time and was given part of a written order and did not reach the inner city. Three. That for three years afterwards I said out loud, in rooms, to men who wrote it down, that a fever had taken this valley. Four. That for those same three years I kept my own field notes in the breast pocket of a coat and did not hand them to the inquiry that was sitting to hear me.
 
-"That is in the document. It has been in a public file for a year, and I put it there, and I am not the man who put it there and I am the man who is in it, and I know what I am about to do with myself tonight and I have done it to other people by accident and it took about six years."
+"That is in the document. It has been in a public file for six weeks, and I put it there by swearing it, and I did not write a word of the finding that is on the top of it, and I am the man who is in it, and I know what I am about to do with myself tonight and I have done it to other people by accident and it took about six years."
 
 Nobody in the hall moved.
 

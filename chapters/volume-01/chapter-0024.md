@@ -194,6 +194,12 @@ She read it back. It said what the record said and it said nothing about what ha
 
 She put it in the day-book and not in the press, because a paper in a press is a paper that has been kept and a paper in a hand is a paper that has been sworn to, and she was going to have to hand it to him herself, standing up, in a room, and watch him read it.
 
-Down on Weir Street a yard was shutting for the night with four men on a face-stone contract and a fifth man doing cartage. In the toll-house by the fish weir there was a drawer with a Crown letter in it, addressed to a keeper of an office that did not exist, which had arrived on the twelfth and had gone in unopened and been filed, and which was the reason a clerk two hundred miles off now had a line in a book with a date on it.
+Down on Weir Street a yard was shutting for the night, and she did not know that, and nobody was going to tell her, and in a toll-house by the fish weir there was a drawer with a Crown's letter in it addressed to a keeper of an office that did not exist, and not one of those two facts would ever come up her stair. That was the ordinary condition of a keeper of records and she had been standing in it for four years.
 
-And in a city four days north, under an arch, in a cold morning on the sixth of the second week, a man was standing on a staging over a stone pier with a bar in one hand, and there was nothing in the stone and nothing in the air and nothing at all, and he wrote it down, and not one degree of the nineteen days he was spending there was going to reach her.
+What was on her table was a hand and three numbers and no opinion, which is what a record is.
+
+A man had gone out of this world on the ninth at the ninth hour, and a clerk two hundred miles off, in a building she had never been inside, had put a word against that ninth at the same hour, and in a year the word would be a fact about a man and not an argument. She had said so to his face in a room in this town in Greenmonth and had watched him hear it and not argue.
+
+And the third number was nineteen, which she had taken from him and had not believed, and which she had this morning written out on her own paper with no opinion on it at the top of it, because a keeper of records who has an opinion about a number is not a keeper of records, she is a person with a case.
+
+Not one degree of the days he was spending on somebody else's road was going to reach her. There was no door she could put a letter through and no office in this county that could ask after him, and the only thing in the world she had that could say anything to him about any of it was a page, in a hand he could not improve on, with a date on it, waiting for him to come back and be angry at it.

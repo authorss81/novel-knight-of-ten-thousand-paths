@@ -10,19 +10,19 @@ Alis Merrow had a condition, and he delivered it on the thirteenth day, at the s
 
 "Fourth, and this is the one that will matter in nine years and not tomorrow. *You will not say a motive.* Not in this room, not in the north, not in the middle. If you say why, you have written a speech, and a speech is a thing a man can be got to change, and a man who can be got to change a speech is a man who has already been defeated by somebody with better information and a quieter room. A line in a book is a fact. A motive is an opinion, and an opinion can be argued with, and a fact can only be looked at, and a thing that can be argued with goes out of the record the first time somebody in a court says *with respect*.
 
-"And the name," he said, "is in the line. I did not write the line and I cannot unwrite it, and I have had it in a book in this room since the year it was written and I have never read it aloud, and I am going to read it aloud today at this table in front of three clerks, and then I am going to read it again on Thursday in a guild hall because the bench-clerk will make me, and I shall be doing that every month for a year, and I have decided that I would rather be a man who says a name in rooms than a man who has one in a drawer."
+"And the name," he said, "is in the line. I did not write the line and I cannot unwrite it, and I have had it in a book in this room since the year it was written and I have never read it aloud, and I am going to read it aloud today at this table in front of three clerks, and then I am going to read it again in a guild hall tonight, because the bench-clerk will make me, and I shall be doing that every month for a year, and I have decided that I would rather be a man who says a name in rooms than a man who has one in a drawer."
 
 The clerk wrote all four conditions down, and read them back, and Aren Kest listened to them, and did not sign them, because there was nothing to sign.
 
-"Now," said Merrow, and nodded at the old clerk, who turned to a leaf and put his finger on it. "The fourteenth of Mudmonth, in the three hundred and first year. Read it out. The whole of it, and the line above it, and the line below it, and the day's column, and then stop."
+"Now," said Merrow, and nodded at the old clerk, who turned to a leaf and put his finger on it. "The fourteenth of Mudmonth, in the three hundred and first year. Read it out.
 
-"Read it out," said Merrow. "The whole of the line, and the line above it, and the line below, and the day's column, and then stop. And you will stop, and you will not go on to the next thing, however much you want to, because what is in the next thing is a man who barged paving stone in Frostmonth of the ninth year and it is not relevant and it is in the same book and that is the whole trouble with a book."
+"The whole of the line, and the line above it, and the line below, and the day's column, and then stop. And you will not go on to the next thing, however much you want to, because what is in the next thing is a man who barged paving stone in Frostmonth of the ninth year and it is not relevant and it is in the same book and that is the whole trouble with a book."
 
 ---
 
 Aren Kest read it.
 
-He read it in the flat voice a man uses when he is reading a thing and not reciting it, which is the flat voice a man uses when he is reading a thing and not reciting it, and which he had last used in a filing room over a salt merchant, and the voice got him as far as the press-mark and no further, because the press-mark is a number and the name is not.
+He read it in the flat voice a man uses when he is reading a thing and not reciting it, and which he had last used in a filing room over a salt merchant, and the voice got him as far as the press-mark and no further, because the press-mark is a number and the name is not.
 
 It went:
 
@@ -32,7 +32,7 @@ It went:
 
 *Press 4. Die 11. Impression 2 of the season.*
 
-*Day's column, the twentieth: two hundred on the deck, four days stood, crews both banks at nothing, no store of ours touched and one load of flour carried off the north quay and entered as ours because the man who took it was in a Crown cloak and there was nobody on the quay who could say otherwise, and it is entered.*
+*Day's column, the twentieth, which is the day the tender came back and not the day anything stood there: two hundred on the deck, four days stood, crews both banks at nothing, no store of ours touched and one load of flour carried off the north quay and entered as ours because the man who took it was in a Crown cloak and there was nobody on the quay who could say otherwise, and it is entered.*
 
 And then the name, at the head of the first hand, in the column headed *tendered by*, where a business book puts a man's name because a business book has to be able to say who it dealt with.
 
@@ -82,9 +82,9 @@ He had been in the room for a quarter of an hour and he had read a line out of a
 
 He had argued that man into a corner once, in a room, in Mudmonth, four days after he came back, on a bridge, to a brother.
 
-He had looked for eleven years for a name, and the name had been in a book a hundred and forty yards down a wharf, and a man who had been given it for free in Mudmonth by the old man with the mallet, in a hall, in words, had told him on the ninth of Mudmonth in plain English that the other half of the writ was in toll-house hands and that the toll houses were not the guild and were not his friends and were the only people in this city who had offered to give him anything at all.
+He had looked for eleven years for a name, and the name had been in a book a hundred and forty yards down a wharf, and the man who kept that book had told him where it was kept and at what hour it was opened, in a hall, in words, on the first morning, and had refused to give it to him in any other way, and had been right, because the toll houses were not the guild and were not his friends and were the only people in this city who had ever offered to give him anything at all, and what they offered was a morning and not a page.
 
-And the guild's man had read it aloud in a hall on the ninth, and had not read the name, and had said he would not get the name out of him that month, and had been right, and the reason he was right is that the name was in a book he did not control, in a building he could not enter, on the other side of a hundred and forty yards of a wharf from his own bench.
+And the guild's man had never once asked him for a name, and had been right not to, and the reason he was right is that the name was in a book he did not control, in a building he could not enter, on the other side of a hundred and forty yards of a wharf from his own bench, and it had taken a toll-house steward standing up in a hall tonight to get it into a room at all.
 
 "Do not," said Alis Merrow.
 
@@ -106,9 +106,9 @@ He did the arithmetic, because it was the trade's part and the trade's part was 
 
 "It was tendered on the fourteenth, which is the day it was read. It was not carried north by a courier with a warning. It was carried north as a tender, in a column headed *tendered against the arch*, and it was put in front of a bench, and a bench is nine men and a room, and a paper that is going to be read in a room on the day it was written is a paper that had already been answered before it arrived.
 
-"And the tender came back on the twentieth with two hundred on the deck and it stood there four days, from the eighteenth to the twenty-second, and the recall came up on the twenty-second with a name on the outside of it. A recall is written by an office that has decided a thing is over. This office decided on the twenty-second, at a table, four days after a Crown captain sat down on a toll stone in the rain with a written duty and no instruction to use it. To decide that on the twenty-second, somebody in that office had to have known, before the tender went back down the river, that it was not going to be used.
+"And the tender came back on the twentieth, and the boats it had come up with stood four days, from the eighteenth to the twenty-second, and there were two hundred people on the deck of them the whole of that time, and the recall came up on the twenty-second with a name on the outside of it. A recall is written by an office that has decided a thing is over. This office decided on the twenty-second, at a table, four days after a Crown captain sat down on a toll stone in the rain with a written duty and no instruction to use it. To decide that on the twenty-second, somebody in that office had to have known, before the tender went back down the river, that it was not going to be used.
 
-"You do not send a recall after four days. You send it in advance, and you send it with a boat, and you leave it in the cabin with a name on the outside of it, because you cannot be in two places. *The recall was in that cabin before the tender came up. Which means somebody at that office knew on the fourteenth, when the writ went out, that it was not going to be enforced, and the two boats were in the same flotilla.*
+"You do not send a recall after four days. You send it in advance, and you send it with a boat, and you leave it in the cabin with a name on the outside of it, because you cannot be in two places. *The recall was in that cabin before the tender came up. Which means somebody at that office knew on the fourteenth, when the writ went out, that it was not going to be enforced, and the two boats were in the same flotilla."
 
 He stopped there, in the middle of his own sentence, in a counting house, and the old clerk put his pen down.
 
