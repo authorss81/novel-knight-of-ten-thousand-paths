@@ -44,8 +44,6 @@ That last sentence is a thing a man four hundred miles off wrote in a fair copy,
 
 ---
 
----
-
 **The physician's four pages did not come with it, and nobody expected them to, and the minute says that they were read out, and a minute that says a thing was read out is a fact about a room four hundred miles off and not a document in this one.**
 
 She had two documents about that county on the table and neither of them was the four pages.
@@ -62,9 +60,7 @@ She put the two sheets side by side and read them both, in the way a keeper read
 
 "So you are not writing it."
 
-"I am not writing it," said Mara Vey, "and I am entering the not writing, and the not writing is the part that is a decision, and I have written that sentence in this day-book seven times this month and I am going to keep writing it until somebody in this county stops me or until it is true that there is nothing to decide."
-
----
+"I am not writing it," said Mara Vey, "and I am entering the not writing, and it goes in because a keeper who leaves the worst of a decision out of the book has decided it twice, and I have written that sentence in this day-book seven times this month and I am going to keep writing it until somebody in this county stops me or until it is true that there is nothing to decide."
 
 ---
 

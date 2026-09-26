@@ -6,7 +6,7 @@ Lysa Fenn had been a magistrate of this county for nine years and had never once
 
 The form came first.
 
-It is a returnable form of the Office of Provincial Registration, of a series whose reverse nobody in this kingdom can explain, and it asks for a figure: **the number of persons in this county who have had knowledge of a declared object.** The first one, on the same series, was dated the twelfth of Wolfmonth and was on her desk by the fifteenth and was returnable on or before the ninth of Frostmonth, and she let it expire in nine minutes **six days before the day it was returnable**, in a room with the guild's own notice in front of her, and she did it by discovering that a returnable paper with no party in it expires, and a paper with nobody in default is not refused, and that construction is still the best piece of law she has ever done.
+It is a returnable form of the Office of Provincial Registration, of a series whose reverse nobody in this kingdom can explain, and it asks for a figure: **the number of persons in this county who have had knowledge of a declared object.** The first one, on the same series, was dated the twelfth of Greenmonth, YR 312, and was on her desk by the fifteenth of that month, and was returnable on or before the ninth of Frostmonth, and she let it expire in nine minutes **on the twenty-first of Wolfmonth, eighteen days before the day it was returnable**, in a room with the guild's own notice in front of her, and she did it by discovering that a returnable paper with no party in it expires, and a paper with nobody in default is not refused, and that construction is still the best piece of law she has ever done.
 
 This is the second one. It was proposed in three lines on the thirteenth of Wolfmonth and it was returnable on the ninth of Greenmonth, and it had a space for a figure and no space for a name, and the space for a name is not there because a figure does not need one.
 
@@ -72,7 +72,7 @@ She put her finger on the middle of the form.
 
 "And in about four years somebody is going to make it a person. A corporation. A body with a door and a number that can be served and can sue and can be sued, and the day that happens every argument I have ever won comes apart, because the whole of them was that a thing which cannot be served cannot be reached. **And the first county in this kingdom to build one will not be a madman. It will be a woman of forty-five who has spent eleven years being unable to make a document do anything, who is right about the mechanism, and who will be quoted in nine years as the woman who saw it coming.**"
 
-Nobody in the room said anything for about four seconds.
+Nobody in the room said anything for long enough that the clerk of the county council put his pen down and waited to be told.
 
 "That is not in a minute," said Marda Oakes.
 
@@ -106,7 +106,7 @@ She put her hand flat on the form.
 
 "I have spent eleven years being unable to make a document do anything," she said. "A county council can write to a keeper of records. It can send a woman to a room with a paper. It can say *will you produce this* and get *no* written in a book in about nine months, and then what the council has is a woman who said no, and a woman who said no can be told she said no, and the county has no remedy at all, and it will find another thing to do.
 
-x A thing with a door and a number can be made to pay a man who has been damaged, and a county does not have to be right. It only has to have somebody in it that a court can write to. **I have wanted that for eleven years, and I am not going to say the rest of the sentence, and the rest of the sentence is the price, and somebody in this room knows the price and nobody is going to say it either.**"
+A thing with a door and a number can be made to pay a man who has been damaged, and a county does not have to be right. It only has to have somebody in it that a court can write to. **I have wanted that for eleven years, and I am not going to say the rest of the sentence, and the rest of the sentence is the price, and somebody in this room knows the price and nobody is going to say it either.**"
 
 The clerk of the county council wrote it down.
 

@@ -4,9 +4,9 @@ The twenty-fourth of Greenmonth was a Wednesday and it was not a market day, and
 
 That is the first thing and it is the whole of the day, and everything else happened in the fortnight that the shutting buys: eleven tons of stone going down to the Sedge Reach on four flat carts, a fortnight with the Sedge Reach closed to carts and open to people on foot, a bench of nine asked for money for the third time and saying yes for the third time, and a bill in a room over a weigh-house with a line in it that had no figure against it.
 
-Tovan's yard had fourteen days in it and Pei Tarrow was in it, and the fourteen was the same figure the yard had on the fourth of Hearthmonth and the same figure it has carried through every month since, and Tovan Kest wrote it in the week-book on the Monday with the hour against it and nobody in the yard said anything about it, because the last time the yard was a fortnight and the fortnight was the fourth of Hearthmonth, a man had told his brother about it in a gateway on the ninth of Embermonth, at eleven o'clock at night, with a market audible four streets off, so that on the day he said nothing about it his brother would not think it was his brother, and the fortnight has held for a hundred days, and nobody has been put off, and the boy is still in it.
+Tovan's yard had fourteen days in it and Pei Tarrow was in it, and the fourteen was the same figure the yard had on the fourth of Hearthmonth and the same figure it has carried through every month since, and Tovan Kest wrote it in the week-book on the Monday with the hour against it and nobody in the yard said anything about it, because the last time the yard was a fortnight and the fortnight was the fourth of Hearthmonth, a man said one sentence to his brother at a gate with his hand on a rope, in daylight, with the yard going on round them, so that on the day he said nothing about it his brother would not think it was his brother, and the fortnight has held for a hundred and ten days, and nobody has been put off, and the boy is still in it.
 
-**The four days are still on the page, and they are in a hand Tovan Kest's brother would know, and they are four entries, I have set three of them out here and the fourth is the day he came back, and they are not tidied into one.**
+**The four days are still on the page, and they are in a hand Tovan Kest's brother would know, and they are four entries, three of them are set out here and the fourth is dated the day he came back, and they are not tidied into one.**
 
 *Fifth of Wolfmonth, second hour. Eleven days, and the stone is gone and the wall is going, and I have told him this morning and I am not going to tell him again.*
 *Seventh of Wolfmonth, fifth hour. Fifteen days, and the wall is re-spoken for four days, and I have written those four days as days and not as a figure, and I know what I am doing and I am doing it in front of four men.*
@@ -16,7 +16,7 @@ He had put the page in the press in the guild hall over the wharf in the ninth o
 
 ---
 
-**The bench sat at the fourth hour on the twenty-fourth and asked for money for the third time, and it said yes for the third time, and the whole of that took about six minutes and there is a page in the guild's roll that is the shortest thing in it.**
+**The bench sat at the fourth hour on the twenty-fourth and asked for money for the third time, and it said yes for the third time, and the whole of that took six minutes and there is a page in the guild's roll that is the shortest thing in it.**
 
 The ask was for the scour. The bench had asked in the fourth of Frostmonth and been given two marks and a subscription book; it had asked again in the ninth of Hearthmonth and been given the same, out of the same chest, in the same words. There was a subscription book in a market in this town and it had been open since the fourth of Frostmonth and it had four names in it and two of them were the same man twice.
 
@@ -26,7 +26,7 @@ The ask was for the scour. The bench had asked in the fourth of Frostmonth and b
 
 "Will the bench ask a fourth time."
 
-"Yes," said the reeve, and then looked at the middle of the long table for about two seconds. "And I am going to say one thing before it votes, and I said a thing in this hall in the fourth of Frostmonth that was about a bench asked three times and saying yes three times, and I would like the minute to carry that I said it in the ninth month and the bench voted for the thing in spite of it, because the man who said it was right and the bench knows it and a bench that votes for a thing in spite of the fact that it is a subscription is a bench. Tovan Kest said it in this hall in the fourth of Frostmonth. He is not a member of this bench and he has not been since he was twenty-one and he is not standing for anything. He was right, and I would like it in the minute that he was right, and I would like the minute to say that the bench knows it and asked anyway, because that is a different thing from not knowing."
+"Yes," said the reeve, and then looked at the middle of the long table for long enough for the room to wait. "And I am going to say one thing before it votes, and I said a thing in this hall in the fourth of Frostmonth that was about a bench asked three times and saying yes three times, and I would like the minute to carry that I said it in the ninth month and the bench voted for the thing in spite of it, because the man who said it was right and the bench knows it and a bench that votes for a thing in spite of the fact that it is a subscription is a bench. Tovan Kest said it in this hall in the fourth of Frostmonth. He is not a member of this bench and he has not been since he was twenty-one and he is not standing for anything. He was right, and I would like it in the minute that he was right, and I would like the minute to say that the bench knows it and asked anyway, because that is a different thing from not knowing."
 
 Nobody improved it. The bench-clerk read it back. The bench asked a third time, and said yes a third time, and the chest had two marks in it, and the book was in a market, and the sum wanted was more than the bench has had in a year, and the bench entered the work in the roll and entered nothing else, and that is the third asking and there is going to be a fourth and everybody in the hall knew it.
 
@@ -110,7 +110,7 @@ She wrote the hour against it. Against no person.
 
 He had it ready. That is the thing about it and he had known for about four days that he had it ready, and he had written nothing down, because a reason is a thing believed and a yard's book holds things set.
 
-"You stood in my mother's room on the second of this month," he said, "and you did five things in the wrong order, and I watched all five, and I have thought about it every day since and I have got it down to about nine words and I am going to say them once."
+"You stood in a keeper's room on the second of this month," he said, "and you did five things in the wrong order, and I watched all five, and I have thought about it every day since and I have got it down to about nine words and I am going to say them once."
 
 "Go on."
 
@@ -124,7 +124,7 @@ Nobody in that yard moved. The boy of fifteen at the bench-board did not look up
 
 "I did not ask you to say it."
 
-"I know you did not ask me to say it," said Tovan Kest. "**That is the whole of it and I want it written down that I know that and I said it anyway, and I have been keeping that sentence since the ninth of Embermonth, when I said a different one, and I have thought about it for eleven weeks and I have decided that the one I said then was worse, because it was about a thing you would lose, and this one is about a thing I am not going to do, and a man can be held to a thing he is not going to do.**"
+"I know you did not ask me to say it," said Tovan Kest. "**That is the whole of it and I want it written down that I know that and I said it anyway, and I have been keeping that sentence since the fourth of Hearthmonth, when I said a different one, and I have had a hundred and ten days with it, and I have decided that the one I said then was worse, because it was about a thing you would lose, and this one is about a thing I am not going to do, and a man can be held to a thing he is not going to do.**"
 
 "And is that all of it."
 

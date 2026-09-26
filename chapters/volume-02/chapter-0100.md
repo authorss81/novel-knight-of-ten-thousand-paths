@@ -10,7 +10,7 @@ He counts load points because he counts load points. It is a habit and it is not
 
 **His left palm was warm at about the fourth hour and he did not need it.**
 
-Nothing in the sound was his. The river at the low of the year makes almost no noise at the Sedge Reach, which is a thing every man in Merefen has said and nobody has ever written down, and the noise that morning was four carts on a gravel approach and a man shouting about a chain and about forty men and the bell four hundred yards up the road, which went at about the fourth hour and a half, on the Old Toll bridge, and was rung by other hands and not one of them was his.
+Nothing in the sound was his. The river at the low of the year makes almost no noise at the Sedge Reach, which is a thing every man in Merefen has said and nobody has ever written down, and the noise that morning was four carts on a gravel approach and a man shouting about a chain and about forty men and the bell four hundred yards up the road, which is a bell with a band of forty-one rivets round it and a dull red seam in the metal where the band was closed, and which went at about the fourth hour and a half, on the Old Toll bridge, and was rung by other hands and not one of them was his.
 
 On the near abutment there was a boy of sixteen who has been the steward's apprentice for two years and is still not good at it, holding one end of a line, and beside him a carpenter who is a hand and not a keeper and has a bar he is not using. They rang it because that is the arrangement. **The arrangement is not Aren's.** It has been a boy and a ferrywright since the twenty-fourth of Fallowmonth and a boy and a carpenter since the ninth of Hearthmonth, and there is a page at the head of the yard's book for the week of the twenty-ninth with the hour against it in a hand somebody would know, and nobody wrote a word in it about who rang the bell.
 
@@ -49,9 +49,9 @@ He put it back in the bag and shut it, and the deck went on, and the bell had go
 
 ---
 
-**At about the fifth hour a list came down the line from the County of Ash, on a named day, in a fair hand, and it is a list, and a list can only be checked.**
+**At about the fifth hour a list came down the line from the County of Ash, on the twenty-ninth, in a fair hand, and it is a list, and a list can only be checked.**
 
-Four hundred and six words. Four hundred and nine was the last one and this one is four hundred and six, and every line of it is a figure or a date or a trade, and a keeper of records can go down it line by line, and the whole of the point of it is that she did.
+**Four hundred and six words.** The last thing down that line was four hundred and it was about four hundred and nine people, and this one is shorter, and every line of it is a figure or a date or a trade, and a keeper of records can go down it line by line, and the whole of the point of it is that she did.
 
 *And it is the county's answer to the fourth of its own terms, in a hand that is not a clerk's, and it is the first thing a county four hundred miles off has ever sent that anybody here can check.*
 
@@ -59,7 +59,7 @@ Four hundred and six words. Four hundred and nine was the last one and this one 
 
 **That is the county's own figure about itself and it is spoken as such and nobody in Merefen has touched it.**
 
-*The county has struck the List of Persons to be Struck. It has not burned it. It has superseded it, in a room, on the twenty-fourth of a month this county does not use, in the county's own book, with the three hands named, and the magistrate's own words in it, and the physician's four pages read out, and Ash's dead remaining Ash's with no claim upon them and none to come.*
+*The county has struck the List of Persons to be Struck. It has not burned it. It has superseded it, in a room, on the twentieth of a month this county does not use, in the county's own book, with the three hands named, and the magistrate's own words in it, and the physician's four pages read out, and Ash's dead remaining Ash's with no claim upon them and none to come.*
 
 *The county is grinding back two hundred and fifty-four fired tiles by hand into clay and wedging it onto the bank, and the cost is on a board, and the board foots in pence, and the season is the standing water, and it is two years, and the first of it is now, and there are about thirteen men out of work in a county of nine hundred and forty-one hearths and the number is written down in a keeper's hand with the hour on it.*
 
@@ -83,7 +83,7 @@ She went down it with a rule. Nine hundred and forty-one hearths, and the county
 
 **And it is the first document that has ever come into this office out of a place that has agreed to be checked, and the agreement is not in the document, and the agreement is the reason it can be checked at all, and it is the fourth of five terms printed in an office's hand on the back of a form in a shed four hundred miles off, and she has never read the back of that form and neither has the woman who keeps the road at that end, and neither is going to.**
 
-She found nothing to argue with. She wrote nothing for an hour, and then she entered it in the day-book against no person with the hour on it, in the ordinary form, with a claim number against the office and against no person and no opinion, **because a figure is not a list, and this office has said that three times in four months to two different offices, and the third time is the day the county answered a term.**
+She found nothing to argue with. She wrote nothing for an hour, and then she entered it in the day-book in the ordinary form, with the claim number against the office, the hour on it, and nothing at all against any person, **and the reason that is a sentence she can write without stopping to think is that a figure is not a list, and because this office has now said so to two offices in four months, three times, and the third of them is the day a county four hundred miles off answered a term in writing.**
 
 And there was one line she could not put down, and she had a page for it, and it was not the page she had expected.
 
@@ -105,7 +105,7 @@ And then she turned the page back, to a page with one line on it, written in Fal
 
 She looked at it for about a minute and a half with no lamp.
 
-Then she made an entry, and it is the same entry, entered a second time, against nobody, with the hour on it, in a hand that has stopped asking, and it is the second time since Fallowmonth and the ninth entry of its kind in four years, and there is no reason on the line and there is nothing on the line but the hour:
+Then she made an entry, and it is the same entry, entered a second time, against nobody, with the hour on it, in a hand that has stopped asking, and it is the second time since Fallowmonth that this office has entered it, and there is no reason on the line and there is nothing on the line but the hour:
 
 *Twenty-ninth of Greenmonth, YR 313, a Monday, the eighth hour. A number, and a county, and an hour. Nothing else against it.*
 

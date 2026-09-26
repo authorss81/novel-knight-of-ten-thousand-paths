@@ -22,7 +22,7 @@ He gave her the numbers before she asked, because he always does.
 
 **Sixty-seven days.** She wrote it and read it back, and he watched her do it.
 
-"That is the only number in this case I am frightened of," he said. "Not the eighty-eight. The sixty-seven. Because the warning has not changed. It was three weeks when I went out on the twenty-sixth of Longlight and it was three weeks on a form in a drawer in a shed four hundred miles off, and the office cannot say whose figure it is and neither can I, and it went five days wrong on the first time and it has gone sixty-seven days wrong on the second, and the ratio is not a constant, it is about three-quarters of the absence, and it gets worse in proportion to what I do over there. I wrote that down in Greenmonth in a cost sheet before any of it and I would like to be allowed the one true thing I predicted."
+"That is the only number in this case I am frightened of," he said. "Not the eighty-eight. The sixty-seven. Because the warning has not changed. It was three weeks when I went out on the ninth of Embermonth and it was three weeks on a form in a drawer in a shed four hundred miles off, and the office cannot say whose figure it is and neither can I, and it went five days wrong on the first time, twenty-six days out against twenty-one, and it has gone sixty-seven days wrong on the second, eighty-eight out against the same twenty-one, and the ratio is not a constant, it is about three-quarters of the absence, and it gets worse in proportion to what I do over there. I wrote that down in Greenmonth in a cost sheet before any of it and I would like to be allowed the one true thing I predicted."
 
 "You said that in a room to six men in a year you were not in this county for—" she began, and then did not finish the sentence, because he was not going to be managed into a smaller thing than the thing he was saying. "You may have it. And I am entering it as a prediction, which is worth about a third of what it is worth afterwards, and I am telling you that so that you do not get proud of it in front of me."
 
@@ -66,9 +66,9 @@ She weighed it on the salt merchant's own stone, which is in the room and is not
 
 **Tovan Kest came at about the eleventh hour and did not knock, because a yard does not knock.**
 
-He stood in the doorway of a room with a press in it for about four seconds and then came all the way in and shut the door behind him, which he had done once in four years and had not done on the last time either.
+He stood in the doorway of a room with a press in it, and then came all the way in and shut the door behind him, which he had done once in four years and had not done on the last time either.
 
-He looked at his brother for about two seconds.
+He looked at his brother for long enough to have said something, and did not.
 
 "You are grey."
 
@@ -90,7 +90,7 @@ He put his hand flat on the table, on the fair copy of four hundred words in a w
 
 He did not say it then.
 
-He stood there for about nine seconds, looking at the bag on the floor, and his face did a thing that his brother could not read and that he did not try to read, and Aren Kest understood in the second of the three things that were happening in that room that **his brother had come here to say something about an order and was not going to say it.**
+He stood there looking at the bag on the floor until the room had been quiet long enough to be a decision, and his face did a thing that his brother could not read and that he did not try to read, and Aren Kest understood in the second of the three things that were happening in that room that **his brother had come here to say something about an order and was not going to say it.**
 
 There were six or seven things in an ordinary morning. He could do every one of them. He had done them about nine thousand times, on a Tuesday, in a room over a cooper, in a yard on Weir Street, in an order he had never once had to think about, and he had been coming up those steps since he was nine years old.
 
@@ -134,7 +134,7 @@ He listened to all of it. And when she had finished he asked her one question, a
 
 **The last thing of the second of Greenmonth was in a notebook, in a flat hand, at about the fourth hour of the afternoon, and the notebook was in a coat.**
 
-*Second of Greenmonth, the second day of the fever, and the fourth hour of the afternoon. Out on the first of Hearthmonth at the fourth hour, in on this morning at the first light. Eighty-eight days here. Nine months and six days there. Sixty-seven days of error against a printed three weeks, and the printed three weeks is the same three weeks it was the first time and the office still cannot say whose figure it is.*
+*Second of Greenmonth, the second day of the fever, and the fourth hour of the afternoon. Out on the fourth of Hearthmonth at the fourth hour, in on this morning at the first light. Eighty-eight days here. Nine months and six days there. Sixty-seven days of error against a printed three weeks, and the printed three weeks is the same three weeks it was the first time and the office still cannot say whose figure it is.*
 
 *I have given her every number. I have given her four pages and she has corrected two of them and I have let her. In eleven years I have not been in a room with a woman who reads for a living and let her correct a page, and I have been out of this room for eighty-eight days and there is not one figure in this book I have to hide and there is one thing in this book I have to hide and it is not a figure.*
 

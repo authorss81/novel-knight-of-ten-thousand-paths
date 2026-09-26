@@ -8,13 +8,13 @@ There were four conditions on a wrapper in this case once, and they are on the p
 
 *You will not copy it. Not a word, not a figure, not the press-mark, not the impression.* The copy is not produced in court and has not been asked for and will not be. The fact leaves this city and the line does not. And there is no motive, and a habit is a thing a man can check and a motive is a thing a man can only repeat.
 
-**He has broken all four of them in four leaves in a fortnight and he has broken them on purpose and put it in the document, and the last line of the second leaf is a man of sixty-one admitting in his own hand that he has done the fourth one as well, and the man in a basket in a fen county is not going to know any of that and neither is anybody else in this county.**
+**He has broken all four of them in four leaves in a fortnight and he has broken them on purpose and put it in the document, and the last of the third leaf is a clerk of that house entering his own opinion in his own hand because he expects to be asked about it in about nine years, and a man of sixty-one has permitted it, and the man in a basket in a fen county is not going to know any of that and neither is anybody else in this county.**
 
 "The conditions are the most valuable thing in this case and they are four lines on a wrapper and they are broken," said Mara Vey. "**A condition is a promise about what a person will not do, and a promise about what a person will not do is the only kind that anybody ever breaks in order to keep one.**"
 
 "Then what is on the desk," said Aren Kest.
 
-"The same four leaves with a clerk's name at the foot of three of them," said Mara Vey, "and a purchase on the first, and an argument on the second, and a column of eleven counties on the fourth, and **the conditions are in none of them, and I have looked, and the man who broke them did not write them down as broken, and that is how a person breaks a condition and gets away with it: not by denying it, but by not putting it next to the thing.**"
+"The same four leaves with a clerk's name at the foot of two of them," said Mara Vey, "and a reading on the first, and an entry in their own book on the second, and a minute of a hall on the third, and a schedule of nine county cells on the fourth, and **the conditions are in none of them, and I have looked, and the man who broke them did not write them down as broken, and that is how a person breaks a condition and gets away with it: not by denying it, but by not putting it next to the thing.**"
 
 
 It is four leaves. It is headed with the name of an office of a creditor's own, in a counting house on a wharf, and it is entered in that office's own book as produced by that office, at that office's own cost, under that office's own law, **in a matter in which no court in this county has jurisdiction**, and those eight words are the reason it is worth anything at all and the reason it is worth nothing whatever.
@@ -39,11 +39,9 @@ The second leaf is an entry, in a business hand, with a date and an hour on it.
 
 *And that no name is entered against the said ninth line in this house's book, because there is no name to enter.*
 
-The third leaf is a minute, and it is four lines long, and it is the reason the whole thing was worth four days of a man's trade.
-
 ---
 
-**Aren Kest read the first leaf nine times and the second leaf twice and the third leaf once, and the reason he read the first leaf nine times is that it is the only document in this case in which two facts about the same office are on the same paper.**
+**Aren Kest read the first leaf nine times and the second leaf twice and had not read the third one at all, and the reason he read the first leaf nine times is that it is the only document in this case in which two facts about the same office are on the same paper.**
 
 He has a fair copy of a fair copy of that leaf in a press in the room he was sitting in. He has had it since the eighth of Embermonth, and it gives him press four, die eleven, second impression of the season, and a county cell with nothing in it, and an *Answered* column with a date eleven days after the tender in it.
 
@@ -55,7 +53,7 @@ He has had a fact about the first line since the fourteenth of Mudmonth, YR 312,
 
 "**A press-mark does not lie about a hand the way a name does.** A press-mark is a fact about an object. It is cut in the metal and it is the same shape every time the die is dressed and for as long as the iron lasts, and if two leaves of one book carry the same press and the same die then they came out of the same room, and there is nothing in that to argue with and nothing in that to feel.
 
-"And a name is a fact about a person, and a person can be got at, and the getting at him is a thing you can refuse, and he can be alive or dead, and he can be in this room or four hundred miles off, and in eleven years he has been alive the entire time, which is the one fact about Edric Hunn that nobody in either country has been able to use.
+"And a name is a fact about a person, and a person can be got at, and the getting at him is a thing you can refuse, and he can be alive or dead, and he can be in this room or four hundred miles off, and in eleven years he has been alive the entire time, which is the one fact about that man that nobody in either country has been able to use.
 
 "So anybody holding both leaves can set the ninth against the first and know they came out of the same press in the same room. **And I cannot check the hand, and neither can anybody in this county, and that is not because the book is locked. It is because the index has no name in it, and a press is not a clerk, and a clerk is not a man, and a man is the only one of those three that can be asked what he did.**"
 
@@ -65,7 +63,7 @@ He has had a fact about the first line since the fourteenth of Mudmonth, YR 312,
 
 ---
 
-**The fourth leaf is the minute of the hall, and it is four lines, and Alis Merrow wrote it himself, and it is the reason he did the thing.**
+**The third leaf is the minute of the hall, and it is four lines, and Alis Merrow wrote it himself, and it is the reason he did the thing.**
 
 *That a creditor's press is the worst place in the world to keep a roll of persons, and the only place in the world where nobody can quietly take it out of the book; that this office has argued that for eleven years and is this day the man who is doing it to this office's own city; that the argument is minuted at the steward's request and in the steward's own words and is not to be improved on; and that the minute is to be put where a Crown's man will find it in about nine years, and the steward does not know how and does not much care, and has put it in the book of this house at the third hour on the sixteenth of Greenmonth, which is the ordinary place, and which is a press in a city that does not admit to the Crown that it exists.*
 
@@ -87,9 +85,9 @@ Mara Vey read that four times.
 
 ---
 
-**And the last thing on the four leaves is a number, and it is a number a keeper can do something with, and it took Mara Vey about four minutes and it is the only sum in the four leaves.**
+**And the fourth leaf is a schedule, and it is the only one of the four that is a number, and it is a number a keeper can do something with, and she did it in one sitting with a finger, and it is the only sum in the four leaves.**
 
-The index has nine lines. Eight of them are of the valley in this kingdom. The ninth is not, and it is dated in the three hundred and fifth year, and the county cell is empty.
+It is a copy of the nine lines of that index and of nothing else, which is the first condition on the wrapper gone, and the copy is in a fair hand and it is not signed. The nine lines are of the valley in this kingdom except one. The ninth is not, and it is dated in the three hundred and fifth year, and the county cell is empty.
 
 *What is in the county cells of the other eight,* she said, going through it with a finger, *is the same valley, and it is the valley the Crown has been calling four thousand people for eleven years, and the eight dates are all inside about a week, and the eight lines are eight returns of a thing that happened once.*
 
@@ -97,7 +95,7 @@ The index has nine lines. Eight of them are of the valley in this kingdom. The n
 
 "**The ninth one has nothing in it and it is the only one of the nine with an *Answered* column filled in eleven days.** Every one of the other eight is marked *returned* and none of them is marked answered, and that means that whatever was sent to that county eleven days before somebody answered it, and it is the only line in nine that anybody ever wrote back to.
 
-"And it is the only line with no county in it. And the eight that have a county in it were all refused, and the one with no county in it was answered, and I am not going to write a sentence joining those two things together, and I have wanted to for about four minutes."
+"And it is the only line with no county in it. And the eight that have a county in it were all refused, and the one with no county in it was answered, and I am not going to write a sentence joining those two things together, and I have wanted to for as long as it has taken me to read it twice."
 
 "You have wanted to and you have not and that is the whole of your trade in one afternoon," said Aren Kest, "and I have wanted to about forty times in nine months and there is a notebook in a coat with none of it written down, and the reason neither of us is going to is the same reason and it is not a rule anybody taught us."
 

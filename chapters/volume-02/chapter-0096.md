@@ -22,7 +22,7 @@ The disclosure is in Halven's own hand. It is four paragraphs and it is dated th
 
 Four of the season. It is a number in a series of numbers and the series is kept in a press in a provincial town and there is nothing in the world that says whose hand wrote the fourth, and there are about nine other numbers in the same series in the same press.
 
-**Halven was in the room, and he had asked to be, and he came two hundred miles on the county post at his own expense on the eighteenth, and he was not a witness to anything, and he was there because he is a man who put four paragraphs in a book in August of last year and has not been asked about them since.**
+**Halven was in the room, and he had asked to be, and he came two hundred miles on the county post at his own expense on the eighteenth, and he was not a witness to anything, and he was there because he is a man who put four paragraphs in a book in Embermonth of last year and has not been asked about them since.**
 
 He is sixty-one. He stood by the press for about an hour and a quarter and nobody asked him one question, and he counted, twice, in his own head, and Mara Vey saw him doing it.
 
@@ -55,7 +55,7 @@ Mara Vey entered it as a copy, with the hour, in the ordinary form, and she ente
 
 "You have an opinion."
 
-"I have four," said Mara Vey. "One of them is that he is a coward and one of them is that he is the only person in eleven years who has done anything about a thing, and they are not the same size, and that is exactly why neither of them is going in here. **The not writing is entered, and the not writing is the part that is a decision, and I have entered that four times this year and this is the fifth and it is the first one about a decision I would have made myself.**"
+"I have four," said Mara Vey. "One of them is that he is a coward and one of them is that he is the only person in eleven years who has done anything about a thing, and they are not the same size, and that is exactly why neither of them is going in here. **The not writing is entered, and it goes in for the reason it has gone in four times this year already, which is that a keeper who leaves the worst of a decision out of the book has decided it twice, and this is the fifth and it is the first one about a decision I would have made myself.**"
 
 "Then what is the fifth decision," said Alish Renn.
 
@@ -89,7 +89,7 @@ Sarn Oyelaran said, quietly, "I have a key."
 
 "I did not sign it because there is one room and two rooms' work and a third post makes three rooms' work in one room, and a woman of twenty-six with a key who is doing three rooms' work in one room is a woman who will leave, and this office has had four people in four years and a half and it cannot have five." She squared the two documents. "And the other reason, which is the one that is actually the reason, and which I have entered in a day-book and not here: **a person with a post is a person who can be asked whether she should have taken an endorsement, and I am not going to be the person who puts that question to a woman of twenty-six in her second year.**"
 
-Alish Renn looked at her for about three seconds.
+Alish Renn looked at her, and said nothing for a while.
 
 "That is a kind thing to say and it is not a kind thing to do," she said.
 
@@ -97,9 +97,11 @@ Alish Renn looked at her for about three seconds.
 
 ---
 
-**Nobody is charged.**
+**Nobody is charged. He keeps the post.**
 
-There is no instrument that charges him, and there was never going to be, and the reason is a sentence Halven said out loud in this room in August to three people and did not have minuted, and which Sarn Oyelaran was in the room for and wrote down in her own hand on the back of a sheet and has never shown to anybody:
+He is the registrar of the fourth press in a provincial office two hundred miles off, he goes back on the twenty-third of Greenmonth, and he will be in it on the twenty-fourth, and the office that has taken his volume is not the office that keeps him in a chair, and neither of them has ever written to the other about it, and he has not asked it to.
+
+There is no instrument that charges him, and there was never going to be, and the reason is a sentence Halven said out loud in this room on the eighteenth to three people and did not have minuted, and which Sarn Oyelaran was in the room for and wrote down in her own hand on the back of a sheet and has never shown to anybody:
 
 *There is nothing to charge. He did a thing that this office wanted done. A man may be sorry and may also have committed no offence, and the two of those are the ordinary condition of everybody in this building, and if we begin to charge the ones who are sorry then in about two years we will have charged the ones who are not sorry as well, because the ones who are not sorry are easier to find and they are cheaper to try.*
 

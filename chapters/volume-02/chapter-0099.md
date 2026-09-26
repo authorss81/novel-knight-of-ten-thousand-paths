@@ -32,7 +32,7 @@ And a creditor's press is the worst place in the world to keep a roll of persons
 
 ---
 
-**And the buyer of the roll is the brother of the man who owns the building the day-book is in, and Mara Vey has four pence a year, and she found that out about nine seconds before the third leaf and sat down.**
+**And the buyer of the roll is the brother of the man who owns the building the day-book is in, and Mara Vey has four pence a year, and she found that out a moment before the third leaf and sat down.**
 
 "I know that name," she said. "I know the brother, not the man. He has wanted a canal wharf for nine years, which is longer than I have been in this room, and my landlord has said no to him twice in writing and once in a market, and there is a wharf at the north end of this town that has stood empty for six years, and I have looked at it every working day for four years and a half through the window I have watched a man stand on a slip from, and I have never once gone down to it."
 
@@ -54,7 +54,7 @@ And a creditor's press is the worst place in the world to keep a roll of persons
 
 "That has not been done in this office in four years and a half. I have the day-book open in front of me at the other end of this table every working day and I have never once seen it and I asked for it about a year ago for the third post and you said no and I did not know why and I have known why since the eighth of Embermonth and I would like you to say it out loud in a room."
 
-"That a name in a day-book against a person is the only thing in this office that is not a record," said Mara Vey, "and that a third post is a post at a desk that keeps records, and that I was not going to give a woman of twenty-six the one job in this county that is about a person instead of about a document, on a year when a count of persons had gone out of this room with a *Keeper* column empty, and I was not going to do that to you and I was not going to explain it to you either, and I have not explained it to you for a year and you have worked it out in about nine seconds, which is about a year faster than I did."
+"That a name in a day-book against a person is the only thing in this office that is not a record," said Mara Vey, "and that a third post is a post at a desk that keeps records, and that I was not going to give a woman of twenty-six the one job in this county that is about a person instead of about a document, on a year when a count of persons had gone out of this room with a *Keeper* column empty, and I was not going to do that to you and I was not going to explain it to you either, and I have not explained it to you for a year and you have worked it out in the time it takes to put a bag down, which is about a year faster than I did."
 
 Sarn Oyelaran said, "It is nine seconds slower than a keeper of records and a copyist of twenty-six, in a building with one room in it, who has been doing the work of three for eleven months."
 
@@ -103,15 +103,15 @@ Eight of eleven. And the other three have nothing in the leaf at all: no stone, 
 
 "It is a pattern," she said, "and it is arithmetic and it is not a revelation, and I have got eight out of eleven and three out of eleven and a set of three that are not stones, and that is a figure, and a figure is what this whole case has been about for a year, and I am not going to be the person who notices one."
 
-"Notice it," said Aren Kest. "You cannot help noticing it. You have looked at it four times in four minutes."
+"Notice it," said Aren Kest. "You cannot help noticing it. You have been through that column four times since you sat down."
 
-"I have noticed it four times in four minutes and I have written nothing, and there are exactly two people in the world who can see it as a column and not as a story: **a registrar who sold the book, and a keeper who has a copy of a page of it.** And neither of them can say what an oath has to do with a severance. I have been a keeper for four years and a half and I have never in my life been able to say why a thing is in a column, and I am not going to sit down with a sheet of paper in front of me and eight stones on it this afternoon."
+"I have been through it four times since I sat down and I have written nothing, and there are exactly two people in the world who can see it as a column and not as a story: **a registrar who sold the book, and a keeper who has a copy of a page of it.** And neither of them can say what an oath has to do with a severance. I have been a keeper for four years and a half and I have never in my life been able to say why a thing is in a column, and I am not going to sit down with a sheet of paper in front of me and eight stones on it this afternoon."
 
 "Then it is a question," he said.
 
 "Then it is a question," said Mara Vey, "and it is the only question in nine years that this case has produced that neither of us can spoil by answering it, and I am going to write it in a day-book as a question and not as a finding, in those words, with the hour on it, and I am going to leave the eight where they are."
 
-*Twenty-seventh of Greenmonth, YR 313, the fifth hour. A column of eleven counties. Eight of them have a boundary oath renewed in public on a stone, in a year that can be named, by men alive. Three have nothing in the leaf. Entered as a question and not as a finding, with the hour, against nobody. No opinion. And entered, because the not writing is the part that is a decision: that this office cannot say what an oath has to do with a severance, and that a person who could is not going to be asked by me, and that I am the keeper of it and I have not asked, and that is all.*
+*Twenty-seventh of Greenmonth, YR 313, the fifth hour. A column of eleven counties. Eight of them have a boundary oath renewed in public on a stone, in a year that can be named, by men alive. Three have nothing in the leaf. Entered as a question and not as a finding, with the hour, against nobody. No opinion. And entered, because there is a reason for the not writing and the reason is in this office and not in anybody's head: that this office cannot say what an oath has to do with a severance, and that a person who could is not going to be asked by me, and that I am the keeper of it and I have not asked, and that is all.*
 
 ---
 

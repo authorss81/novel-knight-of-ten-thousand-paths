@@ -14,13 +14,13 @@ So she did not wait to be asked. She walked up the stairs of a building over a c
 
 "By me. In a fair hand. With the day and the hour and the number of the form I am carrying, which is the ninth of a series, and if there is a mistake in it I would like the mistake entered as well and not left for somebody else to find in four years."
 
-Marda Oakes came in from the far end of a room with a wet coat on and stood still for about two seconds, and then said, "You had better come in," and then, in the doorway, to nobody, "**Eleven years.**"
+Marda Oakes came in from the far end of a room with a wet coat on and stood still long enough for everybody in the room to look up, and then said, "You had better come in," and then, in the doorway, to nobody, "**Eleven years.**"
 
 "I know what it is," said Sabin Dain.
 
 ---
 
-**They gave her the room over a court, and they gave her a table, and she put the bag on it and took out a form and did not open it for about four minutes.**
+**They gave her the room over a court, and they gave her a table, and she put the bag on it and took out a form and did not open it until the room had gone quiet.**
 
 "You are going to ask me what I want," she said, "and I am going to tell you, and then I am going to say the other thing, and I would like the other thing said before anybody writes anything down, because after anybody writes something down everybody gets careful and the carefulness is not what I came for."
 
@@ -44,7 +44,7 @@ Marda Oakes came in from the far end of a room with a wet coat on and stood stil
 
 "In four years there will be a number in a file in a provincial town with no name attached to it, and that number will be about this county, and nobody will be able to say whose hand made it. Not because the hand has been concealed. Because a figure does not need one. **And that is the whole of what is coming, and it is not coming because anybody in that office has thought of it in a room with a clock on the wall. It is coming because it is cheaper than names, and cheaper than names it is, and there is not one instrument in this kingdom that can make it more expensive.**"
 
-Nobody spoke for about nine seconds.
+Nobody spoke, and the rain did the rest of it.
 
 "May I put that in the minute," said the clerk of the county council, "and I am asking because I have never in twenty-two years entered an officer of a provincial office making a statement, and I do not know what a minute is for."
 
@@ -92,8 +92,7 @@ Somebody at the back said no, and somebody else said nothing at all, and Marda O
 
 ---
 
-
-**Lysa Fenn came in at about the third hour and was made a chair and sat in it, and she had walked four miles in the rain behind a woman from a provincial office and had not said so, and Dain knew who she was inside about four seconds because a magistrate of this county is the only person in it who has been in the room that Sabin Dain has just described.**
+**Lysa Fenn came in at about the fifth hour and was made a chair and sat in it, and she had walked the eleven miles out of Merefen in the rain that morning and had said so to nobody, and Dain knew who she was the moment she came round the table, because a magistrate of this county is the only person in it who has been in the room that Sabin Dain has just described.**
 
 "I wrote the finding on the ninth of this month, in this room, an hour after I said that," said Lysa Fenn. "It is three days old and it is in my book and it says that this county's instruments in the last eleven months are lawful, unanswerable, and four in number, and that the fourth of them is the one that frightens me, and that I can do nothing about any of the four, and that I have said so in a finding which is a document that four people in this county have read."
 
@@ -103,15 +102,11 @@ Somebody at the back said no, and somebody else said nothing at all, and Marda O
 
 "**A witness is the cheapest instrument in the kingdom and it is the only one that cannot be withdrawn.** Every return expires. Every notice stops only people who read it. Every finding is a thing a court says about a thing and can be got out of a file by whoever has the file in about nine years. And a woman who stands in a room and says a thing out loud to nine people, and has it written down by a clerk, and corrects the clerk, is a figure in a book that answers a question for as long as the book is dry.
 
-"That is all I have come for and I have got it, and I am going back four miles in the rain in an hour because I have eleven miles of bad road in front of me and a market on Thursday."
+"That is all I have come for and I have got it, and I am going back eleven miles in the rain in an hour, and there is a market on Thursday at the far end of it."
 
 "That is the cheapest thing anybody has said to me in eleven years," said Sabin Dain, "and I am not going to be able to use it, and I would like it in the minute."
 
 "It is in the minute," said the clerk of the county council.
-
----
-
----
 
 ---
 
@@ -143,4 +138,4 @@ Somebody at the back said no, and somebody else said nothing at all, and Marda O
 
 "That is the whole of what I wanted," she said. "**Thank you.**"
 
-She went out into the rain, and was gone down the county road in about four minutes, on foot, with a bag, and the county post is three days either way, and she will be at a desk in a provincial town on the third of this month with four months of returns in a file in front of her, and a man in a good coat is going to ask about that file one day.
+She went out into the rain, and was gone down the county road on foot with a bag before the rain had properly started, and the county post is three days either way, and she will be at a desk in a provincial town on the sixteenth of this month with four months of returns in a file in front of her, and a man in a good coat is going to ask about that file one day.

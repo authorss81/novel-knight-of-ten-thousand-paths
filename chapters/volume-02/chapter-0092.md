@@ -20,7 +20,7 @@ He had given her two dates in the wrong frame that morning. Not one. Twice, in o
 
 The first was the eighteenth of the ninth month, and there is no ninth month in this calendar, and the words *of that county's own year* are four words on a page and they are the only thing between a true date and a false one, and a clerk in nine years reading the day-book without those four words would read a date in a county that does not exist.
 
-The second was eleven minutes later and she found it herself. He said, in the middle of a sentence about a floor: "— and the bench sat on the twenty-second and again on the twenty-fourth of the ninth month, which is two days apart, and one of those two days is the ninth and the ninth is the day the line was not there —"
+The second was eleven minutes later and she found it herself. He said, in the middle of a sentence about a floor: "— and the bench sat on the twenty-second and again on the twenty-fourth of the ninth month, which is two days apart, and the ninth of that month is the day the line was not there —"
 
 "And it is the ninth of Greenmonth here," she said.
 
@@ -38,7 +38,7 @@ He stopped the way a man stops when he has put his hand on a hot thing and has n
 
 She put the pen down.
 
-"I have been not asking you a question since the twenty-second of Fallowmonth, YR 312, at about the tenth hour, in this room, and it is four lines in a day-book and the fourth line is the one the whole of this case is standing on without anybody knowing, and it says that this office is not going to ask him again. I have never written down anywhere else why. It is the reason I have not asked you about a letter in a room over a cooper since Longlight. It is the reason I have not asked you where you go. It is the reason I have had a line in a list in my own hand for a week and a half that I cannot put down, and it is a number and not a name, and it is about a man at a kiln four hundred miles off, and I have not asked you one question about it and I am not going to."
+"I have been not asking you a question since the twenty-second of Fallowmonth, YR 312, at about the tenth hour, in this room, and it is four lines in a day-book and the fourth line is the one the whole of this case is standing on without anybody knowing, and it says that this office is not going to ask him again. I have never written down anywhere else why. It is the reason I have not asked you about a letter in a room over a cooper since Longlight. It is the reason I have not asked you where you go. It is the reason I have had a line in a list in my own hand for four days that I cannot put down, and it is a number and not a name, and it is about a man at a kiln four hundred miles off, and I have not asked you one question about it and I am not going to."
 
 "Then why are you telling me now."
 
@@ -46,7 +46,7 @@ She put the pen down.
 
 She turned the day-book round and pushed it across the table so that it was in front of him, which she had never done, and which is a thing a keeper of records does about four times in four years and not more.
 
-"And I have noticed that the not asking has changed, and I wrote the day down when I noticed it, and I am going to put the day on this page and the hour with it, because I am not going to be a woman who has a feeling about a thing in her head. It is the fifth of Wolfmonth and I noticed it on the twenty-ninth of Fallowmonth, which was the seventh day of the promise, and I have said nothing to anybody about it since, and the reason is on the page in two paragraphs and the reason is about this office and not about you, and I am not going to say it in a room, and I am not going to write it again either, because I wrote it once and writing it twice makes it a thing I have said out loud."
+"And I have noticed that the not asking has changed, and I wrote the day down when I noticed it, and I am going to put the day on this page and the hour with it, because I am not going to be a woman who has a feeling about a thing in her head. I noticed it on the twenty-ninth of Fallowmonth, which was the seventh day of the promise, and I wrote the day down on the fifth of Wolfmonth, the morning you came up out of that county, and I have said nothing to anybody about it since. The reason is on the page in two paragraphs and the reason is about this office and not about you, and I am not going to say that one in a room, and I am not going to write either of them again, because I wrote one once and writing it twice makes it a thing I have said out loud."
 
 **"A wound she is choosing not to open is worse than a question,"** she said. "That is the whole of what has changed. In Fallowmonth the not asking was a thing I did to you. It is now a thing I am doing for myself, and the difference between those two is about a week and it has taken me seven months to do anything about it, and I have had two hundred and twenty-three days of that promise — from the twenty-second of Fallowmonth to this morning — and I noticed what it had become in the seventh day of it, and I have asked him nothing since. **That is the lateness, and it is not in the noticing. It is in the seven months.**"
 
@@ -66,7 +66,7 @@ She looked at him.
 
 ---
 
-**And then she did the thing that made it a breach instead of a scene, and she did it in about four minutes, and he watched her do it and did not understand it until she told him what it was.**
+**And then she did the thing that made it a breach instead of a scene, and she did it without hurrying, and he watched her do it and did not understand it until she told him what it was.**
 
 She went and got out a clean sheet, not a day-book leaf, and ruled two columns on it, and wrote the twelve months of that year down the left-hand one in about nine seconds, and every one of the twelve was a word with no number in it.
 
@@ -87,10 +87,6 @@ She tore it up.
 "You could ask me."
 
 "You could tell me," she said, "and I am not going to ask you, and I have just spent ten minutes showing you that I was right not to, and that is the difference between the two of us and it is the whole of it, and I would like it in a book, and there is no book in this county a thing like that goes in, and I have been looking for four years."
-
----
-
-
 
 ---
 
@@ -128,4 +124,4 @@ The brine weights are still cited and not filed. They were cited on the second o
 
 The roll of the dead that could be built out of them is not built. It is not built this month and it is not going to be built this year, and the two lines are five days apart and four lines apart on the page, and she reads them together every time she opens that book, which is four or five times a day, and there is no reason on the page for the not building and she is not going to write one.
 
-She put the leaf back. She shut the press. She wrote the hour in the day-book against no person, in the ordinary form, with the claim number against the office and against nobody, and there was no opinion on the line, and there was not one word on the line about what she had been doing for an hour, and **the not writing is entered, for the fourth time this year, because the not writing is the part that is a decision.**
+She put the leaf back. She shut the press. She wrote the hour in the day-book against no person, in the ordinary form, with the claim number against the office and against nobody, and there was no opinion on the line, and there was not one word on the line about what she had been doing for an hour, and **the not writing is entered, for the fourth time this year, and it goes in for the reason the other three went in for, which is that the part of a decision a keeper leaves out of the book is the part she has decided on.**
