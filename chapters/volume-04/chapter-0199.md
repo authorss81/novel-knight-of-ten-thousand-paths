@@ -6,7 +6,7 @@ There were forty men on that reach and the road was open and the tide was under 
 
 “He came up out of the joint between the third and the fourth course, and he came up out of it the way a man comes up out of a river, which is not a thing a person does, and his hand was on the stone before the rest of him was out of it, and he put his hand flat on the stone on either side of the line, the way you put a hand flat on a thing to see whether it is warm, and the stone was the same temperature on both sides of it, and he took his hand off.
 
-“**And he looked at it once. And he did not put a rule on it, and I have been in this trade nineteen years and I know what a man with a rule does, and he did not do it, and I have not asked him why and I am not going to.**”
+“**And he looked at it once. And he did not put a rule on it, and I have stood in yards in this town nineteen years and I know what a man with a rule does, and he did not do it, and I have not asked him why and I am not going to.**”
 
 The witness at that end was the man of forty-seven and he was not the person keeping the reach, and he is not the person keeping anything, and he is on a bench because he was elected and is paid fourpence a week out of a private box and not out of the chest, and there is no roll in this county that says he keeps anything, and nobody asked him to stand there and he was standing there because about forty men were on a reach at the fourth hour of a Monday and that is where a man of forty-seven who is on that bench stands.
 
