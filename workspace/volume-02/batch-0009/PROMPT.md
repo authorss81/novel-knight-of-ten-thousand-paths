@@ -90,7 +90,7 @@ The clerk's entry is on the page: **the day, the hour, and the name, in the fair
 
 **And then the other half, which he gets first and cannot use: it is not the three hands that is killing Vaile. It is him.** A stranger from the north, standing in a hall, reading a list of names aloud, four times a day, for eleven weeks, in a county where nobody had ever asked for a list to be read aloud, **because everybody there could already read.** **He stops the list. He stops it alone, in a room, without asking, by walking into a hall and taking a page out of a clerk's hand — and it is right, and it is the eleventh time in the book, and it is him deciding for a room, and the hand of the Ninebridge says so to him on the spot, in her own words, and does not say it unkindly.** It is the first refusal in this block and it is a professional refusal and not a civic one.
 
-**This is the chapter where he is allowed to notice that he was right in Chapter 80, four months and about two hundred and fifty leagues back, in the correct vocabulary, in tons, and that being right was sufficient and is the cost.** Not before, and not after.
+**This is the chapter where he is allowed to notice that he was right in Chapter 80, four months and a market day back, on a bridge in a market in this same county, in the correct vocabulary, in tons, and that being right was sufficient and is the cost.** Not before, and not after. **The Chapter 80 entry was written in this county, not four hundred miles off, and the earlier wording of this card said two hundred and fifty leagues for four hundred miles, which is wrong by half and is corrected here and on the page.**
 
 ### Chapter 0085 — the eighth month · the coping at Ninebridge, and Garrick Dene
 

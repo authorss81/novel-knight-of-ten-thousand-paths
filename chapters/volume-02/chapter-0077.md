@@ -4,7 +4,7 @@ The fourth of Hearthmonth was a Friday and a market day, and the crossing out wa
 
 That is the first thing and it is the last thing and everything in between is the twenty-six days of a man's absence and the four months since and a rope of four fathoms.
 
-Tovan Kest's rule: **the line is made up at the third hour, in the gateway, and it takes nine minutes, and every one of the nine goes in the yard's book with the date and the hour on it, because a line is a thing set and a thing set goes in a book.** The fourth of Hearthmonth was the fourth time he had made one up and the second time he had made one for a road that was not a crossing, and the splice at this end was cut in a yard in Fallowmonth out of a cooper's bin and it was the same splice, because there is one splice in that yard and it is the only one he owns.
+Tovan Kest's rule: **the line is made up at the third hour, in the gateway, and it takes nine minutes, and every one of the nine goes in the yard's book with the date and the hour on it, because a line is a thing set and a thing set goes in a book.** The fourth of Hearthmonth was the second time he had made one up for a road that was not a crossing, and the splice at this end was cut in a yard in Fallowmonth out of a cooper's bin and it was the same splice, because there is one splice in that yard and it is the only one he owns.
 
 The terms came out of the same drawer. They had arrived in a barrow on the ninth of Embermonth with a tile on them, six inches by four, fired grey clay, five lines pressed in a hand that is not a clerk's and not a die's, in three sizes of writing because the second line is forty-one words, cut with a broken piece of a saw. The tile had come back over a bridge four hundred miles off on a barrow in a market, and a woman in a leather apron had put it in a press in a room, and he had read it out loud in a gateway in front of four men, and the fourth line was the one that had gone into the yard's book because a thing a man reads out in a gateway is a thing set.
 
@@ -64,7 +64,7 @@ The boy of fifteen rang it alone, on the near abutment, because the far end of t
 
 The sill was under his feet the whole time. It is a dressed block and forty yards of tarred hemp through the abutment on a splice cut out of a cooper's bin, and the fourth course above it is open the whole depth of the joint the width of a hand, in register, and scarred, and it was left open, by a vote of nine men on the fourth of Frostmonth, on the casting vote of a reeve, over the objection of a man who keeps eels, so that a man standing on that deck could look down and see the mark. The stone was cold. There is no glass in this county and there will not be a third seat.
 
-The line went out at the fourth hour, and Tovan Kest held this end of it standing in the gateway on Weir Street, and his brother took the other and went.
+The line went out at the fourth hour, and Tovan Kest held this end of it standing in the gateway on Weir Street, and his brother took four fathoms of it and went out of the county, and the far end of it was four hundred miles off and was in the hand of somebody he had met once, and that was the whole of the arrangement and it had been made at a bench in this hall on the ninth of Embermonth and it was four lines long.
 
 And then the yard stood there.
 
@@ -72,7 +72,7 @@ There is no gate at this end. There has never been a gate at this end; the arran
 
 It took about four minutes. Four minutes in a gateway in Weir Street in a hard month, with four men and a boy and a reeve with a sheet, and a rope that was doing nothing at all.
 
-Tovan Kest, who had been saying nothing for about a minute and a half, said the one sentence in that yard that was not about a road, and he said it to his brother at the gate with his hand on the rope and his eyes on the far bank of the channel, and he said it in the flat voice he used for figures.
+Tovan Kest, who had been saying nothing long enough for the note of the bell to be gone out of the yard, said the one sentence in that gateway that was not about a road, and he said it to his brother at the gate with his hand on the rope and his eyes on the far bank of the channel, and he said it in the flat voice he used for figures.
 
 "The yard is a fortnight. It was a fortnight on Friday of last week and it is a fortnight today, and when you come back it will be a fortnight or it will not be, and if it is not then I will have had to put a man off, and it will be Tarrow, because Tarrow is the only one of the four with a barge and a barge can go to the county town. I will not be able to pay him and he will not be able to ask me, because that is not a thing a man asks. **I am telling you now so that on the day you come back and I say nothing about it, you will not think it was your brother.**"
 
@@ -80,7 +80,7 @@ Tovan Kest, who had been saying nothing for about a minute and a half, said the 
 
 "Good."
 
-Then the line went, and it went out of a yard on Weir Street at the fourth hour of a market morning on the fourth of Hearthmonth, and there is a page at the head of the yard's book for the week of the fourth that has nine lines in it in Toban's own hand with the hour against each one, and it is the fourth time a page like that has been made in that book, and it says:
+Then the line went, and it went out of a yard on Weir Street at the fourth hour of a market morning on the fourth of Hearthmonth, and there is a page at the head of the yard's book for the week of the fourth that has nine lines in it in Toban's own hand with the hour against each one, and it is the first page like that to be made in that book since the one for the week of the ninth, and it says:
 
 *Fourth of Hearthmonth. Third hour. Line made up, nine minutes, splice out of a bin, terms read out at the reeve's request, five lines, the second line read twice at the boy's asking. Fourth hour. The bell went at a quarter to, leaned on the third. The line went out at the fourth. Witness taken and signed. The reeve declined the fourth line and the reason is entered in the bench's roll and not in this book, because a reason is a thing believed and this book holds things set.*
 
@@ -88,7 +88,7 @@ Then the line went, and it went out of a yard on Weir Street at the fourth hour 
 
 He came up out of it on **clay steps**, and put his right foot back to find the edge, and there was no edge, the road behind him was the length of a cart and then it was the third step, and the weather was flat yellow light off a hill that stops at four hundred yards and everything in it the colour of a kiln, and the river made almost no noise and ran the colour of milk over a working ground, and the air was full of the smell of nine days of something being fired.
 
-He had not been here since the first of Fallowmonth, and on that morning a woman had asked him one question and he had said no and she had said that was what the last one said too, and he had not gone through, and he had said out loud on a bridge in a market that she did not open it and she was right, and I am not the man who sends anybody, and it made no difference, which is how I know she was right.
+He had not been here since the ninth of Embermonth, and on that morning a woman had asked him one question and he had said no and she had said that was what the last one said too, and he had not gone through, and he had said out loud on a bridge in a market that she did not open it and she was right, and I am not the man who sends anybody, and it made no difference, which is how I know she was right.
 
 It was the fourth of Hearthmonth and the road opened, and the road opened because the county's terms are the gate and the county's terms had been read out loud on this bridge on the twenty-third day of his last time here by a stranger in a hat, and because a county wrote down what it wanted and a town wrote down what it wanted, and the two of them did not have to want the same thing, and one of them had said *the road is not to be made to carry a person* and he had come on his own legs with nothing on him but a bag and a coat.
 
@@ -98,7 +98,7 @@ And beside her was a person he had never met, and he did not know the name, beca
 
 They did not say it. Nobody on this bridge said a name. The second of the five lines is forty-one words long and it is the reason a morning in a market town is quiet: **no name is to be read out on the far side of the line by anybody from the north, and no name is to be written in the line's book at the north end.** He had read that line out loud on the ninth of Embermonth in a gateway in a fen county in a market four hundred miles from here, in front of four men, and one of those four had wanted to write down the name at the top of the paper, and nobody had, and the not writing had gone into the yard's book as a fact and not as a want.
 
-So the far end of the line was a woman with a set of tile-cutters' tools at her hip and a person the county had chosen, and neither of them said a word to him that was not about the road, and he did not ask either of them anything, and the two of them had been introduced to each other in about nine seconds by a person who introduced them by what they did.
+So the far end of the line was a woman with a set of tile-cutters' tools at her hip and a person the county had chosen, and neither of them said a word to him that was not about the road, and he did not ask either of them anything, and the two of them had been introduced to each other in the time it takes a hod to go round by a person who introduced them by what they did.
 
 "Up," said the hand of the Ninebridge. "You are on the boards at the low end of the rack in an hour. Bel's check round is the fourth row and if you go in the wrong place she will tell you and you will do what she tells you."
 
@@ -106,7 +106,7 @@ So the far end of the line was a woman with a set of tile-cutters' tools at her 
 
 "Nine months and six days," she said, "and then it is not yours to decide, and the north end is a bench and the north end is four hundred miles off, and if a thing goes wrong at your end then it is a bench's business and a bench can be wrong in a hall in front of witnesses, which is the only kind of wrong that this county has ever had and it has had nineteen years of it."
 
-She looked at him for about two seconds.
+She looked at him until he understood that she was not going to say anything else.
 
 "You stood on my kerb on the first morning," she said, "and I asked you one question and you answered it and I did not believe you and I was right not to and I have not asked you it again, and I am not going to now. Do you want to ask me one thing."
 

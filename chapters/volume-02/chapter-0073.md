@@ -2,15 +2,15 @@
 
 The twenty-first of Wolfmonth was a Thursday, and it was not a market day, and the moot hall in Merefen has no market in it on a Thursday, and about eleven people came in and went out between the second hour and the fourth.
 
-Lysa Fenn had been in that room for nine years and had never once had a form in it that she could not answer, and on the twenty-first of Wolfmonth there was one on her table that she could not answer and could not refuse and could not pass on, and it had been on her desk since the eighth of Greenmonth without an answer on it, and it was going to expire in eighteen days, and she was frightened of it, and she was frightened of it alone in the room, at about the third hour, with the stove going and the clerk out at the other end of the room with his back to her on purpose, which is a thing a clerk does when he has been told to.
+Lysa Fenn had been in that room for nine years and had never once had a form in it that she could not answer, and on the twenty-first of Wolfmonth there was one on her table that she could not answer and could not refuse and could not pass on, and it had been on her desk since the fifteenth of Greenmonth without an answer on it, and it was going to expire in eighteen days, and she was frightened of it, and she was frightened of it alone in the room, at about the third hour, with the stove going and the clerk out at the other end of the room with his back to her on purpose, which is a thing a clerk does when he has been told to.
 
 She wrote down what she was frightened of, in her own book, before he came, and she did not improve it afterwards.
 
 *I am frightened of three things and two of them are about the same thing.*
 
-*One. I have no instrument. I have a finding of the fourth of Greenmonth with my name at the bottom of it and five clauses, and a finding is not a weapon, it is a notice, and the only clause of the five that has ever cost that office anything is the fifth, and the fifth says that any office thereafter acting in the matter is on notice that this court asked and was not answered, and that the asking is dated. And this office has been acting in the matter for eleven months and it has not once read the fifth clause, and it is not going to, and there is nothing I can do about a clause nobody reads.*
+*One. I have no instrument. I have a finding of the fourth of Greenmonth with my name at the bottom of it and five clauses, and a finding is not a weapon, it is a notice, and the only clause of the five that has ever cost that office anything is the fifth, and the fifth says that any office thereafter acting in the matter is on notice that this court asked and was not answered, and that the asking is dated. That office has been putting paper at this court since the ninth of Longlight and it has not once read the fifth clause, and it is not going to, and there is nothing I can do about a clause nobody reads.*
 
-*Two. That clause is the only reason I have, and it is a reason that requires somebody else to look, and this county has one man in it who reads forms for a living and he is a registrar of sixty-one who sold a book to this office in the fifth month for a shield, and so the number of people in this county who will read the fifth clause is a man who has been bought.*
+*Two. That clause is the only reason I have, and it is a reason that requires somebody else to look, and this county has one man in it who reads forms for a living and he is a registrar of sixty-one who sold a book to this office in Greenmonth for a shield, and so the number of people in this county who will read the fifth clause is a man who has been bought.*
 
 *Three, and this is the one I am actually frightened of, and I am writing it first because if I write the other two first I will talk myself out of it. **There is a county, somewhere, that a person could not be served in, and I have known about it since the ninth of Fallowmonth and I have not written it down anywhere and neither has he.** And this paper on my table does not name a person. It wants a number. And a number is not refused by saying there is no person, because a number is a fact about a place, and I have just worked out in about nine minutes that I cannot stop this by anything a person in this county does, and that the only thing left is the shape of the paper itself.*
 
@@ -80,11 +80,11 @@ It was one sheet of the same series, printed, addressed to the county court at M
 
 "And if it names an office," said Aren Kest, "then the office has to exist."
 
-"Then the office has to exist, in a schedule, with a keeper, and a county court that has searched the town charter, the county's list, and the Crown's schedule of provincial offices, and found no such office, and has said so in a finding with a date on it, in the fifth month of this year, with my name at the bottom of it in my own hand." She stopped. "Do you see the fifth clause."
+"Then the office has to exist, in a schedule, with a keeper, and a county court that has searched the town charter, the county's list, and the Crown's schedule of provincial offices, and found no such office, and has said so in a finding with a date on it, in Greenmonth, with my name at the bottom of it in my own hand." She stopped. "Do you see the fifth clause."
 
 "I see it," said Aren Kest. "Any office thereafter acting in the matter is on notice that this court asked and was not answered, and the asking is dated. The fourth of Greenmonth, or thereabouts, and I will not be more exact in a room."
 
-"A finding of the fourth of Greenmonth," said Lysa Fenn, "and this paper is dated the tenth, or the eleventh of that month — it is a week later than the asking, and it has been on this table since the eighth of that month, and it is dated, and it is dated after the asking. **So the office is already on notice and does not know it, and if it issues a fresh instrument it will issue it on notice, and the notice is a document in this county with a date on it and a signature at the foot of it, and there is not one clerk in that building who has ever read the fifth clause of my finding because the fifth clause is on the second page and nobody in that office has ever had a reason to turn to the second page of a finding of a county court.**"
+"A finding of the fourth of Greenmonth," said Lysa Fenn, "and this paper is dated the twelfth of that month — it is a week after the asking, and it has been on this table since the fifteenth of that month, and it is three days on the road like everything else, and it is dated, and it is dated after the asking. **So the office is already on notice and does not know it, and if it issues a fresh instrument it will issue it on notice, and the notice is a document in this county with a date on it and a signature at the foot of it, and there is not one clerk in that building who has ever read the fifth clause of my finding because the fifth clause is on the second page and nobody in that office has ever had a reason to turn to the second page of a finding of a county court.**"
 
 There was a fire in the stove and it ticked about eleven times.
 
@@ -110,7 +110,7 @@ She put both hands flat on the table.
 
 "And you cannot stop that."
 
-"I cannot stop that," said Lysa Fenn, "and I have been frightened of it since the fifth of Greenmonth and I have not written it down, and I am writing it down now because you are a man who writes things down and because a fact written down can be argued with and a fact held in a head can only be carried, and I have been carrying one for about four months and it is heavier than it was in May. So: in about four years somebody will make this office a body corporate, and the day they do it, this answer dies, and the answer that replaces it will be worse, because it will be worked out by a man in a hurry who wants to look as though a court had a position."
+"I cannot stop that," said Lysa Fenn, "and I have been frightened of it since the fifth of Greenmonth and I have not written it down, and I am writing it down now because you are a man who writes things down and because a fact written down can be argued with and a fact held in a head can only be carried, and I have been carrying one for the best part of half a year and it is heavier than it was at the beginning of the rolling. So: in about four years somebody will make this office a body corporate, and the day they do it, this answer dies, and the answer that replaces it will be worse, because it will be worked out by a man in a hurry who wants to look as though a court had a position."
 
 "And you will be dismissed."
 
@@ -136,7 +136,7 @@ She turned to a second sheet on her desk and pushed it across.
 
 "You told me on the second of Greenmonth," said Aren Kest, "in a room with a clerk in it, that you had an eleven-year-old salvage filing out of a filing room in YR three hundred and one and that you would not discuss it, and I said nothing."
 
-"You said nothing," said Lysa Fenn, "and I had told you first, on purpose, before you could be in a room where it mattered, and that was the first of three times, and the second was in Greenmonth and the third was in the fourth month, and I have told you three times in advance so that this morning, when it came, you would not be surprised, and you have not been surprised, and you have said nothing, twice, and both times correctly."
+"You said nothing," said Lysa Fenn, "and I had told you first, on purpose, before you could be in a room where it mattered, and that was the first of three times, and the second was in Greenmonth and the third was in Longlight, and I have told you three times in advance so that this morning, when it came, you would not be surprised, and you have not been surprised, and you have said nothing, twice, and both times correctly."
 
 "I have had practice," he said.
 
@@ -150,9 +150,9 @@ She turned to a second sheet on her desk and pushed it across.
 
 The clerk came back at about the fourth hour and Lysa Fenn gave him the paper and told him what to write, and he wrote it in a flat unhurried hand and did not look up and did not improve it, and it is in the book at the Merefen county court in the ordinary way.
 
-And Aren Kest sat in the chair with a leg out of true and watched a woman of about fifty do four things in about an hour that he had not seen anybody do in five months.
+And Aren Kest sat in the chair with a leg out of true and watched a woman of about fifty do four things in an hour that he had not seen anybody do in five months.
 
-She had found the answer to a paper in nine minutes, and the answer had been in the shape of the paper and not in the law. She had known what it was worth and what it would cost and had said both out loud in the right order. She had refused a thing four times in writing with a reason at the foot of each refusal, and had told him in advance that the fifth would be answered, so that the answering would not be a surprise either. And she had done all of it without once being told to by anybody, and without once being right about a thing she was frightened of, and while frightened, and in that order after the first one.
+She had found the answer to a paper in the shape of the paper and not in the law, and had said out loud, in the right order, what it was worth and what it would cost. She had refused a thing once, in writing, with a reason at the foot of it, after telling him three times in advance that it was coming, and had told him in advance that the fifth time would be answered, so that the answering would not be a surprise either. And she had done all of it without once being told to by anybody, and while frightened, and in that order after the first one.
 
 He had been the best reader of a room in this case for about a year and a half and he had built most of what he knew about the trade on being that, and he had said out loud on the ninth of Embermonth, in a gateway in a clay county four hundred miles off, that he was not going to be a voice in a hat.
 
@@ -168,9 +168,9 @@ He got up and put his coat on.
 
 "You think it is coming."
 
-"I know it is coming, because they have stopped asking who and started asking how many, and how many is the cheapest instrument that office has ever had, and I have said that sentence out loud in this room to a carpenter and a clerk and I have not put it in a book, and I am putting it in a book now because if I am right it is the only entry I will ever make about the day I was frightened and got it right, and if I am wrong then it is a lie of about four months, and I can live with four months of a lie, and I could not live with not having written it down."
+"I know it is coming, because they have stopped asking who and started asking how many, and how many is the cheapest instrument that office has ever had, and I have said that sentence out loud in this room this morning to a man who does not know what I know and cannot be told, and it went nowhere, and I am putting it in a book instead. If I am right it is the only entry I will ever make about the day I was frightened and got it right, and if I am wrong then it is a lie of about half a year, and I can live with half a year of a lie, and I could not live with not having written it down."
 
-She wrote it down. It was four lines and it took her about ninety seconds and the clerk did not see it and it was in her own book and it was not in the court's book, and the difference between those two things is the difference between a magistrate and a woman, and she had been living in that difference for nine years.
+She wrote it down. It was four lines and it took her the length of a hymn and the clerk did not see it and it was in her own book and it was not in the court's book, and the difference between those two things is the difference between a magistrate and a woman, and she had been living in that difference for nine years.
 
 "Go home," she said. "You have got about a fortnight and there is a bench in it and I have heard about it, and I am not going to ask you anything about it, and that is not modesty, and if you want to know what it is not, it is that I have been served with a form by an office that is doing its job and I have nine days to lose a woman of thirty-three in a provincial file and I have not got the room for a road."
 

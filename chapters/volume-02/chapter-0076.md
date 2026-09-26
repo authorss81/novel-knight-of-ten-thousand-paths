@@ -20,7 +20,7 @@ She read it three times and then left the *Keeper* column empty, and she did not
 
 ---
 
-The boy came at about the half hour, and she gave him the sheet and a halfpenny out of the box and wrote the halfpenny in the ordinary way, and then she stood at the lane door with the door open after him for about four seconds longer than a woman stands at a door.
+The boy came at about the half hour, and she gave him the sheet and a halfpenny out of the box and wrote the halfpenny in the ordinary way, and then she stood at the lane door with the door open after him for longer than a woman stands at a door.
 
 "You are not going to close it," said Sarn Oyelaran.
 
@@ -48,7 +48,7 @@ The knock was at the seventh hour and it was not the lane door, because the lane
 
 Marda Oakes was forty-five and she was a member of the county council and she had come from the county town, and she came up two flights of a stair over a weigh-house in a plain good coat and asked, on the stair, whether the office was a business, and when Mara Vey said it was, she said, "Then I will not leave my card," and went up.
 
-"I have read your writ of enquiry," she said, before she sat down. "The one of the fourth of Greenmonth. All of it, and not the finding, which I have also read. I have read the finding twice and I want to say something about the finding and I am going to say it at the end, because I have been in a room before and I have watched people open with their best material and go home with nothing."
+"I have read your writs of enquiry," she said, before she sat down. "The one of the ninth of Longlight and the one of the twenty-ninth. All of them, and nothing else that has been served on this council in a year, and not the finding, which is a different document and does not pretend to be the same one. I have read the finding twice and I want to say something about the finding and I am going to say it at the end, because I have been in a room before and I have watched people open with their best material and go home with nothing."
 
 "Sit down. That chair is sound."
 
@@ -84,7 +84,7 @@ Mara Vey sat very still.
 
 Marda Oakes put a card on the table. It had a name on it and a county and a room in the county town and nothing else at all, no seal, no arms, and no office, and Mara Vey entered it in the day-book against a person, with the date and the hour, which is the only time in four years she has entered a card against a person.
 
-At the door she said, over her shoulder: "There is a man in this county who reads forms for a living and reads them better than I do, and I have read all of it and none of it has ever once asked you for anything, and I have been wondering for six weeks whether that is a very good sign about you or a very bad sign about him, and I have not worked it out, and I thought you might have thought about it."
+At the door she said, over her shoulder: "There is a man in this county who reads forms for a living and reads them better than I do, and of everything that has been served on this council in a year, none of it has ever once asked you for anything, and I have been wondering for six weeks whether that is a very good sign about you or a very bad sign about him, and I have not worked it out, and I thought you might have thought about it."
 
 Then the stair, and the door below, and the lane.
 
@@ -94,21 +94,21 @@ Mara Vey sat down and then stood up again, and then sat down.
 
 "Two hours," said Sarn Oyelaran.
 
-"He did not ask me a single question about the file. Not one. In an hour he asked me about a corporation and told me that a notice does not stop anybody and left me a card, and he is the first person in about a year who has come into this room and not wanted a name out of it, and I have not been able to work out whether that is a kindness or a method."
+"She did not ask me a single question about the file. Not one. In an hour she asked me about a corporation and told me that a notice does not stop anybody and left me a card, and she is the first person in about a year who has come into this room and not wanted a name out of it, and I have not been able to work out whether that is a kindness or a method."
 
 "It is a method," said Sarn Oyelaran. "Everything anybody has done in this case for a year has been a method. The man with the rule is a method. The man with the churn is a method. That is not an insult; that is the trade. **A thing done without a method is a thing done by a person, and there have been about four of those in four years and one of them is you and two of them are dead.**"
 
-"I am going to write down what I thought about him, and I am not going to write down the sentence he did not say."
+"I am going to write down what I thought about her, and I am not going to write down the sentence she did not say."
 
 "Enter that you did not write it."
 
-"I am going to do something I have never done," said Mara Vey. "I am going to write a paragraph and stop in the middle of a sentence, and enter that I stopped, and enter that I stopped on purpose, and not write any more about it, ever, in this book, because a woman who finishes that sentence in her own day-book in about four years' time is a woman who has decided to want it, and I did not decide to want anything this afternoon, he did, and he did it in a room and then he went down a stair and left a card with his name and no office on it, and I am not going to be the woman who says a thing like that in writing."
+"I am going to do something I have never done," said Mara Vey. "I am going to write a paragraph and stop in the middle of a sentence, and enter that I stopped, and enter that I stopped on purpose, and not write any more about it, ever, in this book, because a woman who finishes that sentence in her own day-book in about four years' time is a woman who has decided to want it, and I did not decide to want anything this afternoon, she did, and she did it in a room and then she went down a stair and left a card with her name and no office on it, and I am not going to be the woman who says a thing like that in writing."
 
 ---
 
 At about the eighth hour she went and got the file for the Dain instrument, to make the claim number in the day-book agree with the number on the copy, and the day-book was where she always kept the unopened things, because the day-book is the only book in that office that nobody can serve.
 
-It was on the seventeenth of Wolfmonth. A county letter, four days old when it came, dated at the place of issue the **thirteenth of Wolfmonth** — a Wednesday, in a hand she knew from the outside of a letter on the fifteenth, in a woman's writing and not a clerk's — entered against no person with the hour, and it had sat in the back of the day-book for twenty-five days, and she had never read it, and the reason she had never read it was that it had asked nothing of this office and named nobody in it, and in four years and a half she has never before had a paper that asked nothing of her arrive in her own day-book.
+It was on the seventeenth of Wolfmonth. A county letter, four days old when it came, dated at the place of issue the **thirteenth of Wolfmonth** — a Wednesday, in a hand she knew from the outside of a letter on the fifteenth, in a woman's writing and not a clerk's — entered against no person with the hour, and it had sat in the back of the day-book for twenty-two days, and she had never read it, and the reason she had never read it was that it had asked nothing of this office and named nobody in it, and in four years and a half she has never before had a paper that asked nothing of her arrive in her own day-book.
 
 She read it now. It is three lines long.
 
@@ -128,7 +128,7 @@ She read it a third time and then she put it down and wrote in the day-book, at 
 
 ---
 
-*Thirteenth of Wolfmonth, YR 312, a Wednesday. From the Office of Provincial Registration, three lines, signed, proposing a count of persons for the county as a whole. Entered on the seventeenth, against no person, and not read until this day, which is the ninth of Frostmonth, and which is twenty-five days, and the reason it was not read is entered above and is that it asked nothing of this office.*
+*Thirteenth of Wolfmonth, YR 312, a Wednesday. From the Office of Provincial Registration, three lines, signed, proposing a count of persons for the county as a whole. Entered on the seventeenth, against no person, and not read until this day, which is the ninth of Frostmonth, and which is twenty-two days, and the reason it was not read is entered above and is that it asked nothing of this office.*
 
 *This office has no instrument that can touch a figure for a county, and I am entering that as a fact and not as an opinion, and the fact is that a count of persons who have had knowledge of a declared object is a different thing from a count of the persons in a county, and there is no form in this office that asks the second question, and there is no office in this county that could answer it, and the county's schedule of provincial offices has been searched and does not carry one.*
 
@@ -138,12 +138,18 @@ She read it a third time and then she put it down and wrote in the day-book, at 
 
 She read that over twice, and then she put the pen in the drawer, and shut the drawer, and did not go down to the yard, because it was not the yard's business, and she did not send for the man who writes the dates down in a book on a bench-board in a gateway in Weir Street, because nobody had asked her to, and because he was not the office for it, and because he would have told her what was in it.
 
-He would have told her in about eleven seconds. He had a whole shape of it in a notebook in a coat — half of it; the office, the form, the column with a word at the top of it, and half of the other half — and he had written down, in his own hand, in a clay county four hundred miles off, that he had decided to leave the rest alone, and that he had decided it on purpose so that a clerk in Merefen could see it was a decision and not an oversight, and he had been back in this county four days.
+---
 
-He was twenty-five yards from this door at that moment. He was not going to be in this county in three weeks. There was a letter in a file in the guild hall over the wharf, made in a bench about a thing a bench of bridgewrights four hundred miles off had wanted done, and it had been made on the ninth of Embermonth, on a Thursday, at a market, and the only two people in this county who knew what it bound him to were the two who had made it, and one of them was not a member of any bench, and the other one did not vote.
+**None of the next three paragraphs is known to her, and she is not going to be told it, and that is not a gate and not a mystery: a man who refused to tell her one thing in a room on the fifth of Wolfmonth is not a man who will be told the rest of it in a week, and a keeper who has found out a thing like that from a third party is a keeper holding two documents about one person instead of one.**
+
+He would have told her inside a minute. He had a whole shape of it in a notebook in a coat — half of it; the office, the form, the column with a word at the top of it, and half of the other half — and he had written down, in his own hand, in a clay county four hundred miles off, that he had decided to leave the rest alone, and that he had decided it on purpose so that a clerk in Merefen could see it was a decision and not an oversight, and he had been back in this county thirty-four days.
+
+He was twenty-five yards from this door at that moment. He was not going to be in this county in three weeks. There was a letter in a file in the guild hall over the wharf, made at a bench in this town about a thing a bench of bridgewrights in a county four hundred miles off had wanted done, and it had been made on the ninth of Embermonth, on a Thursday, at a market, and the only two people in this county who knew what it bound him to were the two who had made it, and one of them was not a member of any bench, and the other one did not vote.
 
 He would not be here. And that was on a form somewhere in another county, and it was not anybody's business but his and Toban's, and it was going to be the fourth of Hearthmonth.
 
-The served schedule of the eighth of Fallowmonth was on the desk under a weight, with its eight ruled lines, and the eighth of them was the city's, and it was empty, and it had been empty for four years, and she had looked at it twice in a year and had wanted to fill it twice and had written down both times, and on the ninth of Frostmonth at about the eighth hour of a Monday afternoon she put her hand flat on the weight over it, about four inches above the line, and left it there for about four seconds as a way of not doing it, and took it away, and shut the press.
+---
+
+Back in the room over the weigh-house, at about the eighth hour of a Monday afternoon, the served schedule of the eighth of Fallowmonth was on the desk under a weight, with its eight ruled lines, and the eighth of them was the city's, and it was empty, and it had been empty for four years, and she had looked at it twice in a year and had wanted to fill it twice and had written down both times, and on the ninth of Frostmonth she put her hand flat on the weight over it, four inches above the line, and left it there for as long as filling it in would have taken, and then took it away, and shut the press.
 
 Then she went downstairs and closed the lane door at about the ninth hour, and the room over the weigh-house went on, as it had gone on for four years and a half, doing two rooms' work in one, with a claim number against a figure and no name anywhere in the county that had been written down since the twenty-seventh of Fallowmonth.

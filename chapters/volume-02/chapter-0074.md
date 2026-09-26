@@ -1,6 +1,6 @@
 # Chapter 0074
 
-The fourth of Frostmonth was a Wednesday and a market day and there was a hard frost on it, and the reason a bench of nine was out on a bridge at the fourth hour in the fourth month of a hard winter instead of in the summer is the only good reason there is for cutting stone in a fen, and it is that a cold chisel is deaf.
+The fourth of Frostmonth was a Wednesday and a market day and there was a hard frost on it, and the reason a bench of nine was out on a bridge at the fourth hour in the first hard frost of a winter instead of in the summer is the only good reason there is for cutting stone in a fen, and it is that a cold chisel is deaf.
 
 A chisel that is warm rings. A man cutting a course in an abutment can hear, off the head of his own tool, whether he has found a natural bed or whether he has made one, and a man who cannot hear is a man cutting on the joint and getting away with it. In a frost the iron is dead. It comes off the stone like a rasp instead of a note, and the man has to go down to the bed by hand, with his thumb, in the cold, every four inches, and it takes twice as long and it is the only week in the year when the fourth course of the Old Toll crossing can honestly be re-set by nine men who are not a bridgewright's crew.
 
@@ -22,7 +22,7 @@ The guild's man with the levels put his thumb on the eighth line and left it the
 
 "I have not read the eighth," said the guild's man with the levels, "because the eighth line is a seat, and there is no seat."
 
-Nobody in the hall said anything for about four seconds, and the reason nobody said anything is that there is no seat in this county, there has not been a seat in it since a thing came out of an abutment in a wagoner's cart in Greenmonth, and the specification had not been reprinted, and the eighth line was the guild's own words and the guild's own hand: *that a seat so cut will be used and will fail, and that the number of uses is not stated here, because it is not a thing this bench may know.*
+Nobody in the hall said anything for a count of four, and the reason nobody said anything is that there is no seat in this county, there has not been a seat in it since a thing came out of an abutment in a wagoner's cart in Greenmonth, and the specification had not been reprinted, and the eighth line was the guild's own words and the guild's own hand: *that a seat so cut will be used and will fail, and that the number of uses is not stated here, because it is not a thing this bench may know.*
 
 "You cannot read your own specification," said the man at the fish weir.
 
@@ -80,7 +80,7 @@ Silence.
 
 And then the asking.
 
-The reeve put it flat on the table with a sheet and a rule, and she had had nine years of doing that and she did it in about four seconds, and there were nine in the room and Tovan Kest standing, and the guild's man with the levels was there because he had put up the specification and he is not a member and does not vote, and the bench cannot sit without a clerk and the clerk does not vote either.
+The reeve put it flat on the table with a sheet and a rule, and she had had nine years of doing that and she did it faster than the bench-clerk could get the sheet square, and there were nine in the room and Tovan Kest standing, and the guild's man with the levels was there because he had put up the specification and he is not a member and does not vote, and the bench cannot sit without a clerk and the clerk does not vote either.
 
 "Second asking," she said, "and I am going to say it as the second, and the clerk is to enter the number."
 
@@ -126,7 +126,7 @@ The stove ticked.
 
 "That has not happened here," said Tovan Kest. "I want it in the minute that it has not happened here. This is an asking and we are answering it and we may well say yes, and I would like it written down, today, in a room with a reeve in it, that a man stood here and said the thing that is going to be necessary one day, and the day has not come, and he was not talking about anything that is on the table this morning. **I do not know when it will come and I am not going to guess, and I have said it because I have got about nine weeks' notice in me and I would rather spend the notice now than later.**"
 
-"I will not vote," he said, "because I am not a member and have not been since I was twenty-one, and because the yard has eleven days in it and a fortnight by Friday, and because this bench is about to be asked for money by nine men in a market and I do not want a yard in the argument."
+"I will not vote," he said, "because I am not a member and have not been since I was twenty-one, and because there is work in this yard that I have not counted this month and a yard in a hard month is not a thing a man can count from a hall, and because this bench is about to be asked for money by nine men in a market and I do not want a yard in the argument."
 
 Nobody said anything else about it, and the foundry's man moved that the sense of the meeting be taken, and it was taken, and the man at the fish weir said *against* out loud, as he had asked to.
 

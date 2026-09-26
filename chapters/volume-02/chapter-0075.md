@@ -50,7 +50,7 @@ The bench of the Merefen bridge guild carries, on its roll, the names of the men
 
 "What has he done to the guild," said the foundry's man.
 
-"He has stood in a gateway once," said the guild clerk, "at the fourth hour of a market morning in the fourth month, as a witness at this end of a road, for fourpence a week paid out of a private box, which he has not drawn, and which he says in the yard's book is not to be drawn, and the yard's book has it with the hour on it and not one word of the reason in it, and that is four months old now and it has not been improved on and I would like it minuted that it has not been improved on."
+"He has stood in a gateway once," said the guild clerk, "at the fourth hour of a market morning on the ninth of Embermonth, as a witness at this end of a road, for fourpence a week paid out of a private box, which he has not drawn, and which he says in the yard's book is not to be drawn, and the yard's book has it with the hour on it and not one word of the reason in it, and that is two months old now and it has not been improved on and I would like it minuted that it has not been improved on."
 
 "Put it to the room," said the reeve.
 
@@ -102,9 +102,7 @@ Then the man at the drawknife — who was not a member and had never been a memb
 
 "He has never asked to be a member," said the man at the drawknife. "He has been in this hall four times in six months and said the true thing every time and voted never once, and he refused a seat and a wage in a hall four hundred miles off this year in about eleven seconds, and I am not nominating him because of any of that. I am nominating him because **we have one man in this county who can read where the load goes and nobody has ever asked him whether he would, and I would rather be refused in front of nine men than find out in nine years that we never asked.**"
 
-Four hands.
-
-Four against.
+Four hands, and four against, and one abstention.
 
 Level, and the casting vote, and the reeve's face did not change at all.
 
@@ -114,7 +112,7 @@ Level, and the casting vote, and the reeve's face did not change at all.
 
 The hall was very quiet, and the thing about it that Aren Kest noticed, and noticed about eleven seconds later than he noticed it, was that nobody looked surprised.
 
-That was the first thing. He had been in a hall in Longlight in the fourth month and had refused a seat and a wage in eleven seconds and two hundred people had made a noise about it. There was no noise here. The foundry's man put his hands flat on the table. The guild's man with the levels said, "Understood," which he had not said about anything. And the man at the drawknife, who had nominated him, was looking at the floor, and looking at the floor of a guild hall in a way that meant he had done the thing he had come to do and would be examined about it later and did not care.
+That was the first thing. He had been in a hall in Longlight four hundred miles off and had refused a seat and a wage in eleven seconds and two hundred people had made a noise about it. There was no noise here. The foundry's man put his hands flat on the table. The guild's man with the levels said, "Understood," which he had not said about anything. And the man at the drawknife, who had nominated him, was looking at the floor, and looking at the floor of a guild hall in a way that meant he had done the thing he had come to do and would be examined about it later and did not care.
 
 The second thing was the mechanism.
 

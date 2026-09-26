@@ -50,7 +50,7 @@ She put the sheet down on the table and squared it, which is a thing a keeper do
 
 "So you are not signing."
 
-"I am not signing on Thursday," said Pernel Quist. "I have not said no. **Do not put it in the book that I said no, because I have said no twice in nine years and both times I was wrong, and a book is a worse place to be wrong than a corridor and a better place to be right, and I have not decided which this is.**"
+"I am not signing this week," said Pernel Quist. "I have not said no. **Do not put it in the book that I said no, because I have said no twice in nine years and both times I was wrong, and a book is a worse place to be wrong than a corridor and a better place to be right, and I have not decided which this is.**"
 
 It is the fourth page of the minute and it is the longest thing in it and it is the only part of the whole of this business in nineteen years that anybody in this county will be able to quote in about nine years, and a clerk of the assizes wrote it down in a flat hand and did not improve it and read it back, and she corrected one word, and the word she corrected was *worse*.
 
@@ -58,15 +58,15 @@ It is the fourth page of the minute and it is the longest thing in it and it is 
 
 He did not speak.
 
-That is on the page too, because it is a strange thing to have in a minute, and the clerk asked him about it at the end and he answered, and what he said is in the minute, and it is eleven words long.
+That is on the page too, because it is a strange thing to have in a minute, and the clerk asked him about it at the end and he answered, and what he said is in the minute, and it is eight words long.
 
-They had asked him three times in twenty-two weeks what he thought, twice by people who wanted to be helped by the answer and once by a man who did not, and the last of the three had been the sixteenth day of a rolling in a room with a stove in it, and he had refused, and the reason he had refused was in a book in a coat and nobody in the room had ever read it.
+They had asked him three times in five months what he thought — twice by a man with power in it who wanted to be helped by the answer, and once by a woman with power in it who wanted a witness in the room before she put it in a book. The first of the three he had answered, in a room with a stove in it, in a sentence, and been right about what happens to a tile; the second he had fought for a week and got, in the same county, in the same month; and the third was four months ago in a moot hall in a fen county, and he had said nothing at all in it, and the reason he said nothing the third time is in a book in a coat and nobody in that room has ever read it.
 
-He sat at the end of the long table with his hands flat on it and he was the only person in that room who could have told them what a working at the scale of two hundred needs and what makes one fail, and there were three people in that room who had each asked him a question about it in the last four months, and he answered none of them, and at the end the clerk asked him why and he said:
+He sat at the end of the long table with his hands flat on it and he was the only person in that room who could have told them what a working at the scale of two hundred needs and what makes one fail, and there were three people in this case who had each asked him a question about it at some point in the last five months, and he had answered two of them and had not answered the third, and the third was the one the clerk was asking about, and he said:
 
-"I have not got a trade for it. Eleven words, enter that, and it is the true reason and it is not modesty."
+"I have not got a trade for it. Eight words, enter that, and it is the true reason and it is not modesty."
 
-And then he walked out of the assizes and down a street in Kilnholt in the flat yellow light with the clay steps cut and wet to the height of a hand, and he went to the low end of the rack and sat down on the low stool and took out the notebook and wrote the following, in the trade's own words, in the back, and it is the entry that matters, and nobody in this county has read it, and nobody in this county will read it, and the reader has read the shape of it once already, in a shed, four months and about two hundred and fifty leagues back, in the correct vocabulary, in tons, and did not act on it then either.
+And then he walked out of the assizes and down a street in Kilnholt in the flat yellow light with the clay steps cut and wet to the height of a hand, and he went to the low end of the rack and sat down on the low stool and took out the notebook and wrote the following, in the trade's own words, in the back, and it is the entry that matters, and nobody in this county has read it, and nobody in this county will read it, and the reader has read the shape of it once already, on a bridge in a market in this same county, four months and a market day back, in the correct vocabulary, in tons, and did not act on it then either.
 
 ---
 

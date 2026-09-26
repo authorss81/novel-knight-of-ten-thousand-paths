@@ -16,7 +16,7 @@ The lane door made the noise it made.
 
 ---
 
-Rowan Petch came in the way a man comes in who has been walking for three days and has slept in a coach and has decided, somewhere about the fortieth mile, that he is going to do this.
+Rowan Petch came in the way a man comes in who has been three days on a county post, two of them in a coach that would not take the last hill and one of them on the rest of it on foot, and who has decided, somewhere about the fortieth mile, that he is going to do this.
 
 He was twenty-six and thin in a new way, and the coat he had gone in on the eighth of Embermonth was the coat he came back in, and it had been rained on in four counties. He put a folded sheet on the table, squared it, and squared it the way a provincial clerk squares a thing, which is to the table and not to its own creases, and then he sat down without being asked, which he had not done in four years.
 
@@ -61,7 +61,7 @@ Sarn Oyelaran put her pen down.
 
 "You may always say the thing," said Mara Vey. "You have said it in this room eleven times and it has been right eleven times."
 
-"You have written a return that says the court cannot state the purpose and does not decline to state it," said Sarn Oyelaran, "and that is the first thing anybody in this case has ever written that cannot be turned into a refusal by a man who does not want to look at the fourth line. If they read it as a refusal, the file is closed to them and they have to open the box. If they read it as a compliance, the file is answered and nobody ever has to open anything. **There is no reading of it that is comfortable and that is the whole of the trick, and I have not seen it done before and I have been a copyist for nine years.**"
+"You have written a return that says the court cannot state the purpose and does not decline to state it," said Sarn Oyelaran, "and that is the first thing anybody in this case has ever written that cannot be turned into a refusal by a man who does not want to look at the fourth line. If they read it as a refusal, the file is closed to them and they have to open the box. If they read it as a compliance, the file is answered and nobody ever has to open anything. **There is no reading of it that is comfortable and the trick is nothing else at all, and I have not seen it done before and I have been a copyist for nine years.**"
 
 "I did not think of that," said Rowan Petch.
 
@@ -93,7 +93,7 @@ Then he took his hat off, which he had not done, and put it on his knee, which i
 
 Mara Vey waited.
 
-"On the twelfth, in the morning, before I filed, I was in the outer room with a clerk I have spoken to about nine times in two years, and he was reading out a column of a schedule against a list of counties, and he was doing it the way we all do it, out loud, half to himself, and he got to a county and he said, *this one, the file, has a person in it now* — and he did not stop, and he went on to the next county, and I stood there for about four seconds and then I said, *a person*, and he said, *a person having knowledge, on the fourth, in her own hand, and I would not put my name to that sheet in a court.*
+"On the twelfth, in the morning, before I filed, I was in the outer room with a clerk I have spoken to about nine times in two years, and he was reading out a column of a schedule against a list of counties, and he was doing it the way we all do it, out loud, half to himself, and he got to a county and he said, *this one, the file, has a person in it now* — and he did not stop, and he went on to the next county, and I stood there long enough for him to say it twice and then I said, *a person*, and he said, *a person having knowledge, on the fourth, in her own hand, and I would not put my name to that sheet in a court.*
 
 "And then he said a name, and I have never heard the name before in my life, and I have written it down and I have brought it down here in my own hand and I have not written it into any book of this office, and I am going to write it on this table and then I am going to tear it up, and I would like you to look at it first."
 
@@ -103,7 +103,7 @@ The name was Sabin Dain.
 
 "Thirty-three," said Rowan Petch. "Eleven years in the office. Her title on her own paper is an aid to the register. She is not a member of anything and she has told me so herself, twice, in a corridor, in a way I would have thought was modesty and which is not modesty." He swallowed. "**And the office has entered her into a county file as the person having knowledge, in her own hand, on the fourth of Embermonth, and the file is the file in the matter of the crossing of Alder Vale, and the file is in your office's claim, on a claim number that is in this room.**"
 
-Nobody said anything for about nine seconds. Downstairs a waggon went over the bridge and the weigh-house chain clinked.
+Nobody said anything for long enough for the weigh-house chain to clink twice. Then a waggon went over the bridge downstairs and the chain went with it.
 
 "That is not a slow fuse," said Sarn Oyelaran.
 
@@ -121,7 +121,7 @@ Nobody said anything for about nine seconds. Downstairs a waggon went over the b
 
 ---
 
-And then he said the thing he had come to say, which he had been not saying for two days on a road, and it came out in about four seconds and it was the sentence he had said in a gateway in Embermonth with four men in it and it had not improved on the road and it was never going to.
+And then he said the thing he had come to say, which he had been not saying for two days on a road, and it came out in one breath and it was the sentence he had said in a gateway in Embermonth with four men in it and it had not improved on the road and it was never going to.
 
 "I wanted to have been careful once," he said, "while somebody was watching. That is the whole of what I have wanted since I was twenty-two. I have been in this office four years and I have been careful every day of the four years and nobody has ever watched me do it, and being careful when nobody is watching turns out to be the cheapest thing a young man can do with his life, and I have just come back off a road having spent three days and my own money and a career to be careful in front of a man who was not watching either, and I have got a sheet of paper out of it, and the sheet of paper is a good piece of work, and I am going to be a man who filed a return that answered nothing and I am not going to be anything else as long as I live."
 
@@ -141,7 +141,7 @@ Mara Vey took it and read the outside of it and then went the colour of the wall
 
 "It is dated," said Sarn Oyelaran.
 
-"It came today and it is dated the twelfth, and the post from the north takes three days in a hard month and two and a half in a soft one, and the twelfth is a Friday, and it has been in that bag since Friday morning." She turned it over twice and did not open it, and both the other people in the room let her do that for about fifteen seconds. "I want to say the thing about that before I open it, and I want both of you to hear it, because I am going to think about it for a month and I want the words to be in this room now while the two of you are here."
+"It came today and it is dated the twelfth, and the post from the north takes three days in a hard month and two and a half in a soft one, and the twelfth is a Tuesday, and it has been in that bag since Tuesday morning." She turned it over twice and did not open it, and both the other people in the room let her do that for the length of a long breath. "I want to say the thing about that before I open it, and I want both of you to hear it, because I am going to think about it for a month and I want the words to be in this room now while the two of you are here."
 
 "Go on," said Sarn Oyelaran.
 

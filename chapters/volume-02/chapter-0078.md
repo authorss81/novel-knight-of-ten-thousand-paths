@@ -2,7 +2,7 @@
 
 By the fourth week he had stopped being asked what he was for, and that was the best thing that had happened to him in eleven years.
 
-The hand of the Ninebridge had said it on the first morning — *useful and not a visitor* — and he had understood it as a courtesy, and it turned out to be a specification. In the fourth week a kiln-man at the loading end moved a board out of his way without looking up, and a boy at a rack said "fourth row" instead of "the sett-cutter," and the two hundred and six of them had been asked once each by a cord-cutter and an ash-driver in their own sheds and had answered, and about nine of them had come to the cutting shed at the low end of the rack and stood about for an hour a day and not asked him anything, which is a thing a county does when it has run out of the kind of stranger it knows how to be polite to.
+The hand of the Ninebridge had said it in his first week, at the door of a cutting shed, with a rack behind her — *useful and not a visitor* — and he had understood it as a courtesy, and it turned out to be a specification. In the fourth week a kiln-man at the loading end moved a board out of his way without looking up, and a boy at a rack said "fourth row" instead of "the sett-cutter," and the two hundred and six of them had been asked once each by a cord-cutter and an ash-driver in their own sheds and had answered, and about nine of them had come to the cutting shed at the low end of the rack and stood about for an hour a day and not asked him anything, which is a thing a county does when it has run out of the kind of stranger it knows how to be polite to.
 
 What brought the two hundred and six into one room was not the struck and not the physician. It was the price.
 
@@ -46,7 +46,7 @@ He took his hand off the rack and wiped it on his coat, and the man at the cutti
 
 ---
 
-He sat down. And a woman of about sixty who had not spoken stood up, and it was the woman who had said the sentence on the first morning, and the man at the loading end put his hand on her arm and she shook it off, and he let go.
+He sat down. And a woman of about forty-one who had not spoken stood up, and it was the woman who had said the sentence at the door of the cutting shed, and the man at the loading end put his hand on her arm and she shook it off, and he let go.
 
 "The ninety cords," she said, "is not the price. I want to say what the price is, and I have said in this room that the price is thirty-nine days of the wages, and he has just costed the wood and the cutting, and both of those are right, and both of those are what a kiln man can see."
 
@@ -62,23 +62,23 @@ He sat down. And a woman of about sixty who had not spoken stood up, and it was 
 
 The clerk of the roll had said nothing for about an hour.
 
-Then she stood up, and she had a sheet of the roll out of the box under her arm, and she did not read it, and the room understood that she was going to refuse to read it and understood why about eleven seconds later, when she said it.
+Then she stood up, and she had a sheet of the roll out of the box under her arm, and she did not read it, and the room understood that she was going to refuse to read it and understood why before she had got to the second line of it, when she said it.
 
 "I am not going to read the roll out in this room," she said. "I have said no to that in this county's own book in a corridor nine years ago and I have never taken it back and I am not taking it back now with two hundred people in front of me, because the day I read that book out in a room is the day it is a thing that can be read out, and then it will be read out in a room where the room is not me."
 
 "Quist," said the magistrate's room, which was empty.
 
-"I have got a figure and it is a figure I have had for nineteen years and it is the only figure I have ever been proud of." She turned the sheet over so that nobody could see it, which is a thing a keeper does, and then she did not go on for about four seconds, which is a thing a keeper does twice.
+"I have got a figure and it is a figure I have had for nineteen years and it is the only figure I have ever been proud of." She turned the sheet over so that nobody could see it, which is a thing a keeper does, and then she did not go on for a count, which is a thing a keeper does twice.
 
 "**Nine hundred and forty-one hearths on the roll.** A hearth is a fire and a fire is what a person is and I count this county and not myself and I have never in nineteen years been short."
 
 She said it to about two hundred people in a drying floor and the room did not stop, and she had intended not to say it, and she said it anyway, and the reason she said it is the next thing out of her mouth and it is the reason a person does a thing they have decided not to do.
 
-"I decided thirty seconds ago that I was not going to give you that figure in a room today, and I was wrong, and here is why, and I want it in whatever you are keeping. **I have spent nineteen years not wanting that number to be a number, and today there are two hundred people in this room who are not on it, and I would rather be the woman who said it out loud than have a stranger work it out of a kiln wall in about a minute and a half and come and ask me whether I knew.** And if the number is going to be said in this county then I am going to be the one who says it and I am going to be the one who is standing here when it is said, and that is the whole of the difference between a figure and a count and it is who is in the room."
+"I decided thirty seconds ago that I was not going to give you that figure in a room today, and I was wrong, and here is why, and I want it in whatever you are keeping. **I have spent nineteen years not wanting that number to be a number, and today there are two hundred people in this room who are not on it, and I would rather be the woman who said it out loud than have a stranger work it out of a kiln wall before the hour was out and come and ask me whether I knew.** And if the number is going to be said in this county then I am going to be the one who says it and I am going to be the one who is standing here when it is said, and that is the whole of the difference between a figure and a count and it is who is in the room."
 
 "Then say the number of men," said Vaile.
 
-"I have not got the number of men in this county," said Pernel Quist, "and I have said so to a stranger and to a physician and to a magistrate and I am saying it to a room, and I have said it four times now and every time somebody has looked at me as though I had refused, and I have not refused, I have answered, and the answer is *I do not know it*, and a keeper who puts a want in a cell where she has a fact is a mouth and not a cell, and I learned that from a man in another county in about a minute and a half."
+"I have not got the number of men in this county," said Pernel Quist, "and I have said so to a stranger and to a physician and to a magistrate and I am saying it to a room, and I have said it four times now and every time somebody has looked at me as though I had refused, and I have not refused, I have answered, and the answer is *I do not know it*, and I will say the rest of it once because there are two hundred people in this room and about half of them are looking at the number of hearths I have just given away. **A keeper who writes down what she wants to know in the place where the fact goes is not a careful woman. She is a woman who would like the county to be the shape of her wanting, and I have sat in this chair nineteen years and I have watched two women do that, and one of them was better at it than I ever will be.**"
 
 The room laughed, and it was not a cruel noise.
 
@@ -104,10 +104,10 @@ Nobody said anything about the last line for about half a minute.
 
 "Entered," said the ash-driver, and wrote it under the column, and it is in the county's own book, in a hand that is not a clerk's, on a page headed with a number that nobody had ever put at the top of a page before, and the page is a page about people and not about tiles, and it is the first one in this county.
 
-And the last of the two hundred and six to speak was Ostry Vaile, who is fifty-eight and fires tiles at the Kilnholt kiln and has been struck eleven months and gave a room the two sentences in Ch — a sentence he has been right about for eleven months, and he said it here in a drying floor to about two hundred people and he said it once and he did not say it twice.
+And the last of the two hundred and six to speak was Ostry Vaile, who is fifty-eight and fires tiles at the Kilnholt kiln and has been struck eleven months, and who gave nine men the two sentences in a shed at the change of shift on the eleventh day of a rolling — a sentence he has been right about for all eleven months of it — and he said it here in a drying floor to about two hundred people and he said it once and he did not say it twice.
 
 Then he said the third thing, and it was not a plea, and there is a reason it was not a plea, which is that he had spent a year and a bit being a plea in about nine different rooms and had learned exactly what a plea sounds like from the inside.
 
-"I am not going to stand here and tell anybody what I want," he said. "You have all got that. What I am going to say is the thing nobody has said, and it is not a favour and it is not a threat and it is not clever. **Three of those men at the end of your column are me.** I have been struck eleven months and I have not lost a day, because a hod does not ask a man's standing, and if the cutting stops in the fourth week I will lose every day I have got, and then I will be a man who is struck and a man who is out, and there is nothing in this county that can tell the difference between those two things or anybody else either. So when the ninety cords get cut, in whichever week they get cut, there is one man in this room who will not be in the way of it, and I would like that entered in the book by somebody who is not me, and I would like it entered now, while I am able to ask."
+"I am not going to stand here and tell anybody what I want," he said. "You have all got that. What I am going to say is the thing nobody has said, and it is not a favour and it is not a threat and it is not clever. **The two lines at the bottom of your column are not the same forty and I have heard the man who wrote them say so, and I am going to be the one man in this room who is in both of them, and I have not counted and I am not going to, because a man who counts his own name is a man who has begun to be a list.** I have been struck eleven months and I have not lost a day, because a hod does not ask a man's standing, and if the cutting stops in the fourth week I will lose every day I have got, and then I will be a man who is struck and a man who is out, and there is nothing in this county that can tell the difference between those two things or anybody else either. So when the ninety cords get cut, in whichever week they get cut, there is one man in this room who will not be in the way of it, and I would like that entered in the book by somebody who is not me, and I would like it entered now, while I am able to ask."
 
 The clerk of the roll entered it. It is the second line on that page, and it is in a keeper's hand, and it is the first entry in nineteen years in that office against a man by name that is not a removal.

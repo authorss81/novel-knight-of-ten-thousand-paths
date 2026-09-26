@@ -16,7 +16,7 @@ Nobody in the gateway said anything, which is how a yard works.
 
 That got a noise out of the man at the drawknife, and Tovan waited for it, because a yard's book is only worth having if the yard can hear it.
 
-"He is not here," he said, "because he is on the water, and he asked me on Friday morning at the grindstone and I said yes, and it is a day and it is in the book, and it took us to fourteen."
+"He was not in the yard when I did the sum," he said, "because he was on the water, and he asked me on Friday morning at the grindstone and I said yes, and it is a day and it is in the book, and it took us to fourteen."
 
 He wrote the figure on the board in front of the other three, large, in a carpenter's hand that is not a clerk's hand.
 
@@ -24,11 +24,31 @@ He wrote the figure on the board in front of the other three, large, in a carpen
 
 Four men looked at it.
 
-"There," said Tovan Kest. "A fortnight, and it is the ninth of Wolfmonth, and four days ago it was eleven, and if you had asked any one of you on Tuesday what was in this yard you would have said eleven and you would have been right, and nobody in this county has heard a number about this yard in a year. I want it understood that the four days are on this board with two hours against them, and that they came from a man's mouth on a Thursday and not out of the air. **A yard that gains four days without anybody being able to say where they came from is a yard that has stopped counting**, and a yard that has stopped counting is a yard that is being run on somebody's memory, and I have been on the other side of that in this county and I did not enjoy it."
+Pei Tarrow came in a few minutes after Gwil Trewhella had gone out, with a coil of rope over his shoulder, and he stood at the trestle and had heard the whole of it, and he said so out loud before anybody else could decide he had not.
+
+"I asked you for two days and not three," he said. "That is what I came in for and I am not going to stand here and thank you for it, because you did not do it for me. You did it because fifteen is not a figure a yard can hold up in a market and fourteen is."
+
+"You did not know that when you asked."
+
+"No, and if you tell me you did I will take my two days back and take my three with them." He shifted the coil to the other shoulder. "**I have been called a symbol for eleven years. There is not a book about me in this county. There is not a list I am on. There is not one man dead that anybody can put my name against, and I have got a barge and a market day and nine days of freight on a hard month, and I am not on anything, and if I am not on anything then nobody has to tell me anything at all, and that is the whole of what I have wanted since I was forty-one.**"
+
+"You are not on anything," said Tovan Kest.
+
+"I know that I am not on anything. I am telling a gateway." He looked at the board. "**Do not take it off the yard's board and put it on a list to be kind to me. Take it off the yard's board and let me be somewhere else with it.** A list is a thing a man gets put on and stayed on, and I have never been on one, and I am not going to start in a hard month because somebody in a gateway thought it would be kind of him."
+
+The man at the drawknife turned a sett over in his hand and looked at the other end of it.
+
+"Nine days of freight is a good week," he said. "A hard month is not the week."
+
+"I know what a hard month is not the week for," said Pei Tarrow. "That is the whole of what I came in here to say and I have said it, and I am going to be at the stone wharf by the second hour tomorrow because the tide is at the third and I am not paying a boy."
+
+He went out into the market with the coil on his shoulder, and Tovan Kest did not put one word of it in the book, because a man's reason for asking to be put off is a thing believed and a yard is not an office, and the yard's book holds things set.
+
+"There," said Tovan Kest, going back to the board. "A fortnight, and it is the ninth of Wolfmonth, and four days ago it was eleven, and if you had asked any one of you on Tuesday what was in this yard you would have said eleven and you would have been right, and nobody in this county has heard a number about this yard in a year. I want it understood that the four days are on this board with two hours against them, and that they came from a man's mouth on a Thursday and not out of the air. **A yard that gains four days without anybody being able to say where they came from is a yard that has stopped counting**, and a yard that has stopped counting is a yard that is being run on somebody's memory, and I have been on the other side of that in this county and I did not enjoy it."
 
 He put the pencil down.
 
-"Eleven on Tuesday. Fifteen on Thursday. Fourteen on Friday. The book has all three and I have read all three out and that is the whole of it."
+"Eleven on Tuesday. Fifteen on Thursday. Fourteen on Friday. The book has all three and I have read all three out and there is nothing else in it about any of them."
 
 ---
 
@@ -84,7 +104,7 @@ He sat down on the edge of it with his hands on his knees, the way a man sits wh
 
 "And the road?"
 
-"The road is not a trade," said Tovan Kest, "and the yard is, and that is the whole of my argument and I have been making it since I was twenty-one years old and I have never been asked to make it in a room with a bench in it until this year. A road is two ends and a date and a person at each end who has agreed to be there, and every one of those four things is a promise, and a promise is not a trade and a yard cannot make one and cannot answer for one. What I can do is cut setts and set them in a road and read where the load goes, and I have got a fortnight and I have not got a day, and a man who asks me for a day is asking me for a thing I have not got, and I would rather say that than have you find out on the water."
+"The road is not a trade," said Tovan Kest, "and the yard is, and that is my argument entire and I have been making it since I was twenty-one years old and I have never been asked to make it in a room with a bench in it until this year. A road is two ends and a date and a person at each end who has agreed to be there, and every one of those four things is a promise, and a promise is not a trade and a yard cannot make one and cannot answer for one. What I can do is cut setts and set them in a road and read where the load goes, and I have got a fortnight and I have not got a day, and a man who asks me for a day is asking me for a thing I have not got, and I would rather say that than have you find out on the water."
 
 "That is a hard way to say a soft thing."
 
@@ -168,7 +188,7 @@ He wrote on the back of the week's sheet, in a carpenter's hand that is not a cl
 
 He put the pencil down and pushed the sheet across the trestle.
 
-"That is the answer," he said. "It is the same answer as the third of Embermonth and it is the same answer as the second of Fallowmonth, and there is a person in a filing room two hundred miles off who has been making the same answer for four years out of a press, and I did not get it from her and she did not get it from me and I have never seen her face, and if the two of us got it out of the same place then there is a third thing that knows and neither of us has met it, and I would rather that than not, because a thing you can find twice is a fact and a thing you can only find once is a trick."
+"That is the answer," he said. "It is the same answer as the third of Embermonth and it is the same answer as the second of Fallowmonth, and it is the answer somebody else is making in a book about a different set of things, and I do not know who and I have not asked, and I have not got it off anybody and whoever is making it has not got it off me, and neither of us has ever seen the other's face. And if the two of us did get it out of the same place then there is a third thing that knows it and neither of us has met it, and I would rather that than not, because a thing you can find twice is a fact and a thing you can only find once is a trick."
 
 The man from the office looked at the sheet for a while and then put it in the bag, and he did not say anything, because he was an officer of an office and not a man who argues with a carpenter in a gateway, and he was not going to be the first one.
 
@@ -184,10 +204,10 @@ The man went out into the market with the bag.
 
 ---
 
-Tovan Kest entered it. That was the last thing and it took about ninety seconds, and it is the whole of what the ninth of Wolfmonth is in a book.
+Tovan Kest entered it. That was the last thing and it took the better part of a minute, and it is the whole of what the ninth of Wolfmonth is in a book.
 
 *Fifth of Wolfmonth, second hour. Eleven days. Without my brother's name, and the reason is that this is a thing set.*
-*Fifth of Wolfmonth, fifth hour. Fifteen days, by the man's mouth on the Thursday, re-spoken, four days, timber the eighteenth.*
+*Seventh of Wolfmonth, fifth hour. Fifteen days, by the man's mouth on the Thursday, re-spoken, four days, timber the eighteenth.*
 *Eighth of Wolfmonth, first hour. Fourteen days, Pei Tarrow put off two and not three, one day off, a fortnight.*
 *A sheet from the Office of Provincial Registration, undated, wants a figure and how the figure was compiled, nine lines, read at the fourth hour, answered on the back of the week's sheet in my own hand and read out with four men in the gateway, went back out of this yard. Nil entered against the figure.*
 
@@ -201,4 +221,4 @@ He shut the book and put the board away and the man at the drawknife said, "You 
 
 He put the board under his arm.
 
-"And the other thing, and it is the only other thing, and I have been not saying it for a month and I am saying it now because there are four men in this yard and two of them have been in a market all afternoon listening to a man on the west channel: there is a road in this county that was opened on the ninth of Embermonth at the fourth hour and nothing came, and it did not fail, and it is kept for the fourth and the ninth, and I do not know when it will open and I have not asked, and I have a brother in it and I have not sent him a word because I do not know the address, and I am telling you that I said that out loud, in a yard, on a market day, at about half past four, and I have never said it out loud in this yard before, and if either of you ever tells anybody in this county that I said it I will deny it in a form."
+"And the other thing, and it is the only other thing, and I have been not saying it for a month and I am saying it now because there are four men in this yard and two of them have been in a market all afternoon listening to a man on the west channel: there is a road in this county that was refused on the ninth of Embermonth at the fourth hour and nothing came, and it did not fail, and it is kept for the fourth and the ninth, and I do not know when it will open and I have not asked, and I have a brother in it and I have not sent him a word because I do not know the address, and I am telling you that I said that out loud, in a yard, on a market day, at about half past four, and I have never said it out loud in this yard before, and if either of you ever tells anybody in this county that I said it I will deny it in a form."
