@@ -1,6 +1,6 @@
 # Chapter 0200
 
-**The twenty-fifth of Fallowmonth, YR 314, a Monday, and not a market day, and the fourth hour, and there were about forty men on the Sedge Reach with the fourth bay finished and being pointed and the road open, and a man of thirty-two with a limp was on the gravel at the low end of it with a barrow, and a man of forty-seven on the roll of the bench of nine with a vote and not an office was on the deck of the first bay with a hod, and neither of them held anything.**
+**The twenty-fifth of Fallowmonth, YR 314, a Monday, and not a market day, and the fourth hour, and there were about forty men on the Sedge Reach with the fourth bay finished and being pointed and the road open, and a man of thirty-two with a limp was on the gravel at the low end of it with a barrow, and a man of forty-seven on the bench of nine because he was elected was on the deck of the first bay with a hod, and neither of them held anything.**
 
 Thirty-five days. The fever had broken on the seventh morning and had left him with a leg that does not get up a bank any better than it did in June and does get up one a good deal more slowly than it did in the year before, and a mason of fifty and a half, who has been cutting stone for thirty-one years and who laid a floor in a trough at a mill in a valley nine days over a pass in a winter in its ninth generation and told him to take it up and lay it again on stones, looked at him once, on the second morning after the fever broke, and said four words and went back to his stone, and the four words were *you are slower now*, and he has not said anything about it since and neither has anybody else.
 
@@ -12,13 +12,13 @@ He looked at the seam once. That was on the Monday morning he came up, with his 
 
 He did not take the rule.
 
-And a man of forty-seven on the roll with a vote and not an office has not been asked about it, and has not been asked because he is not the person who keeps the reach, and the reach is kept by the bench of nine, and the man of forty-seven has a vote in the bench of nine and has not used it since the day he was elected and did not use it then and has said in that hall nothing about that and is not going to start.
+And a man of forty-seven on the bench of nine because he was elected and not because he is on a trade has not been asked about it, and has not been asked because he is not the person who keeps the reach, and the reach is kept by that bench, and he is paid fourpence a week out of a private box and not out of the chest, and he has not used his vote since the day he was elected and did not use it then and has said in that hall nothing about that and is not going to start.
 
 **That is the only thing in this volume about the thing in the stone course and it is not a sentence and it is not a finding, and there is nobody in this county who has put a figure against it, and there is nobody in a county four hundred miles off who knows it is there, and neither of those is going to change inside nine years and one of them will not change at all.**
 
 ---
 
-****And about forty men were on that reach in daylight with the road open and the salt coming over the lane,** and the stone came in four carts out of a quarry eleven miles up the channel and it came one cart behind another all morning, and the carts were unloaded with a crane and a gin and four men on a rope, and the whole of the work of a reach in a fen county is that a cart arrives and four men on a rope know what the cart is for before the man in the cart has got down off it.**
+**And about forty men were on that reach in daylight with the road open and the salt coming over the lane,** and the stone came in four carts out of a quarry eleven miles up the channel and it came one cart behind another all morning, and the carts were unloaded with a crane and a gin and four men on a rope, and the work of a reach in a fen county is that a cart arrives and four men on a rope know what the cart is for before the man in the cart has got down off it.**
 
 A mason of fifty and a half. Two men of about twenty-six setting a course. A boy of fifteen at the bench-board with a lime tub and a rule and a bill, copying the empty space under a number as well as the number. A carter of thirty. A man of about nineteen carrying a hod badly. And a road warden of this county's bridge guild on the deck of the first bay with a hod, who has a vote and not an office, who does not hold this reach or the Old Toll or the crossing, and who has worked eleven days in a year in which he has not voted once.
 

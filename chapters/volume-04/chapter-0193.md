@@ -40,7 +40,7 @@ And the fourth question was asked by a woman of about thirty-five of the ninth g
 
 The whole of the loose in the face, which had been a slope of about a foot from the top down to the step, went into the bottom in the time it takes to say a sentence, and it did not make a noise, and eleven people have said that the thing they remember about it is not the ground and is the silence, and one of them has said that the silence was worse than the noise would have been, and that is the only one of those accounts anybody has ever improved on.
 
-“Off the face,” said a man of about thirty-one of the ninth generation, from nine feet above the top of it, and about forty people were off the bank in about three seconds and the man of thirty-four was the last of them and he was not slow, he was carrying a bar.
+“Off the face,” said a man of about thirty-one of the ninth generation, from nine feet above the top of it, and about forty people were off that bank before the middle of it had finished and the man of thirty-four was the last of them and he was not slow, he was carrying a bar.
 
 He got out and stood at the top with the bar in his hand and looked at the bottom, and the face had a foot of loose in it again in the time it took him to walk to the top and come back, and it had stopped.
 

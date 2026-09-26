@@ -42,11 +42,11 @@ He said it to a child. The child was the girl of the Low Holm, who is of the nin
 
 Nobody said anything about it. The man of thirty-four was not there and had not been asked and the man of fifty-eight was not there either, and the girl of the Low Holm put her hand flat on the top of a barrow and then took it off, and as many again in that bank have said since that they were at the fourth hour of the ninth day and heard it, and the man of about twenty-eight has not said it again and does not know that four kitchens have it and one of the four is a house a mile and a half up the bank where a man of fifty-eight lives with nine spreads in a room over a byre.
 
-**And it is not a villain and it is not a mirror and nobody in this valley has called him anything, and a man of fifty-eight has said out loud in a room that a sentence in this valley about a man off a road is the second one in two years, and that he does not know what to do with two of anything.**
+**And nobody in that valley has called him anything, and a man of fifty-eight has said out loud in a room that a sentence in this valley about a man off a road is the second one in two years, and that he does not know what to do with two of anything.**
 
 ---
 
-**And the man of fifty-five came up the new road on the eighth day of the twelve with eleven people behind him because he had come, and he stood at the top of the turning place and did not say anything about the road, and he said one thing, and it took about nine seconds.**
+**And the man of fifty-five came up the new road on the eighth day of the twelve with eleven people behind him because he had come, and he stood at the top of the turning place and did not say anything about the road, and he said one thing, and then he stood there and let eleven people wait.**
 
 “The promise was nobody's to hold,” he said. “I have said that in this valley for thirty years and about four people ever heard me, and I said it in a room of nine in the fourth week of the fourth cold and I voted against keeping the winter and I lost eight to one and I have not said one word about that since and I am not going to.
 
@@ -72,7 +72,7 @@ The man who makes nails went on the fourth day of the next cold with his wife an
 
 The man of about fifty went on the sixth day with a dog and one barrow and no family, and his grandmother stood in the aisle over the cross when the benches were put in and it took nine minutes and it was the worst nine minutes of her life, and he is the man who put a hurdle across a step in a doorway in the ninth week of the first cold and said no in about four seconds, and nobody in that valley has ever had that sentence improved on and eleven people have it word for word.
 
-The man of about forty went on the ninth day with his mother and a brother of twenty-six and a sister of nineteen, and he is the man who said at a door in the second month of the second cold that you may write him down as one of three and you cannot write down why, and that if you write down why he will change his mind, and that he had decided he does not want to be a man who changes his mind for a piece of paper.
+The man of about forty went on the ninth day with his mother and a brother of twenty-six and a sister of nineteen, and he is the man who gave his reason at a door in the second month of the second cold before the six things had been finished, and it was one sentence, and it is the sentence about not being a man who changes his mind for a piece of paper, and eleven people in this valley have it word for word and nobody has improved on it.
 
 **Those are nine people and one dog and they are three households and the figure of nine that a man of thirty-four made on a step in the cold in nine seconds with a rope-belt on is one higher than the number of people in them, and the ninth line in the second column of the ninth spread of the only roll in this valley is empty, and it is going to be empty in nine years, and the man of fifty-eight has not ruled it across and is not going to.**
 

@@ -2,7 +2,7 @@
 
 **The fourth cold has run for ten weeks and the fourth of its weeks is the last of it, and on the ninth day of that week a man of thirty-four is going to put four days on the end of the back bench in the room over the cross in chalk, and about forty people are going to be at the ford at the fourth hour on the second morning of them, and one of the forty is a man of thirty-two with a limp who is not allowed to lay a stone in this valley.**
 
-The chalk was the man of fifty-eight's idea and he gave it away in about four seconds and would not have it back. There is no chalk in this valley. There has been a piece of it in the room over the cross since before the second of the ninth, in a box on the shelf behind the fire that has been opened four times in a hundred and forty years, and the man of thirty-four asked for it and the man of fifty-eight said no, and then said yes, and then would not say why for three days.
+The chalk was the man of fifty-eight's idea and he gave it away in about four words and would not have it back. There is no chalk in this valley. There has been a piece of it in the room over the cross since before the second of the ninth, in a box on the shelf behind the fire that has been opened four times in a hundred and forty years, and the man of thirty-four asked for it and the man of fifty-eight said no, and then said yes, and then would not say why for three days.
 
 “Why I would not have it back is not a thing I am going to say in a room with eleven people in it,” he said, on the sixth day, at the end of the fire. “Four days in a valley with no writ and no bell and no office is a thing that has to be written on a public thing or it is a rumour by the second morning. That is all. Write the four days on the end of that bench and every person in this valley can come and read them, and none of them has to be told anything by anybody, and if a thing is on the end of that bench then it is not being kept by the man who wrote it.”
 
@@ -48,7 +48,7 @@ A woman of about thirty took a slate out from round her neck and put it on the t
 
 The last leaf of the ninth spread had the three figures in the day column, entered on the twenty-fourth day of the second cold, with a mark under each and a hand over the top, and the hand varies. *About four hundred. About a hundred and eighty-nine. Nine.*
 
-And to the right of the day column, ruled in ink in a man of fifty-eight's own hand on the tenth day of the fourth week of the fourth cold, there was a second column, about the width of two fingers, and it was the first new column on that page in a hundred and forty years.
+And to the right of the day column, ruled in ink in a man of fifty-eight's own hand on the tenth day of the fourth week of the fourth cold, there was a second column the width of two fingers, and it was the first new column on that page in a hundred and forty years.
 
 “There are eight names in it,” he said, “and they are in the book and they are not going to be read out in a room, and the reason they are not is not politeness. **A name in a book of this valley goes in because the person did it themselves and not because anybody asked him. That is the fourth line at the head of the first spread and it is a hundred and forty years old and I have read it about nine hundred times and never once knew what it was a rule about until a man of thirty-two stood on a step outside my byre and asked me what it was a rule about.**”
 
@@ -56,9 +56,9 @@ And to the right of the day column, ruled in ink in a man of fifty-eight's own h
 
 “Eight names in eight hands, and the ninth line is empty, and I ruled it on the tenth day and it is the ninth line from the top and it is the same depth as the other eight and I am not going to rule it across.
 
-“The figure of nine is yours. You made it on a step in the cold in about nine seconds with a rope-belt on and it is in the day column and it is what was said at nine hundred doors and it is what about four hundred people heard, and I am not going to strike it, because a figure that is in a book and is struck out is two figures and this valley has one.
+“The figure of nine is yours. You made it on a step in the cold in about a minute with a rope-belt on and it is in the day column and it is what was said at nine hundred doors and it is what about four hundred people heard, and I am not going to strike it, because a figure that is in a book and is struck out is two figures and this valley has one.
 
-“**And it is wrong.** The three households hold eight people. I have counted them twice this week and I have counted them with a woman of about thirty-five who has lived next door to two of them for thirty years, and it is eight, and the nine was made on a step in the cold by a man with a rope-belt on in the same nine seconds.
+“**And it is wrong.** The three households hold eight people. I have counted them twice this week and I have counted them with a woman of about thirty-five who has lived next door to two of them for thirty years, and it is eight, and the nine was made on a step in the cold by a man with a rope-belt on in about a minute.
 
 “And I have not been able to account for the ninth. Not in a week. There is a person in one of those three houses who was not at a door and has not been asked anything and cannot be found, and I am not going to put a name against the ninth line, and I am not going to strike the nine, and I am going to write in the margin in my own hand that eight are named and one is not found, and if the man who wrote the nine is in this room he can come and look at the margin.”
 
@@ -76,7 +76,7 @@ The face was on the low side of the ford, in the bank above the wet gravel, and 
 
 The man of thirty-two took a barrow and did not say anything and did the whole morning.
 
-They took the face down by barrow-load and by bar and by hand at the bottom where the bar would not go. The ground was frozen about a foot down and soft under it, and there was a seam of a different colour about a hand's width under the frozen foot, and eleven people in that valley had seen that colour once before in their lives and all eleven of them were of the eighth generation and had seen it in a bank that had come down in a wet week in the year before the first of the nine.
+They took the face down by barrow-load and by bar and by hand at the bottom where the bar would not go. The ground was frozen a foot down and soft under it, and there was a seam of a different colour about a hand's width under the frozen foot, and eleven people in that valley had seen that colour once before in their lives and all eleven of them were of the eighth generation and had seen it in a bank that had come down in a wet week in the year before the first of the nine.
 
 The barrow went up the bank to the four hundred yards of made ground and came back down, and the barrow went round the second stand at the ford because the stand was in and it went over it, and the woman of the Low Holm came down the bank in the middle of the morning with a yoke on her shoulders and a pail in each hand and four hundred yards of made ground under her feet, which is the only true line in nine miles, and she did not stop and nobody asked her to.
 

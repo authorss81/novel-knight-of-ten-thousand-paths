@@ -36,7 +36,7 @@ And the ninth stone of the new coping at the Low Holm came off on the fourth day
 
 Six byres in a valley in a warm week is not a tragedy. It is a hole in a roof, a floor that has not been walked on, a door a family shuts behind them and does not open until there is somebody in the yard. Four of the six were on ground that a beck has been coming out under for sixty years and the fifth was the best wall anybody in this valley had ever seen holding up a byre, and the sixth was a byre with about forty foot of new coping on it done by a man of fifty-one in a good week and nothing else done to it in nine generations.
 
-The seed house was at the low end of one of the eleven steadings and it had a stone floor and a door that shut and about four feet of the Burn in it in four days, and the seed was barley and the seed on a piece of rag paper in the man's hand, and the man had it up the bank in two days with his brother and a barrow and eleven people helping and nobody asked.
+The seed house was at the low end of one of the eleven steadings and it had a stone floor and a door that shut and four feet of the Burn in it in four days, and the seed was barley and the seed on a piece of rag paper in the man's hand, and the man had it up the bank in two days with his brother and a barrow and eleven people helping and nobody asked.
 
 It went into the room over the cross because that is the only room in nine miles with a fire in it about forty times a year, and it went into the aisle because there is nowhere else in that room for nine bushels of barley, and four people carried it in and nobody stood in the aisle while they did and the aisle is four feet wide and there has not been a person in it for three generations.
 
@@ -54,17 +54,11 @@ The mill went on the low side. The wheel had been off since the fourth week of t
 
 **And the ford moved twice in the eighth week, a foot each time, which is a year's worth in eight days, and it has not moved since, and there are about four people in this valley who have a barrow and know what a moved ford is and about four of them have noticed, and none of them has said a word about it in a room, and the man of thirty-four has not said it in a room either.**
 
-He said it in a yard, to four people, on the ninth day of the eighth week, and it took about eleven seconds, and the reason he said it in a yard and not in a room is that a room has a clerk in it.
+He said it in a yard, to four people, on the ninth day of the eighth week, and he said it once and did not say it a second time, and the reason he said it in a yard and not in a room is that a room has a clerk in it.
 
 “It has stopped. Nine good stones are in the footing of the second stand under four feet of water in the order they came off, and the footing is in the bed of that ford, and the bed is where a ford is, and the ford has gone down about a foot a year since I was twenty-five and it has gone down twice in eight days and has not gone down at all for the rest of the week.
 
 “**And I am not going to say that is because of a hole in a bank that a man of thirty-two and sixteen of us filled in a warm week. I have got four trades' worth of reasons a ford might stop and I have not got the one that is true, and I have been nine years on this bank and I am not going to spend the nine years of a man of fifty-eight on a thing I cannot check.**”
-
-And in the tenth week about two hundred people in this valley began to find out where the pass was.
-
-Nobody in nine miles told them. There was a market four times a year and about eleven people came to it and one of the four was a man of about fifty with a waggon of his own who had been up the low country twice in eleven weeks, and on the third market after the warm week he said in front of nine people that there was a cart road at the top of the pass and about nine days on it and a county road at the bottom of it, and that was all he said, and the county that keeps the road at the bottom of it has never been asked a question by anybody in this valley in nine generations and does not know this valley is on a map.
-
-About two hundred people heard it in about a week and nobody has a figure for the number that are going and there is not going to be one, and a woman of about thirty took a slate out from round her neck and said a figure out loud, and a man of fifty-eight said that the ninth spread of the only roll in this valley has about two hundred of the ninth generation in it, and the two figures were not the same, and neither of them was struck out and neither of them was offered up to be corrected, and there is nowhere in nine miles that either of them can be put.
 
 **And in the ninth week the ninth generation was asked one more time, in the room over the cross, on a morning with a fire in it, and the asking was not refused, and what they said was four words long, and it is in the minute in a clerk's hand and it is entered as a fact and not as a defeat and the clerk read it back twice.**
 
@@ -92,6 +86,12 @@ The clerk read it back twice. The second reading was slower and not better, and 
 
 Nobody said anything about it for about a minute. The man of fifty-five said, “That is the only true sentence anybody has said in this room in the two years I have been coming to it, and it is four words and it is not a pledge and it is not a refusal, and I am not going to say another word about it, and I have not stood in the aisle and I am not going to.”
 
-A woman of about thirty-five of the ninth generation asked what the nine was, and the man of thirty-four told her, in about four sentences, what he had made it out of in nine seconds on a step in the cold with a rope-belt on, and that the three households hold eight people and that there is a ninth he cannot find, and that the ninth line in the second column of the ninth spread of the only roll in this valley is empty and is not going to be ruled across, and eleven people in that room looked at the man of thirty-four and four looked at the man of fifty-eight.
+A woman of about thirty-five of the ninth generation asked what the nine was, and the man of thirty-four told her, in about four sentences, what he had made it out of in about a minute on a step in the cold with a rope-belt on, and that the three households hold eight people and that there is a ninth he cannot find, and that the ninth line in the second column of the ninth spread of the only roll in this valley is empty and is not going to be ruled across, and eleven people in that room looked at the man of thirty-four and four looked at the man of fifty-eight.
+
+And in the tenth week about two hundred people in this valley began to find out where the pass was.
+
+Nobody in nine miles told them. There was a market four times a year and about eleven people came to it and one of the four was a man of about fifty with a waggon of his own who had been up the low country twice in eleven weeks, and on the third market after the warm week he said in front of nine people that there was a cart road at the top of the pass and about nine days on it and a county road at the bottom of it, and that was all he said, and the county that keeps the road at the bottom of it has never been asked a question by anybody in this valley in nine generations and does not know this valley is on a map.
+
+About two hundred people heard it in about a week and nobody has a figure for the number that are going and there is not going to be one, and a woman of about thirty took a slate out from round her neck and said a figure out loud, and a man of fifty-eight said that the ninth spread of the only roll in this valley has about two hundred of the ninth generation in it, and the two figures were not the same, and neither of them was struck out and neither of them was offered up to be corrected, and there is nowhere in nine miles that either of them can be put.
 
 **And the clerk wrote the four words in the middle of the page, and read them back twice, and shut the minute, and the fire went out at the ninth hour, and nine bushels of barley were in the aisle of the room over the cross, and a girl of nine came up the outside stair during all of it, did not knock, stood on the fourth tread, counted the benches through a doorway, got twenty-nine, and did not go in.**

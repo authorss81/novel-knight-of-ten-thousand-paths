@@ -2,13 +2,13 @@
 
 **The warm week came eleven days after the fourth day of the four days and it lasted nine days, and on the fourth morning of it sixteen men and about thirty more came down to a hole in a bank at the ford at the fourth hour with two bars and a rope and a bucket, and they took a course up off a hole in about two hours, and a man of thirty-two with a limp was let into it because he is the only man in nine miles who can say whether a bank is square and there is no instrument in this valley that can.**
 
-He had been standing on the top of that bank for four days with a barrow and a rope and there had been no place on the ground where a man of thirty-two could be told to stand, and on the fourth morning of the warm week a man of thirty-four came up the bank with a bar in his hand and said three sentences to him and they took about eleven seconds.
+He had been standing on the top of that bank for four days with a barrow and a rope and there had been no place on the ground where a man of thirty-two could be told to stand, and on the fourth morning of the warm week a man of thirty-four came up the bank with a bar in his hand and said three sentences to him and did not look at him while he said them.
 
 “You can tell whether a bank is square. I cannot. I have got four men here who cannot and one of them is fifty-one and the other three are under thirty and have all been wrong in front of me this month.
 
 “**So you are not laying a stone. You are the man who says whether it is square, and you will say it about four times a day, and I will move whatever you tell me to move, and I am not going to ask you whether you are sure, because if you are not sure I want to know that and not have it kept.**”
 
-He said yes in about four seconds and did not argue and has not argued about it since.
+He said yes at once and did not argue and has not argued about it since.
 
 **And the reason he is in the book for the four days and the two hours is a rope and four sentences and none of the four sentences is the reason, and this is the second half of the thing that was done in the fourth week of the fourth cold, and the two halves are in the mouths of eleven people in this valley and not one of those eleven has the other half.**
 
@@ -104,4 +104,6 @@ The man of about thirty-one said, “He is going to be at the front of the queue
 
 “He is,” said Wystan Roole. “And he has a wife and a mother-in-law of sixty and he has wanted to go out of this valley for nine years and he is one of three that said no at nine hundred doors in the second month of the second cold, and the first family out of this valley is going to be a family with a reason and a place to go, and he is the one of the three with a place to go.
 
-“**And I would rather he went third than first, and I have known that since the second month of this valley and I have not said it to him, and I am not going to say it to him, and the reason I am not is that the day I say it to him it is a thing I have put in him and not a thing he has done.**”
+“**And I would rather he went third than first, and I have known that since the second month of this valley and I have not said it to him, and I am not going to say it to him.**”
+
+And the barrow run went over the top of the hole that afternoon with the road open and about eleven people on it, and it went over the eleven yards on the low side as well and nothing about that moved, and the man of thirty-four was at the low end of it and the man of nails was on it and neither of them said one word to the other about the fourth day of the next cold.
