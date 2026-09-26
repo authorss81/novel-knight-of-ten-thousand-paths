@@ -38,19 +38,19 @@ And that was the end of that, and it was the end of it in nine seconds, and the 
 
 **And about nine of the people in that wide place had not come for it, and one of them said so out loud, which is the ordinary way a thing like that goes in a place with no writ in it.**
 
-"I have no interest in that," said Wystan Roole. "I have been interested in a road for nine years and I have been interested in it in every room in this valley and I did not come to a market this morning to be a good man in it. I came because a wall needs sixteen men and I need to know whether there is going to be a valley here in ten years, and now I know there is, and that is worth a morning."
+“I have no interest in that,” said Wystan Roole. “I have been interested in a road for nine years and I have been interested in it in every room in this valley and I did not come to a market this morning to be a good man in it. I came because a wall needs sixteen men and I need to know whether there is going to be a valley here in ten years, and now I know there is, and that is worth a morning.”
 
-"You have known there was a valley here in ten years for nine years."
+“You have known there was a valley here in ten years for nine years.”
 
-"I have known there was a valley here next week. There is a difference and I have never been able to make anybody in this valley hear it and I have stopped trying at it, and if you are the first person who has heard it then you may have it for free." He put his hand on the hurdle and took it off the boy without asking, which is a thing a man of thirty-four does to a man of twenty-two. "Get that up, you are letting the cold in."
+“I have known there was a valley here next week. There is a difference and I have never been able to make anybody in this valley hear it and I have stopped trying at it, and if you are the first person who has heard it then you may have it for free.” He put his hand on the hurdle and took it off the boy without asking, which is a thing a man of thirty-four does to a man of twenty-two. “Get that up, you are letting the cold in.”
 
 The man who makes nails had turned his tally back the right way up and had not said anything at all, and about an hour later, when the barrow had been and gone, he said one thing to the man off the road that was about the market and was not about anything else.
 
-"Nine is a good number for going over," he said. "Eleven is a bad one and it has been bad for three years and I have written it down on the back of a stall where anybody can see it. And I will tell you the thing I have never told anybody, and it is that I would go tomorrow, and I have a brother-in-law in a town about nine days off down the low country who has offered me twice and my wife has said no twice, and I have not said yes, and if this valley stops being a valley in a week then I am the first one out of it and I have known that for two years and I have never said it in a market."
+“Nine is a good number for going over,” he said. “Eleven is a bad one and it has been bad for three years and I have written it down on the back of a stall where anybody can see it. And I will tell you the thing I have never told anybody, and it is that I would go tomorrow, and I have a brother-in-law in a town about nine days off down the low country who has offered me twice and my wife has said no twice, and I have not said yes, and if this valley stops being a valley in a week then I am the first one out of it and I have known that for two years and I have never said it in a market.”
 
-"That is a thing to say in a market."
+“That is a thing to say in a market.”
 
-"It is a thing to say anywhere and I have said it here because you are a stranger and a stranger cannot be at the next market."
+“It is a thing to say anywhere and I have said it here because you are a stranger and a stranger cannot be at the next market.”
 
 **And about an hour afterwards, when the wide place had emptied, the man off the road stood at the cross with about four people and worked out something that had been standing in front of him since the ninth week of a cold, and that he had never once said out loud to anybody, in any country, in four years and a half of doing this.**
 

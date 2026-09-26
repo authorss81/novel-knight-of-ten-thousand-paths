@@ -36,7 +36,7 @@ And about the fourth hour on the eighteenth day, a man of fifty-eight came up th
 
 “It may not be there.”
 
-“It may not be there. And if it is not there then I am sixty and I have wanted a thing for six years and I have not got it, and I will say that out loud in a room in front of about forty people, and that will be the last time anybody in this valley hears me ask for anything, because I will not be able to stand up again after it.”
+“It may not be there. And if it is not there then I am fifty-eight and I have wanted a thing for six years and I have not got it, and I will say that out loud in a room in front of about forty people, and that will be the last time anybody in this valley hears me ask for anything, because I will not be able to stand up again after it.”
 
 “Where.”
 

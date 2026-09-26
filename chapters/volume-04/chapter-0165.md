@@ -18,7 +18,7 @@ He had got there because of a woman of about thirty with a slate, who comes up t
 
 “They stood us in the room over the cross in the cold, in the winter my generation came of age, and the whole valley was in it, and a man stood at the back with a slate.
 
-“It took nine minutes and it was the worst nine minutes of my life, and I am not going to tell you what I said, because you would have it in your head by Thursday and I have had it in mine for forty years and I have never once said it out loud in a room and I am not going to start at sixty-six for a man I met this morning.
+“It took nine minutes and it was the worst nine minutes of my life, and I am not going to tell you what I said, because you would have it in your head by the end of the week and I have had it in mine for forty years and I have never once said it out loud in a room and I am not going to start at sixty-six for a man I met this morning.
 
 “And I told the ninth generation about it, because they were owed it, and I told them it was survivable.
 
@@ -102,6 +102,6 @@ She put her hand flat on the door frame, which is a thing everybody in this vall
 
 “And I will not be standing there writing.
 
-“That is what I have come to tell you, and it is the whole of what I have, and I would have told you it on the first morning without the other eleven noes if you had asked me the right question, and you did not ask me any question at all, and that is how it got out of me, and a woman of about thirty told me that was coming and she gave me a week’s warning and she was right to within about a day.”
+“That is what I have come to tell you, and it is the whole of what I have, and I would have told you it on the first morning without the other eleven noes if you had asked me the right question, and you did not ask me any question at all, and that is how it got out of me, and a woman of about thirty told me that was coming and she gave me a week's warning and she was right to within about a day.”
 
 **And they came down the four steps together and out into the cross, and the light was doing the thing it does, and the room over the cross with its twenty-nine bolts was shut behind them, and nobody in that valley had asked the ninth generation anything yet, and one woman of the eighth generation had said in front of a byre that she would stand in the aisle at the back and be asked again, and she had said the one sentence that nobody off a road had come four hundred miles for, which was that she would not be standing there writing.**

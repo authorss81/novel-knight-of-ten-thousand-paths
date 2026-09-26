@@ -64,7 +64,7 @@ He had a number and he had no frame, and the two of them had been sitting side b
 
 This is what he wrote, and he wrote it in the valley's own register because that was the only register he had, and the valley's own register is that you say how many weeks of the cold it is and that is the whole of what a person can say about when a thing happened:
 
-*Out at the fourth hour on a Friday, from a sill with no glass in it, on a line made up in nine minutes with the hour against each of the nine. The office's printed figure is three weeks. It has been three weeks in an office's hand for two years and the office cannot say whose figure it is and I cannot either.*
+*Out at the fourth hour on a day this county does not use, from a sill with no glass in it, on a line made up in nine minutes with the hour against each of the nine. The office's printed figure is three weeks. It has been three weeks in an office's hand for two years and the office cannot say whose figure it is and I cannot either.*
 
 *The valley's count. I have been on the far side of a line since before the ninth week of this valley's cold and it is now the fourteenth week of it. By their count a week is whatever a person standing up in a cold room says a week is, and there is no authority in this valley I could ask what a week is, and I am not going to guess one a second time.*
 

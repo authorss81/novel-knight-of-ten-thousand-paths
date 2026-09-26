@@ -14,13 +14,13 @@ It is a depression. You can see it in daylight with the leaf held up and you can
 
 “Is there a house two valleys over with a press in it.”
 
-“There is a paper house about four valleys over and I have been down to it once in my life, in a warm week, with two of my wife’s cousins, and it is the only place I have ever been where a thing that people use came out of a machine that made the same thing all day.” He took his hand off the leaf. “So the man with the cart was not far out on the paper. He was far out on everything else, and everything else is what people do with a mark once it is in a copy.”
+“There is a paper house about four valleys over and I have been down to it once in my life, in a warm week, with two of my wife's cousins, and it is the only place I have ever been where a thing that people use came out of a machine that made the same thing all day.” He took his hand off the leaf. “So the man with the cart was not far out on the paper. He was far out on everything else, and everything else is what people do with a mark once it is in a copy.”
 
 **And a man of thirty-two who has read four hundred books in his life sat on a stool in a room over a byre and gave the only opinion he has given anybody in six weeks, and he gave it once, and he did not improve on it.**
 
 “I have seen that mark a thousand times,” he said. “It proves a sheet. It proves a mould, and a house, and a season when somebody's vat was the right heat, and it does not prove a person, and there is not one thing on it that anybody can be made to account for.
 
-“Your third column proves no person either. That is the difficulty and it is a different difficulty. A press-mark is a mark of a thing that was made, and you can hold it up and say what made it, and when the making stops nobody is anybody’s business. A hand is a person. That is all a hand is. It is the one mark in the world that cannot be made by a machine, and that is exactly why you cannot get a person out of one.
+“Your third column proves no person either. That is the difficulty and it is a different difficulty. A press-mark is a mark of a thing that was made, and you can hold it up and say what made it, and when the making stops nobody is anybody's business. A hand is a person. That is all a hand is. It is the one mark in the world that cannot be made by a machine, and that is exactly why you cannot get a person out of one.
 
 “Those two marks are on the same leaf four inches apart, and the one that proves a house is in a copy in a county four hundred miles off being the reason a valley is somewhere it has never been, and the one that proves nothing is the one you have been looking at for six years.
 
@@ -30,11 +30,9 @@ It is a depression. You can see it in daylight with the leaf held up and you can
 
 “It is not a figure about anything. It is a number of copies, and I have not checked it, and I am not going to.”
 
-**And the fourth tread of the outside stair went under a boot before the light had properly gone, which was earlier than either of them expected, and the man who came up it had not been in the room over the byre in six weeks and had come anyway.**
+**And the reason there is a bundle of about forty leaves tied with a piece of tarred hemp on the trestles of the room over the byre is that the man of fifty-eight has been down into the chest under the boards of the byre, which is where the winter book lives in the summer, and has brought one up, and has put it down without untying it.**
 
-Before he came, the man of fifty-eight had gone down into the chest under the boards of the byre, which is where the winter book lives in the summer, and had brought up a bundle of about forty leaves tied with a piece of tarred hemp, and had put it on the trestles without untying it.
-
-“That is what is left of the copy,” he said. “He tied it up himself in the yard before he went, and he tied it up well, and there are nine generations of this valley in it in somebody else’s hand, and the fifth generation in it is wrong, and there is a name in it that is spelled two ways on two pages and I have never known which of the two is the right one and I have never asked him because he has been dead about nine years.
+“That is what is left of the copy,” he said. “He tied it up himself in the yard before he went, and he tied it up well, and there are nine generations of this valley in it in somebody else's hand, and the fifth generation in it is wrong, and there is a name in it that is spelled two ways on two pages and I have never known which of the two is the right one and I have never asked him because he has been dead about nine years.
 
 “He wrote to me twice after. The first letter asked whether I wanted the fifth generation corrected and I sat in this room with the letter in my hand for about four days and I did not answer it, because a corrected copy is a second copy, and the second copy is better. That is the truth of it and I have not dressed it up. A copy that is right about the fifth generation is a copy, and there is no way on this earth to get a wrong fact out of a book that is right about a hundred other things. I let a man have a false fact about my valley for about nine years of his life because the other option was that he had both.
 
