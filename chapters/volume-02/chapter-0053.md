@@ -108,9 +108,9 @@ The carrier went at about the eighth hour with the sheet, and the carrier said o
 
 Aren Kest walked down to the water after that and stood at the end of Weir Street for about ten minutes in the flat cold light of a Friday in Embermonth, and the notebook came out, because there is a thing that has been standing in him for two days and it is not the form and it is not the count.
 
-*Third of Embermonth. The road was opened on the ninth of Fallowmonth and has been on a named day since, and the day is written at the head of a page in a book four hundred miles off, in a guild roll here, in a day-book over a weigh-house, and in two slates, and the whole of the arrangement is four people and a rope.*
+*Third of Embermonth. The road was opened on the first of Fallowmonth and has been on a named day since, and the day is written at the head of a page in a book four hundred miles off, in a guild roll here, in a day-book over a weigh-house, and in two slates, and the whole of the arrangement is four people and a rope.*
 
-*And I went out on the ninth at the fourth hour and the far end of it was not the far end of it.*
+*And I went out on the first of Fallowmonth at the fourth hour and the far end of it was not the far end of it.*
 
 He wrote that one line and then stopped, because he did not yet have the rest of it, and a man who writes down half of a thing and leaves the page is a man who will come back to it and add to it later and be able to tell himself the two halves were one thought.
 
