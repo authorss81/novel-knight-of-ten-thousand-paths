@@ -8,9 +8,9 @@ The keeper read the form back the way he read everything back, flat, with the ho
 
 “It is entered in your words and not in mine and the two of us know the difference and nobody in nine years will.”
 
-Ferrow put a book on the table. It was the book that had been open in the guild room with the plan in it since the twelfth rolling, and it was open at a page with nineteen lines on it in a first hand's own writing, and the first line was a month, and the month was the twelfth rolling, and the eleventh rolling is the rolling before the man with the bar came up the stair.
+Ferrow put a book on the table. It was the book that had been open in the guild room with the plan in it since the twelfth rolling of the year before, and it was open at a page with nineteen lines on it in a first hand's own writing, and the first line was a month, and the month was the twelfth rolling of the year before, and the seventh is the rolling before the man with the bar came up the stair.
 
-“Before he came,” said Ferrow. “Before the council agreed his route, and before his terms, and before the Water. It is in the twelfth rolling and it is the same plan with four stops in it, and I want the room to hear me say that I put four stops in a plan about water in a rolling in which the water was sitting where it always sits, and I want the room to hear that the reason is not that I am a careful man. The reason is that a man writing a plan in the twelfth rolling in this county has to put a stop in it, because the plan is about the Water and the Water in this county does the opposite of what a plan wants, and the only two ways of being wrong about it are to have no stop, in which case you find out at four in the morning, or to have a stop, in which case you find out at the stop.”
+“Before he came,” said Ferrow. “Before the council agreed his route, and before his terms, and before the Water. It is in the twelfth rolling of the year before and it is the same plan with four stops in it, and I want the room to hear me say that I put four stops in a plan about water in a rolling in which the water was sitting where it always sits, and I want the room to hear that the reason is not that I am a careful man. The reason is that a man writing a plan in the twelfth rolling of the year before in this county has to put a stop in it, because the plan is about the Water and the Water in this county does the opposite of what a plan wants, and the only two ways of being wrong about it are to have no stop, in which case you find out at four in the morning, or to have a stop, in which case you find out at the stop.”
 
 Then he read the nineteen lines, and Aren Kest stood at the bottom of the room and listened to a plan for nine days of water in a county he had been in for seven rollings, and it was better than his, and it was better in three places and he could name all three inside about four minutes and the fourth minute was the one that took him.
 
@@ -40,7 +40,7 @@ Then the hand-over, and it took four minutes, and it is the shortest thing in th
 
 The council’s minute, in the hand of a man who keeps a minute, reads:
 
-*Entered, in the second week of the eighth rolling: the council takes the guild's plan of the twelfth rolling, with the four stops, at the guild's terms and the guild's rate, and the work is the guild's work, and the council does not order it.*
+*Entered, in the second week of the eighth rolling: the council takes the guild's plan of the twelfth rolling of the year before, with the four stops, at the guild's terms and the guild's rate, and the work is the guild's work, and the council does not order it.*
 
 *And it is entered that the causeway and the waterworks above the market town are the guild's, and that the stranger who brought the sheet is of no council and holds no office in this county and may not be given one by this council, and that he asked to be put under the council's hand and was not, and that the reason entered by the council is the reason entered above and is not shortened.*
 
