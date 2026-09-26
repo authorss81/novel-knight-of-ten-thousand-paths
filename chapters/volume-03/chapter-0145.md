@@ -24,7 +24,7 @@ Munn said, “You are not on this council and you are not on the roll and you ho
 
 What went into the first column took about forty minutes and it is in the fair copy in Munn's own words, and she read it out twice before she let the minute-man have it, and it is this.
 
-The causeway and the waterworks above the market town, and the mile of boundary on both sides of it, and the trough, and the ditch at the head of it, and the four hundred and forty yards already opened in the fifth rolling, and the new work of the twelfth rolling, and the list of households to be helped with seed and with labour, and the seed in nine jars kept in a stone room behind a chapel.
+The causeway and the waterworks above the market town, and the mile of boundary on both sides of it, and the trough, and the ditch at the head of it, and the four hundred and forty yards already opened in the fifth rolling, and the new work of the sixth, the eighth and the tenth, and the list of households to be helped with seed and with labour, and the seed in nine jars kept in a stone room behind a chapel.
 
 “All of that, in one column,” said the bound, from the end of the bench, when she had read it the second time. “That is a mile of water and a board with twenty-nine thumbs on it and nine jars in a room.”
 
