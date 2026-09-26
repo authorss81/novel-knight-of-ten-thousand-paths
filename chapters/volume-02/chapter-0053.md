@@ -12,7 +12,7 @@ Tovan Kest had the week's sheet on his knee and a scrap of oak in his hand and h
 
 Nobody said so.
 
-"The factor's stone went on Tuesday in three carts and the last of it went at the fourth hour and there is a cart in the mud by the mill that I have been ignoring since Fallowmonth, and I am not going to ignore it in Wolfmonth either. The county town's wall is going and the man who owns that wall is an old fool and he has paid twice on time, which I will say for him, and that job is three weeks and it will be finished about a week before the water is at the low of the year, which is a sentence with two bad things in it. There is a culvert at Four Elms, four days, two of you, and it is a mucky job and the price is mucky and I have taken it anyway because a yard that waits for a good job is a yard that closes."
+"The factor's stone went on Thursday in three carts and the last of it went at the fourth hour and there is a cart in the mud by the mill that I have been ignoring since Fallowmonth, and I am not going to ignore it in Wolfmonth either. The county town's wall is going and the man who owns that wall is an old fool and he has paid twice on time, which I will say for him, and that job is three weeks and it will be finished about a week before the water is at the low of the year, which is a sentence with two bad things in it. There is a culvert at Four Elms, four days, two of you, and it is a mucky job and the price is mucky and I have taken it anyway because a yard that waits for a good job is a yard that closes."
 
 "And after the wall?" said the man at the shave horse.
 
@@ -92,7 +92,7 @@ He turned the sheet round and pushed it across the bench.
 
 Nobody in the gateway said anything, which is how a yard works.
 
-"A yard is not an office," said Tovan Kest, "and a road is not a trade. That is my whole argument and I have been making it since I was twenty-one and I have never once been asked to make it in a room with a bench in it, and this year I have said the true thing three times in public and not voted once, and I would like whoever is counting this county to understand that the reason I do not vote is not modesty. It is that I have a brother who went off to another county on Thursday at the fourth hour of a market morning and did not tell me he was going, and I have not sent a word after him because I do not know the address, and if you wanted a man in this county who could be got at with a form you would not want me, and if you wanted a number I am one, and I would rather be the second."
+"A yard is not an office," said Tovan Kest, "and a road is not a trade. That is my whole argument and I have been making it since I was twenty-one and I have never once been asked to make it in a room with a bench in it, and this year I have said the true thing three times in public and not voted once, and I would like whoever is counting this county to understand that the reason I do not vote is not modesty. It is that I have a brother who went off to another county on the first of Fallowmonth at the fourth hour of a Monday morning and did not tell me he was going, and I have not sent a word after him because I do not know the address, and if you wanted a man in this county who could be got at with a form you would not want me, and if you wanted a number I am one, and I would rather be the second."
 
 ---
 
@@ -102,7 +102,7 @@ The carrier went at about the eighth hour with the sheet, and the carrier said o
 
 "Well they have not heard it from anybody who knows," said Tovan Kest.
 
-"They have not," the carrier agreed. "They said a stranger came through on the ninth and stood on the bridge half an hour and went away again, and the boys have made up a story about it by now, and it is a very good story and it is about a man who is sent to places."
+"They have not," the carrier agreed. "They said a stranger came through on the first and stood on the bridge half an hour and went away again, and the boys have made up a story about it by now, and it is a very good story and it is about a man who is sent to places."
 
 ---
 
@@ -118,7 +118,7 @@ So he wrote the second half as a question instead, which is a thing he taught hi
 
 *I have been four hundred miles off a road and a woman in another county has refused it, and I am not going to write down here what I think about that until I have been in a room with somebody in it, and the somebody is going to be the county, and the county is going to be the far side of a line I have agreed to and not a person I have been sent, and I have four days to make the day and one of them is gone.*
 
-*What I will write down, because it is arithmetic and not a mood: a form came to this county in Longlight undated and one came on Tuesday dated, and the difference between the two is the whole of what has happened in five months, and the reason it has taken five months is that an undated form cannot be tried. So a thing that cannot be tried and cannot be refused is not a document. It is a road with nobody at the far end. And a road with nobody at the far end of it is the thing I have been for eleven years, and the only reason this county has survived it is that four people stood at this end of it and said no when they were asked, and the number is eleven now, and eleven is not a constitution and I have said that out loud in a room with a clerk in it and I will say it again.*
+*What I will write down, because it is arithmetic and not a mood: a form came to this county in Longlight undated and one came on the third dated, and the difference between the two is the whole of what has happened in five months, and the reason it has taken five months is that an undated form cannot be tried. So a thing that cannot be tried and cannot be refused is not a document. It is a road with nobody at the far end. And a road with nobody at the far end of it is the thing I have been for eleven years, and the only reason this county has survived it is that four people stood at this end of it and said no when they were asked, and the number is eleven now, and eleven is not a constitution and I have said that out loud in a room with a clerk in it and I will say it again.*
 
 He shut the book and put it away, and then he took it out again, because there was one more line and it was the line he would still be reading four months later in a room over a kiln, and he wanted it where he could find it.
 

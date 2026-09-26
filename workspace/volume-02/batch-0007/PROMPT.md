@@ -1,6 +1,6 @@
 # Batch 0007 — Volume 02, Chapters 61–70, "Twenty-Three Days"
 
-**This is the only prompt for this batch.** Write Chapters 61–70 as complete finished prose into `chapters/volume-02/chapter-0061.md` through `chapter-0070.md`, four digits, continuing the manuscript's numbering. Do not create a second Chapters 61–70 prompt anywhere in `workspace/`, and do not recreate or edit `workspace/volume-02/volume-01-close/PROMPT.md` or `workspace/volume-02/batch-0006/PROMPT.md`, which are the record of the phases that already ran.
+**This is the only prompt for this batch.** Write Chapters 61–70 as complete finished prose into `chapters/volume-02/chapter-0061.md` through `chapter-0070.md`, four digits, continuing the manuscript's numbering. Do not create a second Chapters 61–70 prompt anywhere in `workspace/`, and do not recreate or edit `workspace/volume-02/volume-01-close/PROMPT.md`, which is the record of the phase that closed Volume 01. **There is no `workspace/volume-02/batch-0006/PROMPT.md` and there never was one.** Batch 0006 ran off the generic `workspace/continuation/next/PROMPT.md`, which carries no cards, so the only surviving record of the plan for Chapters 51–60 is the Batch 0006 entry in `state/batch-summaries.md` — its six card deviations and the date correction — and that entry is what to read as the prompt for the previous ten chapters.
 
 Guard: this phase writes fiction and manuscript state only. Never edit `scripts/`, `.github/workflows/`, `.opencode/agent/`, `AGENTS.md`, `PHASE_SYSTEM.md`, `REPO_PLAN.md`, `OUTLINE_GUIDE.md`, `opencode.json`, or `state/phase-ledger.json`. `state/phase-ledger.json` is controller-owned, is stale by design, and is not what dispatch reads — leave it alone. The earlier prompt directories keep their prompts and gain a `.done` marker from the controller, not from you.
 
@@ -14,7 +14,7 @@ Guard: this phase writes fiction and manuscript state only. Never edit `scripts/
 4. `state/continuity.md` — **items 126–152 (the close), and then 153–172 (Batch 0006) in full, and then the Relationship state at the end of Chapter 60.** Items **149, 153, 165, 166, 167, 168, 169, 172** are the ones this batch is written against.
 5. `state/open-threads.md` — threads 21–40.
 6. **All ten chapters of Batch 0006** (`chapters/volume-02/chapter-0051.md` through `chapter-0060.md`) for the voice. **Chapter 60 is the most important one and Chapters 57, 58 and 59 are the other three.** Read Chapter 60 twice: the far end of this block's world was opened in Chapter 59 and the person who opened it is the person this block's middle belongs to.
-7. `state/batch-summaries.md` — the Batch 0006 entry, **including its six card deviations**, and the Volume 01 close entry.
+7. `state/batch-summaries.md` — the Batch 0006 entry, **including its six card deviations and the date correction that ends it**, and the Volume 01 close entry.
 8. The Batch 0006 per-chapter summaries in `state/chapter-summaries.md`, especially the block-level note at the head of that section.
 
 ---

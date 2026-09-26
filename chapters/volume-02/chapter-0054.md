@@ -78,7 +78,7 @@ Bram Ottery stood up when his trade was read out, at the back, in a coat that ha
 
 The reeve entered the reason and read it back and entered the hour, and then she said the thing that made the morning.
 
-"And you are right," she said, "and I am not going to do it, and I want it minuted that I am not doing it because a bench clerk asked me in a corridor on Tuesday whether this was going on the roll, and I told him no, and he said *then it isn't anything, is it*, and I said no it isn't, and he went away satisfied, and I have thought about it for two days and he was not being cruel. He was asking the ordinary question. A thing that is not on a roll is not a thing a court can be given."
+"And you are right," she said, "and I am not going to do it, and I want it minuted that I am not doing it because a bench clerk asked me in a corridor on Thursday whether this was going on the roll, and I told him no, and he said *then it isn't anything, is it*, and I said no it isn't, and he went away satisfied, and I have thought about it for two days and he was not being cruel. He was asking the ordinary question. A thing that is not on a roll is not a thing a court can be given."
 
 "Then where does it go?" said the man at the shave horse, who had come along and had no business there and had come anyway.
 
@@ -90,7 +90,7 @@ The reeve entered the reason and read it back and entered the hour, and then she
 
 "Then you will not take it," said the reeve.
 
-"I will take it and I will say the rest of it." Mara Vey put her hand flat on the sheet and did not move it. "A count is a list with the names taken off, and a list with the names taken off cannot be refused, because there is nobody in it to refuse with. That is the whole of the trick and it is not a trick anybody had to invent, it is just arithmetic, and the office that sent that form to the yard on Tuesday found it out the way a person finds out that water will run downhill. And a thing that cannot be refused and cannot be tried is not a document, it is a *road*. And a road is the thing that this county has been surviving on for eleven months, and it is the thing this case is about, and I have written that sentence down twice in a notebook in a coat and I have been wrong about how to say it for eleven months."
+"I will take it and I will say the rest of it." Mara Vey put her hand flat on the sheet and did not move it. "A count is a list with the names taken off, and a list with the names taken off cannot be refused, because there is nobody in it to refuse with. That is the whole of the trick and it is not a trick anybody had to invent, it is just arithmetic, and the office that sent that form to the yard on Friday found it out the way a person finds out that water will run downhill. And a thing that cannot be refused and cannot be tried is not a document, it is a *road*. And a road is the thing that this county has been surviving on for eleven months, and it is the thing this case is about, and I have written that sentence down twice in a notebook in a coat and I have been wrong about how to say it for eleven months."
 
 She took her hand off the sheet.
 
