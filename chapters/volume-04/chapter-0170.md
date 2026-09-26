@@ -2,7 +2,7 @@
 
 The leaf came out from under the book at the fourth hour and it was on the trestles by the time the man off the road came up the outside stair, and the man of fifty-eight was standing at the window with his back to the door.
 
-He had not slept. He said so in the first four words and then said it again in the fifth, and then did not come back to it for half an hour, which is a considerable piece of self-knowledge for a man of fifty-eight, and he did not appear to think of it as any kind of achievement.
+He had not slept. He said so in the first four words and then said it again in the fifth, and then did not come back to it for half an hour, and he did not appear to know that he had said it twice or to think anything of having said it.
 
 “Read it out,” he said. “That is all of it. I have been standing at this window since the light came off the ice working out how to say the rest of it, and I have got the rest of it now, and I would rather say it at you than say it at a wall.”
 
@@ -38,7 +38,7 @@ It took him a moment to go on and he did not take the moment to be dignified ove
 
 They had the second half inside nine seconds and he did not look like a man enjoying it.
 
-“Then you will have it in your own words and it will be short,” he said. “A form is a thing with columns in it that somebody else made. My book is a thing with columns in it that I made, and every line in my book is a day and a mark and a hand, and I know what every mark in it is because I put it there or my father did. A form is a thing that arrives. And when a thing arrives in this valley you put something in it, and I have watched four people in my life answer a form and I have not one of them still living in this valley, and I am not going to be a fifth, and that is the reason, and I would like it noticed that nobody asked me.”
+“Then you will have it in your own words and it will be short,” he said. “A form is a thing with columns in it that somebody else made. My book is a thing with columns in it that I made, and every line in my book is a day and a mark and a hand, and I know what every mark in it is because I put it there or my father did. A form is a thing that arrives. And when a thing arrives in this valley you put something in it, and I have watched four people in my life answer a form and not one of them is still living in this valley, and I am not going to be a fifth, and that is the reason, and I would like it noticed that nobody asked me.”
 
 “You did not have to be asked.”
 
@@ -132,7 +132,7 @@ She squared the two sheets, and put the copy on the shelf with the number agains
 
 **And at the third hour of a market day, in a room the size of a barn with twenty-nine benches bolted to the floor in four rows, ten people came, and a man of thirty-two read four words off a leaf.**
 
-The room was cold at the door and cold at the back and four degrees less cold at the front, where a stove had been lit at the second hour by somebody who had not come in to hear anything. The aisle between the four rows is four feet wide and it goes from the door to the stove, and forty people is what the room takes, and ten is what was in it.
+The room was cold at the door and cold at the back and less cold at the front, where a stove had been lit at the second hour by somebody who had not come in to hear anything, and a man in off the dark could tell which end he was in before he could see a bench. The aisle between the four rows is four feet wide and it goes from the door to the stove, and forty people is what the room takes, and ten is what was in it.
 
 Iven Sarr stood in the aisle at the front. He did not put the leaf on a bench and he did not put it on the stove and he held it in his left hand at about the height of his belt, which is where you hold a thing when you have not held it in your hand for a day and a night.
 
@@ -216,4 +216,4 @@ He went to the door of the back room and stood on the top step and did not go do
 
 He shut it with his palm flat on the wood, which is a thing everybody in that valley does to a door.
 
-The woman of the Low Holm had left her own door open behind them and there was a light in the byre and the trough was standing where the trough has stood for sixty years, and the wall was outside in the dark, four hundred feet of the best wall anybody in that valley had ever seen, holding up a byre instead of being the first four hundred yards of a road. Neither of the two men said anything about it on the way up the outside stair. The stair has nine treads and one of them is soft, and the man of fifty-eight went up first, and the man off the road went up second, and the fourth one said so under both of them.
+The woman of the Low Holm had left her own door open behind them and there was a light in the byre and the trough was standing where the trough has stood for sixty years, and the wall was outside in the dark, four hundred feet of the best wall anybody in that valley had ever seen, holding up a byre instead of being the first four hundred yards of a road. Neither of the two men said anything about it on the way up the outside stair. The stair has nine treads and one of them is soft, and the man of fifty-eight went up first, and the man off the road went up second, and the fourth tread said so under both of them.
