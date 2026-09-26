@@ -34,7 +34,7 @@ Aren said, “I do not know how to make it true. I can do the other thing. I can
 
 The drawknife man turned round in the yard then, and came over, and asked the question he had come to ask, and he asked it badly, which is a thing a man does at a drawknife and not in a chamber.
 
-“Your name,” he said. “I have been in this county six rollings and I have worked in your county on a keep a week and I have never once said your name out loud where a stranger could hear it, and there is not one book in this county with your name in it, and I have had that on purpose for seven rollings because I did not want to hand a name to a man in a country with a book. There is going to be a room in nine months in which the two of us are in it, and I am going to have to say your name in that room, and I have never once said it, and I have just this moment found that I cannot say it, and I would like to say it once here in a yard where it does not go anywhere.”
+“Your name,” he said. “I have been in this county seven rollings and I have worked in your county on a keep a week and I have never once said your name out loud where a stranger could hear it, and there is not one book in this county with your name in it, and I have had that on purpose since the first of them because I did not want to hand a name to a man in a country with a book. There is going to be a room in nine months in which the two of us are in it, and I am going to have to say your name in that room, and I have never once said it, and I have just this moment found that I cannot say it, and I would like to say it once here in a yard where it does not go anywhere.”
 
 The woman of sixty-six looked at him and then at Aren and then at the yard, and said, “Sian Pugh.”
 

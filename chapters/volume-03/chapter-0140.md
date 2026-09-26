@@ -124,7 +124,7 @@ Then the last hour of the ninth rolling, in a lane, with the four men of a fen y
 
 The arithmetic had stopped.
 
-That is the ninth rolling of the Hearth Marches and it does not look like a thing. A man had done arithmetic on a column of eleven counties for eight rollings on two sides of a line, in four rooms, wanting a cause and a third and a half, and it stopped because six of the eight were promises about a share of water and two were promises about a share of seed, and because the county he was sitting in was the sixth of the six, and because an oath sworn in public by living men is a name, and a name is the only thing an office can act on, and the records gather where the oaths are because of that and not because of anything the oath does, and the three with a dash are the three where there was nobody left to ask.
+That is the ninth rolling of the Hearth Marches and it does not look like a thing. A man had done arithmetic on a column of eleven counties for eight rollings on two sides of a line, in four rooms, wanting a cause and a third and a half, and it stopped because six of the eight were promises about a share of water and two were promises about a share of seed, and because the county he was sitting in was the sixth of the eight, and because an oath sworn in public by living men is a name, and a name is the only thing an office can act on, and the records gather where the oaths are because of that and not because of anything the oath does, and the three with a dash are the three where there was nobody left to ask.
 
 He had come four hundred miles with a road to open and a book to make askable, and he would go back with three things he had not had when he came, and none of them was a road.
 
