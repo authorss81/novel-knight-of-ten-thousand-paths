@@ -1,6 +1,6 @@
 # Chapter 0177
 
-There is one thing a man who builds things knows that a man who reads things does not, and it is not a mystery and it is not a secret and it costs nine days to learn, and Wystan Roole put it on a bank at the Low Holm on the ninth day of a cold in its second winter in a yard and a girl of about nine was watching from the top of it and counting, and she did not ask anybody what the number was for, because then she would have to be told.
+There is one thing a man who builds things knows that a man who reads things does not, and it is not a mystery and it is not a secret and it costs nine days to learn, and Wystan Roole put it on a bank at the Low Holm on the eighteenth day of a cold in its second winter, in a yard with a barrow standing in it the wrong way up and nobody in the yard to say so.
 
 “A thing is not known to hold until it is put under a load,” he said. “That is the trade entire. I do not care what a thing is made of. I do not care how good the man who made it was or how old the stone is. I care about one thing and it is whether anybody has ever stood on it and watched it and come back afterwards.”
 
@@ -10,13 +10,13 @@ There is one thing a man who builds things knows that a man who reads things doe
 
 He put the rope down on the abutment and wiped his hands on it, which does not do anything to a rope.
 
-“In the first winter I noticed it. It was not a thing about the ice and it was not a thing about the water. I go up the bank twice a day and I look at nine things and I have looked at them since I was nine years old, and in the first winter of this cold the ninth generation's grandmothers started saying a thing. There is no word in this valley for what they were saying either. The word they use is *the water has gone quiet*, and they say it about the Burn, and they say it in kitchens and at gates and over a stand in a cutting, and a man who has been here nine weeks hears it about nine times a season.
+“In the first winter I noticed it. It was not a thing about the ice and it was not a thing about the water. I go up the bank twice a day and I look at nine things and I have looked at them since I was nine years old, and in the first cold the ninth generation's grandmothers started saying a thing. There is no word in this valley for what they were saying either. The word they use is *the water has gone quiet*, and they say it about the Burn, and they say it in kitchens and at gates and over a stand in a cutting, and a man who has been here nine weeks hears it about nine times a season.
 
 “And it is not a figure. There is no figure in it. You cannot go and put a stick in the Burn and find out what *quiet* is, and I have tried, and I did it in the ninth week of the first winter and got nothing, and I have got a man with a cart coming over the pass in the warm week and I am going to get him to look at it and I do not expect anything.”
 
 “What is quiet about it.”
 
-“The sound of it going over the stones.” He stopped there for a second and started again. “That is what *quiet* is and I have not said that to anybody and I said it to you in about four seconds. The Burn has gone over its stones for nine generations. A man who is eighty-one has heard it every day of his life and a man of nine can hear it from the top of this bank. And in the first winter of this cold it stopped, and it did not stop everywhere. It stopped below the ford and it did not stop above the ford, and it is still stopped below the ford and it is not stopped above the ford, and there are four hundred yards of this valley where a river does not make the noise it has made every day for longer than anybody has been keeping a book, and no person in this valley is frightened of it and nine people have said the word out loud and not one of them has asked another one what it means.”
+“The sound of it going over the stones.” He stopped there for a second and started again. “That is what *quiet* is and I have not said that to anybody and I said it to you in one breath. The Burn has gone over its stones for nine generations. A man who is eighty-one has heard it every day of his life and a man of nine can hear it from the top of this bank. And in the first cold it stopped, and it did not stop everywhere. It stopped below the ford and it did not stop above the ford, and it is still stopped below the ford and it is not stopped above the ford, and there are four hundred yards of this valley where a river does not make the noise it has made every day for longer than anybody has been keeping a book, and no person in this valley is frightened of it and nine people have said the word out loud and not one of them has asked another one what it means.”
 
 “Nobody asks anybody anything,” said Aren Kest. “You have been here nine weeks and you know why better than I do.”
 
@@ -36,7 +36,7 @@ He sat down on the offcut of a byre roof with a hole in it, two steadings up, wh
 
 **And the man of thirty-two said the thing he had come four hundred miles for, and it was not said on a bank, and the reason it was not said on a bank is that a bank is where a man of this valley says things he has already settled, and this was not settled by anybody.**
 
-He said it in the room over the cross at about the seventh hour on the sixteenth day, with the stove lit at the front and fourteen people in it, and the twenty-nine benches in four rows with a hundred and forty cut into the end of the one at the back of the right-hand row, and the aisle four feet wide, and nobody standing in the aisle at any point in any of it.
+He said it in the room over the cross at about the seventh hour on the nineteenth day, with the stove lit at the front and fourteen people in it, and the twenty-nine benches in four rows with a hundred and forty cut into the end of the one at the back of the right-hand row, and the aisle four feet wide, and nobody standing in the aisle at any point in any of it.
 
 “You all know what the benches are for,” he said. “You have all been in this room. I am not going to explain them to a room I have been in once, and I am not going to say the word, and I am not going to ask anybody in it anything, and if anybody asks me a question I will answer it after and not during, and that is the arrangement I came into this valley on and it is going to be the arrangement until somebody makes a different one.”
 
@@ -50,13 +50,13 @@ Nobody said anything. The stove ticked.
 
 “The thing under this valley is straining. That is not a figure and it is not a word I have invented. A man of thirty-four who has looked at nine things on this bank every day since he was nine years old has told me that he can feel it in a road, and he cannot name it, and he has had it since the first winter and has told nobody, and he is telling me because I am a stranger and there is nobody else in this valley he can say it to.
 
-“It is going to go on straining. And the man of thirty-four has told me one more thing, and I am going to give it to you in his words because it is his and not mine. A thing is not known to hold until it is put under a load. And there is no way in the world to put a load on that. Not this winter. Not by any of us. There is no instrument for it and there is not a person alive who knows where to stand with a bar.
+“It is going to go on straining. And the man of thirty-four has told me one more thing, and I am going to give it to you in his words because it is his and not mine. Nothing in this valley has ever been asked whether it would hold. And there is no way in the world to put a load on that. Not this winter. Not by any of us. There is no instrument for it and there is not a person alive who knows where to stand with a bar.
 
 “And in about nine generations the next one after the ninth has to stand in the aisle of this room, in the cold, and be asked to keep it. And the ninth has not been asked and the tenth will not be asked and all of it is carried by about two hundred people who were entered in a book on the day they were born by nobody and who have never been asked a question about it in their lives, and eleven of them went over a pass four days into this cold and four of them are coming back.”
 
-“That is a very great deal to say in a cold room in the fourteenth week of a cold,” said Iven Sarr, from the third row, “and you have said it standing at the front with a stick and I would like you to know that I have been in this room sixty times and that is the first time a person has stood at the front of it and told me something I did not know.”
+“That is a very great deal to say in a cold room on the nineteenth day of a cold,” said Iven Sarr, from the third row, “and you have said it standing at the front with a stick and I would like you to know that I have been in this room sixty times and that is the first time a person has stood at the front of it and told me something I did not know.”
 
-“I have not told you anything you did not know. You have known all of it since the ninth week of a cold and you have had four books in this room and a form under your own byre and you have not said one word about it to anybody, and I am not here to tell a man of fifty-eight what his own valley is.”
+“I have not told you anything you did not know. You have known all of it since the ninth week of the first cold and you have had four books in this room and a form under your own byre and you have not said one word about it to anybody, and I am not here to tell a man of fifty-eight what his own valley is.”
 
 “No,” said Iven Sarr. “I am aware that I am not.”
 
@@ -64,7 +64,7 @@ Nobody said anything. The stove ticked.
 
 ---
 
-**And the man of thirty-four stood up in the middle of the four rows of benches at about the eighth hour and asked the only question in that room that was about the job, and he asked it in about four seconds and then sat down again, which is a thing a man of thirty-four does when he has said a thing he cannot take back.**
+**And the man of thirty-four stood up in the middle of the four rows of benches at about the eighth hour and asked the only question in that room that was about the job, and he asked it in one breath and then sat down again, which is a thing a man of thirty-four does when he has said a thing he cannot take back.**
 
 “How.”
 
@@ -72,7 +72,7 @@ Nobody said anything. The stove ticked.
 
 “Walk,” said Aren Kest.
 
-“Walk. Eleven steadings and the wide place and four hundred households and two hundred of ours, on foot, in the fourteenth week of a cold, in eleven days or about nine.” He did not get up again. “That is about nine hundred doors and it is about a hundred and forty miles of going up and down this valley with nothing to carry and nothing to sell, and I have asked twice in nine years for a road and I have been refused twice, and I would like it noticed that the first thing anybody in this valley has ever put me to is a job that is a road, and that it is not a road, and that nobody in the four hundred has to be in a room to be asked, and that I am going to have to stand on about nine hundred steps and say the same nine sentences nine hundred times and I have never in my life said the same thing nine times.”
+“Walk. Eleven steadings and the wide place and four hundred households and two hundred of ours, on foot, in a cold, in eleven days or about nine.” He did not get up again. “That is about nine hundred doors and it is about a hundred and forty miles of going up and down this valley with nothing to carry and nothing to sell, and I have asked twice in nine years for a road and I have been refused twice, and I would like it noticed that the first thing anybody in this valley has ever put me to is a job that is a road, and that it is not a road, and that nobody in the four hundred has to be in a room to be asked, and that I am going to have to stand on about nine hundred steps and say the same nine sentences nine hundred times and I have never in my life said the same thing nine times.”
 
 “You have said the best wall in this valley once and said it was the last time,” said Aren Kest.
 

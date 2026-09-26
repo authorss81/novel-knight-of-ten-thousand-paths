@@ -22,7 +22,7 @@ Nobody in this valley has ever asked the ninth generation anything and there are
 
 ---
 
-**And then the man of fifty-eight took four lines off the head of the first spread and read them out in the voice of a man reading a rule, and he has read them about nine hundred times and had told a stranger on the ninth day of a cold that he would not read them, and he read them because there is a form on the boards of the floor of his own back room.**
+**And then the man of fifty-eight took four lines off the head of the first spread and read them out in the voice of a man reading a rule, and he has read them about nine hundred times and had told a stranger three days before that he would not read them, and he read them because there is a form on the boards of the floor of his own back room.**
 
 “I have not read you these because they are a rule and not the oath and I said so and you wrote it down in a book and there is no day in this valley to put against it. I am reading them now and I am telling you the reason and the reason is on the floor of my own house and there is nobody in that room but me and a stone and a lamp and I have been not going in there for six years, and you are the reason I went in there, and you did not ask me and I want that on the thing I am about to say.”
 
@@ -64,7 +64,7 @@ He read it twice and then put the book down and squared it, and his hand went fl
 
 “You are asking whether a man can answer for a boy who has not been appointed anybody by anybody, and I have been in this valley thirteen weeks and I can tell you the answer is that he cannot, and I can tell you that a person who cannot answer for himself is not in a worse position in this valley than a person who can, and that is not a joke and it is not a comfort, because the reason is that nothing in this valley can be produced against him either. There is nobody to produce him to. That is not justice. It is the same hole in a different direction.”
 
-“I have been the second of those since the day I was born,” said Osgar Vell, “and I had not got a word for it and you have just given me one, and I am twenty-two and I am not going to say thank you for it, and I am also not going to tell you that it is nothing, because you are the first person who has been in this valley in nine years and you have said it in about nine seconds and it has taken me thirteen weeks and a printed sheet off a floor.”
+“I have been the second of those since the day I was born,” said Osgar Vell, “and I had not got a word for it and you have just given me one, and I am twenty-two and I am not going to say thank you for it, and I am also not going to tell you that it is nothing, because you are the first person who has been in this valley in nine years and you have said it once, and it has taken me thirteen weeks and a printed sheet off a floor.”
 
 ---
 
@@ -80,7 +80,7 @@ He read it twice and then put the book down and squared it, and his hand went fl
 
 “No,” said Aren Kest. “A carrier is not that, and I have been in this valley thirteen weeks and I have watched about nine people use the word about me and not one of them has appointed me to do anything and not one of them has asked my leave, and there is not one sheet of paper in four hundred miles on which to enter it, and I have told you that in this room before and I am not going to say it again.”
 
-“You have said it in a market,” said Iven Sarr. “You said it in a market in about nine seconds and then you said a thing about a leaf in a book in a county that has a stone in a field in it, and I have been on the wrong side of the second half of that for nineteen years and I am not going to be told about it again by either of you.”
+“You have said it in a market,” said Iven Sarr. “You said it in a market in one breath and then you said a thing about a leaf in a book in a county that has a stone in a field in it, and I have been on the wrong side of the second half of that for nineteen years and I am not going to be told about it again by either of you.”
 
 “There is one thing more and then I am going to do the only thing I have wanted to do for six years, which is nothing,” said Osgar Vell.
 
@@ -92,7 +92,7 @@ He read it twice and then put the book down and squared it, and his hand went fl
 
 “Eight,” said Iven Sarr.
 
-“Eight by the count I have made since a man off the road asked me a question in a doorway in the ninth week of a cold and I have thought about nothing else since, which you will believe or not.” He put his hands in his sleeves. “And the eighth one is on that sheet. And not one person alive in this valley uses the eighth one, and it has been in this valley longer than any of the seven, and the reason nobody uses it is the reason my great-grandfather wrote four lines at the head of that book, and I have worked that out in about a minute and a half and I would like somebody to tell me I have got it right.”
+“Eight by the count I have made since a man off the road asked me a question in a doorway in the ninth week of the first cold and I have thought about nothing else since, which you will believe or not.” He put his hands in his sleeves. “And the eighth one is on that sheet. And not one person alive in this valley uses the eighth one, and it has been in this valley longer than any of the seven, and the reason nobody uses it is the reason my great-grandfather wrote four lines at the head of that book, and I have worked that out in about a minute and a half and I would like somebody to tell me I have got it right.”
 
 “You have got it right about as far as anybody in this room can go and not one step further,” said Aren Kest. “And I am not going to tell you the rest of it, and the rest of it is the only thing I came four hundred miles for and it is not a thing you can be told in a room with no page in it.”
 

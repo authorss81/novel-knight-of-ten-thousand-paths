@@ -1,6 +1,6 @@
 # Chapter 0171
 
-The fourth tread said so under both of them going up and it said so under the man of fifty-eight going down four hours later, which is a thing about a stair nobody ever thinks about, and the door at the bottom is not a door anybody opens and it is not locked either, and there is nothing in this valley worth locking, and a man who locks a book is telling you what is in it.
+The fourth tread said so under both of them going up and it said so under the man of fifty-eight going down an hour later, which is a thing about a stair nobody ever thinks about, and the door at the bottom is not a door anybody opens and it is not locked either, and there is nothing in this valley worth locking, and a man who locks a book is telling you what is in it.
 
 He took the lamp because the room has one window about the size of his hand and it faces the slope and there has been no sun on that side since before his father was born, and the fourth step is the bottom one and the sill is stone and the walls are stone and the stones in them are not squared and there is more of a joint in a course than there is of a stone in places.
 
@@ -50,7 +50,7 @@ He stopped there and put the lamp on the sill against the stone, which took a ha
 
 “Everybody's letters are the same size on the same line.”
 
-“Not on every line. You have written nineteen years of days against two hundred lines in that room over the byre and your ninth line is smaller than your fourth and your fiftieth is worse than either, because you are a man and it is four hours past the fourth hour on the twentieth day of a cold.” He tapped the sheet with a fingernail. “This one is the same on the first line and the last and it does not hurry anywhere, and the down strokes are the same depth the whole length of it, and I could not tell you to save my life which of the two men is better with a pen. That is not a hand that a person had. That is a hand that an office had, and there is a difference and I have never had cause to know it until this minute.”
+“Not on every line. You have written nineteen years of days against two hundred lines in that room over the byre and your ninth line is smaller than your fourth and your fiftieth is worse than either, because you are a man and it is the seventh hour on the eleventh day of a cold.” He tapped the sheet with a fingernail. “This one is the same on the first line and the last and it does not hurry anywhere, and the down strokes are the same depth the whole length of it, and I could not tell you to save my life which of the two men is better with a pen. That is not a hand that a person had. That is a hand that an office had, and there is a difference and I have never had cause to know it until this minute.”
 
 “Read me what the first one says.”
 
@@ -66,7 +66,7 @@ He read it out, and he read it as a man reads a figure off a board.
 
 “Read them.”
 
-**And there is one more thing about the third column that a man who counts things for four counties cannot leave where it is, and it is on the page because he said it in a room four feet by six with a lamp on a sill, and it took him about nine seconds and he has not thought about it since.**
+**And there is one more thing about the third column that a man who counts things for four counties cannot leave where it is, and it is on the page because he said it in a room four feet by six with a lamp on a sill, and it took him no longer than it takes to say and he has not thought about it since.**
 
 “Four in this year,” he said. “And there is no year in this valley. There has not been a year in this valley since before the first of the nine, and there is no authority anywhere in nine miles that could tell you how long one is, and I have asked four people since the ninth week and I have had four answers and not one of them is the same. So a form two hundred years old has put a figure against *this year* in a place where a year is not a thing, which means the office that printed it sent it out on a count and took the answers back to the same desk, and the desk has a rule drawn across the head of a space for the day somebody stops asking.
 
