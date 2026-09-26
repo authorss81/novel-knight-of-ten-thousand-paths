@@ -4,9 +4,9 @@ The last day of the thirteenth rolling is the last day of the year, and the room
 
 The form is the county's own. It has been in Ferrow's book since a landlord asked this council to put a ditch on his account, and it is nineteen years old, and it is one page, and it is the only piece of paper in this county that anybody has ever used to refuse a thing.
 
-It is ruled in six columns and the six of them are: *what is given. To whom, in the county's words. By whose hand. The day. The hour. A witness at this end. A witness at that end.*
+It is ruled in seven columns and the seven of them are: *what is given. To whom, in the county's words. By whose hand. The day. The hour. A witness at this end. A witness at that end.*
 
-That is six and there are six, and there is no column for an office, because a form that has a column for an office is a form that has been supplied with an authority, and there is no column for a vote, and there never has been one, and nobody in nineteen years has asked for it, and the reason it is not there is the reason this instrument works at all, which the minute-man said out loud before anybody had put anything in it.
+That is seven and there are seven, and there is no column for an office, because a form that has a column for an office is a form that has been supplied with an authority, and there is no column for a vote, and there never has been one, and nobody in nineteen years has asked for it, and the reason it is not there is the reason this instrument works at all, which the minute-man said out loud before anybody had put anything in it.
 
 “A vote is a thing a man carries into a room he is standing in,” he said. “There are about nine people in this room and nine of them carry one thing they could put in a column and this form has not got a space for it and does not need one, and in about nine years a man in another county with a printed space is going to fill one in, and this county is going to be a curiosity to him, and I have made my peace with that.”
 
@@ -94,6 +94,6 @@ And the last thing on the sheet is not a column. It is a line under the rule, in
 
 “The road is not to be asked for back by anybody, and least of all by him.”
 
-The room was quiet, and the Water was at the trough and going down, and the last day of the thirteenth rolling was the last day of the year, and the first sowing of the next one was within a week of it, and a mile of boundary had been re-cut in nine days by the people on both sides of it, and the salt under four villages had not moved, and a man in this county with a bar he was not entitled to had given away the only thing he had come four hundred miles to have and had done it in a form with six columns and none of them for him.
+The room was quiet, and the Water was at the trough and going down, and the last day of the thirteenth rolling was the last day of the year, and the first sowing of the next one was within a week of it, and a mile of boundary had been re-cut in nine days by the people on both sides of it, and the salt under four villages had not moved, and a man in this county with a bar he was not entitled to had given away the only thing he had come four hundred miles to have and had done it in a form with seven columns and none of them for him.
 
 The minute carries the hour. It carries no name.
