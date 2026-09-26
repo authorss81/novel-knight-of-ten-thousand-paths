@@ -38,7 +38,7 @@ The reduction: the price of a tile to a household goes down a farthing, and it g
 
 The vote: whether to send a man of this county to a city four hundred miles off to fetch eleven sheets out of a press in a room with a door on a lane, so that the third hand of the roll in three hands can be a shelf instead of a letter.
 
-**Lost.** Four for, three against, and the clerk of the roll did not vote and said so, and the reason she did not vote is in the minute and is the volume's whole subject in a keeper's mouth: she is one of the three hands and a hand that votes on whether it is a hand is not a hand.
+**Lost.** Four for, three against, and the clerk of the roll did not vote and said so, and the reason she did not vote is in the minute and is the whole of it in a keeper's mouth: she is one of the three hands and a hand that votes on whether it is a hand is not a hand.
 
 And the reasons given against were three and all three were trade.
 
@@ -109,7 +109,7 @@ Not the work. The motion. A hand setting a thing true against a thing out of tru
 
 **None of them has said one word about it to any of the others and none of them is going to.**
 
-He did not tell the hand of the Ninebridge, because a sentence about a clamp is a sentence that goes into a book, and there is a woman in a book in a fen who has entered three times this year that the not writing is the part that is a decision. And she is four hundred miles off in a county that is on every map in this kingdom, and he is four hundred miles off in a county that is on none of them, and the reason neither of them is going to say anything about it is not modesty and it is not the volume's argument. It is that a clamp, a garboard and a thumb in a dish are the same movement, and a movement is not a fact, and a fact goes in a book and a movement does not, and if you put a movement in a book then a man in nine years can ask you what it was for and you will have to answer, and the answer is that it is the same thing done three times by three people who never met, and that is not an answer anybody in this county can use.
+He did not tell the hand of the Ninebridge, because a sentence about a clamp is a sentence that goes into a book, and there is a woman in a book in a fen who has entered three times this year that the not writing is the part that is a decision. And she is four hundred miles off in a county that is on every map in this kingdom, and he is four hundred miles off in a county that is on none of them, and the reason neither of them is going to say anything about it is not modesty and it is not an argument about a record. It is that a clamp, a garboard and a thumb in a dish are the same movement, and a movement is not a fact, and a fact goes in a book and a movement does not, and if you put a movement in a book then a man in nine years can ask you what it was for and you will have to answer, and the answer is that it is the same thing done three times by three people who never met, and that is not an answer anybody in this county can use.
 
 ---
 

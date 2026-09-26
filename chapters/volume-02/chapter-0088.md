@@ -46,7 +46,7 @@ And a man who is an anchor cannot be a witness, because a witness that is also t
 
 ---
 
-The bench then did the thing that is the whole of this volume and it did it without a stranger, and it took nine days, and it was designed by a county that had been cut off from the world in the fifth year of a calendar nobody in it uses.
+The bench then did the thing that the whole of this is standing on and it did it without a stranger, and it took nine days, and it was designed by a county that had been cut off from the world in the fifth year of a calendar nobody in it uses.
 
 The re-reading was broken up.
 
@@ -78,7 +78,7 @@ And on the ninth of the ninth month the road did not open.
 
 Nobody in that county said the word *failed* and nobody was going to, and the reason of that is a sentence that came into the county on the first morning of the first month a stranger was in it, in a woman's mouth, on a bridge, in a market, in about four minutes, and the hand of the Ninebridge has had it since and has not improved on it and has said so to a room of about nine people in the ninth month.
 
-The witness at the Ash end of the line was a person the county chose. The county chooses him, under the fifth of its own terms, and it chose him in the first month of the year, and he was on the roll, and he was not the hand, and the line opened on the fourth of Hearthmonth because he was there.
+The witness at the Ash end of the line was a person the county chose. The county chooses him, under the fifth of its own terms, and it chose him in the first month of the year, and he was on the roll, and he was not the hand, and the line opened on the fourth day of the first month of the year because he was there.
 
 He was struck in the eighth month. Not put back, not restored — **struck, in the eighth month, on a list of about two hundred that had been made in the fifth month and had not been through a room yet, and the county's own reading of its own rule took nine days and his place in the order was on the eighth day of them, and the road's day was the ninth.** He had stood at that end of the line on the fourth day of the first month of the year, when the line opened, because he was there.
 

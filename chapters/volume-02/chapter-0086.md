@@ -34,7 +34,7 @@ The man at the cutting bench put a cloth back over it, and Bel said, "It does no
 
 ---
 
-The woman who fires at the Kilnholt kiln was sent for and came, and she is not named in this volume because nobody in that shed ever asked her name and she has never given it, and she has fired that kiln for sixteen years.
+The woman who fires at the Kilnholt kiln was sent for and came, and she is not named anywhere because nobody in that shed ever asked her name and she has never given it, and she has fired that kiln for sixteen years.
 
 She could give the date without being asked twice. It was the last spring, in the rolling before the low water, on a morning when about nine women were at the loading end and the boards were on the racks in the middle of the shed with the cloths off because the shed had been aired. Bel had been four for about five months. She had been left on a board the way a child is left on a board, which is to say not left, put down, and forgotten about, and about ten minutes later she had taken a thumb and gone into the clay about four inches from the edge and had done that.
 
@@ -80,7 +80,7 @@ The room waited. It is a county of nine hundred and forty-one hearths in which n
 
 "It is a very old thing of mine and I have never had a use for it," said Aren Kest, "and I have said a name in a room with a clerk in it five times in eleven years and I have watched one of the five go into a file four hundred miles off from a single stone on a letter, and the clerk in that room refused to write the fifth one down and gave me the reason, and the reason was that a clerk who keeps a word out of a book for me is doing my work and not his. **I am not saying a name in this shed. There are eleven people in it and a shed is a room and I have had one room go on me and I am not having two.**"
 
-That is what he said, and the whole of it was true, and it was the longest sentence he has said in a room in this county, and it was about himself, and he said it in a room of eleven people on a wet morning in a shed, and the clerk of the assizes was not in the room and there is no clerk in that county but a kiln clerk with a ledger, and it is the only sentence in this volume that he has ever put into a room about himself, and he put it there to avoid putting a river's name into a room, and the man at the loading end understood not one word of it and did not ask, because a man at a loading end in this county does not ask a man off a road a second question.
+That is what he said, and the whole of it was true, and it was the longest sentence he has said in a room in this county, and it was about himself, and he said it in a room of eleven people on a wet morning in a shed, and the clerk of the assizes was not in the room and there is no clerk in that county but a kiln clerk with a ledger, and it is the only sentence he has ever put into a room about himself, and he put it there to avoid putting a river's name into a room, and the man at the loading end understood not one word of it and did not ask, because a man at a loading end in this county does not ask a man off a road a second question.
 
 The hand of the Ninebridge said, from the doorway, without coming in:
 
@@ -90,11 +90,11 @@ And that was the end of it, and it was the right sentence, and it was said by a 
 
 ---
 
-Pernel Quist came out to the shed in the afternoon with the rollkeeper's authority and about nine words, and she looked at the mark for a long time, and then she said the sentence that is the most frightening thing said in this volume:
+Pernel Quist came out to the shed in the afternoon with the rollkeeper's authority and about nine words, and she looked at the mark for a long time, and then she said the sentence that is the most frightening thing anybody in this county has said:
 
 **"We have been looking at the wrong tile."**
 
-And nobody in that shed had any idea what she meant, and she had not come out to say it to anybody in particular, and she said it standing up in a shed with wet boards on edge in it, and then she said the rest of it, which was about four minutes and which is the arithmetic of the whole of the volume done by a woman with a black thumb to the second joint who has counted fires for nineteen years and has never once been asked to count anything else.
+And nobody in that shed had any idea what she meant, and she had not come out to say it to anybody in particular, and she said it standing up in a shed with wet boards on edge in it, and then she said the rest of it, which was about four minutes and which is the arithmetic of the whole of it done by a woman with a black thumb to the second joint who has counted fires for nineteen years and has never once been asked to count anything else.
 
 "Sit down, all of you, and I am going to say a thing and I am going to be short about it because I have got the assizes behind me.
 
@@ -108,7 +108,7 @@ She put her hand flat on the end of a rack.
 
 "It was the disease. It is the disease. The whole of the softening for four years has been a county reading claims about people, four hundred and fifty-odd of them a year, and there has been no arguing with any of them, and the man with the ledger has been right about every figure in this county for nineteen years and he has never once been right about a person."
 
-And then she said the thing that nobody in that shed wanted to hear and that she said anyway, in a keeper's voice, about a record, and it is the sentence the whole volume turns on and it is not a moral sentence when she says it:
+And then she said the thing that nobody in that shed wanted to hear and that she said anyway, in a keeper's voice, about a record, and it is the sentence the whole of this turns on and it is not a moral sentence when she says it:
 
 "**A child draws what has been in front of her face. And in about three years this board is going to be fired, and the mark on it is going to be a hand, and the river is going to be gone, and there is not going to be one thing in the world that says a woman of Kilnholt put a bend and a mill and a weir on the only account of herself that anybody will ever be able to take off her.**
 
@@ -134,6 +134,6 @@ He wrote it in the notebook at about the eleventh hour, in the flat hand, at the
 
 *There is nowhere in the County of Ash to put that. Not the roll — it is a roll of persons and the child is not on it and will not be for three years. Not the bench — a bench votes and this is not a thing anybody can vote about and if it were voted about there would be a column with a number against it. Not the assizes — a fact about a person goes into a book in a room and a room is where a thing like that ends up, and I have been told that by the person who keeps the road and she was talking about a different thing and she was right.*
 
-*There is no column for a thing that is true and about nobody. **I have now been in this county eight months and I have found two of those and I have written them down and I have not been able to put either of them anywhere, and the man with the ledger has been putting them in a book for nineteen years and his book is a press and a press is the only thing in the world you cannot quietly take out of, and that is why the man with the ledger is the only man in this county who has never once needed anybody to believe him and never once had anybody, and I have been here eight months and I understand about a third of that and the third is enough to write it down.*
+*There is no column for a thing that is true and about nobody. **I have now been in this county eight months and I have found two of those and I have written them down and I have not been able to put either of them anywhere, and the man with the ledger has been putting them in a book for nineteen years and his book is a press and a press is the only thing in the world you cannot quietly take out of, and that is why the man with the ledger is the only man in this county who has never once needed anybody to believe him and never once had anybody, and I have been here eight months and I understand about a third of that and the third is enough to write it down.**
 
 *Closed the book. There are about four hundred soft tiles in this county between here and Kilnholt and one pair of hands and mine, and one of them has a river on it, and it is the only one of the four hundred that is not a record of anybody, and I am going to do the bottom of the rack now.*

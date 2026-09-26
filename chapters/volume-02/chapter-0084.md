@@ -2,7 +2,7 @@
 
 It took him four days, and he got it exactly right, and he was wrong about who did it.
 
-That is the whole of the seventh month in four days at the low end of a rack in a shed at the north end of a bridge in a county of nine hundred and forty-one hearths, four hundred yards from a kiln at which, nine days before, a man of fifty-eight had stood at the top of it in the dark and been asked which kiln he was at and had said *that is the one I am at*, and nobody in this volume has worked that out but him, and he did not work it out, he watched it happen.
+That is the whole of the seventh month in four days at the low end of a rack in a shed at the north end of a bridge in a county of nine hundred and forty-one hearths, four hundred yards from a kiln at which, nine days before, a man of fifty-eight had stood at the top of it in the dark and been asked which kiln he was at and had said *that is the one I am at*, and nobody has worked that out but him, and he did not work it out, he watched it happen.
 
 Four days is a long time for a man who has been in a county for eight months and has spent every day of it carrying boards and pressing tiles, and four days is about two seconds to anybody who has not got a trade.
 
@@ -28,7 +28,7 @@ He had been right. He had been exactly right, and he wrote that down on the seco
 
 ---
 
-The second day is the argument, and it is the volume's argument, and he arrives at it by counting things in a shed.
+The second day is the argument, and it is the whole of the argument, and he arrives at it by counting things in a shed.
 
 A record that a person can contradict is not a record of that person. It is a draft of a record of that person, or it is a claim about that person, or it is nothing, but it is not a record of that person, and the difference between those three is the whole of what a person is owed.
 
@@ -36,7 +36,7 @@ A record that cannot be contradicted is a claim about a person. That is the othe
 
 *If a thing in a book can be argued with by the man it is about, then it is a record of him. If it cannot, then it is a claim about him, and the only difference between the two is whether he has anything to say.*
 
-And then the whole of this county, in nineteen years, in one paragraph, which he wrote at about the fourth hour of the second day and which is the shortest thing in this volume:
+And then the whole of this county, in nineteen years, in one paragraph, which he wrote at about the fourth hour of the second day and which is the shortest paragraph he has written in either book:
 
 *The founding act of this county was fire everything. That was made in the fourth year after the register went and it took a county nine years to do and it is the single cleverest act any of them ever took. They built a record that could not be argued with. A fired tile cannot be re-pressed. A chip in it is permanent and a copy of it is a hole in it. A person's hand is in the back of it and it is in the world for ever and no man can put a word in it afterwards. They had lost a register and they were not going to lose the people, and they made a thing out of clay that a person could not take back off himself, and it protected this county for nineteen years.*
 
@@ -48,7 +48,7 @@ And then the whole of this county, in nineteen years, in one paragraph, which he
 
 *It is being read too fast to survive.*
 
-He sat with that for about a minute and a half, and then he wrote the sentence underneath it, and the sentence underneath it is the third notebook entry in this volume and it is the one that is different.
+He sat with that for about a minute and a half, and then he wrote the sentence underneath it, and the sentence underneath it is the third entry in that book and it is the one that is different.
 
 *It is not the bound. It is not the three hands. It is not the anchor, because there is no anchor and the room is not a thing that does not move.*
 
@@ -68,11 +68,11 @@ Four hundred and nine. Two tons each, which is a number he had off a barrow of s
 
 *A man who has noticed a thing three times is not being careful either. He is being consistent faster.*
 
-And then he wrote the part that is new, and it took him the rest of the third day, and it is the first paragraph in either notebook that is a sentence and not a working, and he wrote it deliberately, and he wrote in the flat hand, and it is the only sentence in this volume he has ever written in which he is the object:
+And then he wrote the part that is new, and it took him the rest of the third day, and it is the first paragraph in either notebook that is a sentence and not a working, and he wrote it deliberately, and he wrote in the flat hand, and it is the only sentence he has ever written in either book in which he is the object:
 
 *I said on the nineteenth day and again in the twenty-second week that a bound is a promise, and a promise about four hundred people to one office is a shape I have had refused before me by a man in a room in another county, on a paper about a number of persons in a place that could not be asked a question. I have been sorry for that refusal for eleven weeks and I have not asked the reason twice. I am not asking it now. **I am going to tell this county the shape and the reason and neither of them is the bound, because the bound is the part I have been able to see from a stool, and the part I could not see was the one that mattered, and the part I could not see is that a promise is only as wide as the people who have agreed to it, and I had four hundred and nine of them and not one of them had agreed to anything, because I asked a hall at the fourth hour and a hall is not a person and I had the words for a room and I used the words for a county.**
 
-*That is the mistake. That is all of it. I did not get the bound wrong. **I got the consent wrong, and I did it in a hat, in a room of sixty, and I told a woman with a stove that I would not do that again, and I did it four months later, and I have not been able to work out this afternoon whether I said it to be right or because a man who has been refused twice stops asking for a thing and starts building it.*
+*That is the mistake. That is all of it. I did not get the bound wrong. **I got the consent wrong, and I did it in a hat, in a room of sixty, and I told a woman with a stove that I would not do that again, and I did it four months later, and I have not been able to work out this afternoon whether I said it to be right or because a man who has been refused twice stops asking for a thing and starts building it.**
 
 *A document's load is not in tons and I have written it in tons three times.*
 
@@ -142,7 +142,7 @@ Then she went along the span and started on a kerb, and he carried boards for th
 
 ---
 
-It was in the notebook that night, at about the eleventh hour, on the low stool, in the flat hand, in the back, and it is the third entry and it is the last one of the four days and there is nothing in this volume after it in this county but what other people write.
+It was in the notebook that night, at about the eleventh hour, on the low stool, in the flat hand, in the back, and it is the third entry and it is the last one of the four days and there is nothing after it in this county but what other people write.
 
 *Seventh month. Four days. This is the third time I have set out a working in this book and the third time I have got it right and the third time it has cost somebody who is not me.*
 

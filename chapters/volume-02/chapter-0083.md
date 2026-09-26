@@ -2,11 +2,11 @@
 
 The rite worked for eleven weeks and in the ninth week of it a man called Ostry Vaile was put back on the roll of persons, and in that same week he began to go back to being clay, and the two of those things happened in one room in a market town and not one person in the room knew that either of them was happening.
 
-That is the sentence the whole of the rest of this volume is standing on, and it is worth putting down in the plainest words there are, because a reader who has been waiting eleven months for a man to die is going to find this volume does not do that, and the reason is not restraint and it is not mercy. It is that a man in the County of Ash who goes back to being clay does not stop being anything. He stops being able to be asked. That is the county's word and it is the physician's word and it is the law, and the law was not written by anybody for this purpose, and the law has no column for it, and the law has been doing it for four years without a single decision having been taken by a single person in the room.
+That is the sentence the whole of the rest of it is standing on, and it is worth putting down in the plainest words there are, because everybody in two countries has been waiting eleven months for a man to die and this county is not going to do it, and the reason is not restraint and it is not mercy. It is that a man in the County of Ash who goes back to being clay does not stop being anything. He stops being able to be asked. That is the county's word and it is the physician's word and it is the law, and the law was not written by anybody for this purpose, and the law has no column for it, and the law has been doing it for four years without a single decision having been taken by a single person in the room.
 
-He is fifty-eight. He has been struck eleven months. He has been right about the thing he said in a shed at the change of shift in the eleventh month of a rolling, and he said it to nine men in about nineteen seconds, and it is the answer to the question this whole volume is about, and it has never once been in a form.
+He is fifty-eight. He has been struck eleven months. He has been right about the thing he said in a shed at the change of shift in the eleventh month of a rolling, and he said it to nine men in about nineteen seconds, and it is the answer to the question all of it is about, and it has never once been in a form.
 
-Nobody in this volume visits him in his house. There is a reason for that and the reason is in the law and not in anybody's hardness: a man who softens cannot be witnessed, and the county's law requires two witnesses, and so the moment anybody in this county says out loud *that man is going* they have to do something about it, and there is nothing to do, and a person who says it out loud has taken on a thing they cannot put down. So nobody says it out loud. And a man who has not been said out loud has not been said.
+Nobody visits him in his house. There is a reason for that and the reason is in the law and not in anybody's hardness: a man who softens cannot be witnessed, and the county's law requires two witnesses, and so the moment anybody in this county says out loud *that man is going* they have to do something about it, and there is nothing to do, and a person who says it out loud has taken on a thing they cannot put down. So nobody says it out loud. And a man who has not been said out loud has not been said.
 
 ---
 
@@ -36,7 +36,7 @@ He was not in that hall. He was at a kiln four hundred yards away with a hod in 
 
 Aren Kest was on the charging floor of the Kilnholt kiln on the third day of that week carrying boards, because he was useful and not a visitor and had been for eight months.
 
-He did not see it. He wants that written down, in his own hand, at the back of the notebook, and it is the reason there is a third notebook entry in this volume and not a first one, and the reason is this. He has trained himself for nineteen years, in four countries, to see where a load goes. That is a real thing and it has saved about nine men his life and it is the only thing he is for. And a person going back to being clay has no load path. There is nothing in it to trace. There is no failure and there is no strain and there is no crack and no stone moved and no timber out of true; there is a man at a firing floor and the man is a man and everything about the man is exactly where it was.
+He did not see it. He wants that written down, in his own hand, at the back of the notebook, and it is the reason there is a third entry in the back of that book and not a first one, and the reason is this. He has trained himself for nineteen years, in four countries, to see where a load goes. That is a real thing and it has saved about nine men his life and it is the only thing he is for. And a person going back to being clay has no load path. There is nothing in it to trace. There is no failure and there is no strain and there is no crack and no stone moved and no timber out of true; there is a man at a firing floor and the man is a man and everything about the man is exactly where it was.
 
 He watched for four days and he saw four things and he did not assemble them, and the reason he did not assemble them is that the four things were not the same kind of thing, and a man who has spent his life putting four things in a row because four things in a row make a load is the last man in the world to put four ordinary things in a row.
 
@@ -96,7 +96,7 @@ So the man at the loading end called a hearth twice and changed the shift and no
 
 ---
 
-The fourth thing is the name, and it happened on the last day of the ninth week and it is the only one of the four that anybody in this volume ever finds out about.
+The fourth thing is the name, and it happened on the last day of the ninth week and it is the only one of the four that anybody ever finds out about.
 
 The charge on a rolling that has been standing is a matter of hours and it is done in the dark, and a man who is not on the charge goes to the top of the kiln with a hod and looks down the flue.
 
@@ -128,7 +128,7 @@ And Ostry Vaile stood at the top of the Kilnholt kiln in the dark with a hod of 
 
 ---
 
-Nobody in this volume goes into his house. There is a fire in it in Kilnholt and it is on the roll as hearth two hundred and fourteen and it is his, and he is in it most nights, and nobody calls on him because a man who is soft is not a man anybody calls on, and the reason is not that nobody wants to. It is that a call is a thing you note down.
+Nobody goes into his house. There is a fire in it in Kilnholt and it is on the roll as hearth two hundred and fourteen and it is his, and he is in it most nights, and nobody calls on him because a man who is soft is not a man anybody calls on, and the reason is not that nobody wants to. It is that a call is a thing you note down.
 
 Aren Kest found out about the name on the fourth day of that week, and he found out about it by accident, because he was on the stairs with two boards and the man off the boat told him, and it took about four seconds, and then he stood on the stairs for about a minute and a half with two boards in his arms.
 

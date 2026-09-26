@@ -18,7 +18,7 @@ The magistrate called the room on purpose, and he put the reason on the table in
 
 Nobody in that room said the sentence for about an hour and a half.
 
-The argument they had instead was, and this is exactly what the argument was, and it is worth printing because it is the shape of the thing the whole volume is about: **they could not agree on a word for what had happened to them.**
+The argument they had instead was, and this is exactly what the argument was, and it is worth printing because it is the shape of the thing the whole of this is about: **they could not agree on a word for what had happened to them.**
 
 They had plenty of words. They had *list* and *book* and *roll* and *column* and *stamp* and *the year of the taking* and *the year the register went*, and about eleven men said those words in about forty minutes and every one of them was describing a procedure and not an event, and at no point in forty minutes did anybody in that room say a word for *a thing that was done to this county by somebody and could not be refused*.
 
@@ -38,7 +38,7 @@ Nobody said anything for about eleven seconds.
 
 ---
 
-The hand of the Ninebridge said the other one, and she said it standing, and she said it about four minutes in, in the middle of an hour and a half, and it is the sentence the whole of this volume's road is built on and it is the first time in this volume that it has been said in a room by the person it belongs to, and about nine people in that room had heard it in some form and none of them had heard it in that room.
+The hand of the Ninebridge said the other one, and she said it standing, and she said it about four minutes in, in the middle of an hour and a half, and it is the sentence the whole of this county's road is built on and it is the first time it has been said in a room by the person it belongs to, and about nine people in that room had heard it in some form and none of them had heard it in that room.
 
 "A hand answers for a road and a hand can be asked. Those are two halves and everybody always puts them together and they do not go together.
 
@@ -60,7 +60,7 @@ Somebody at the back said, "We have been the hand that does not answer for nine 
 
 The physician's four pages were read out again, and four pages of them were read out, and this time nobody misunderstood them.
 
-That is the sentence the eighth month and the ninth month of this year have bought, and it was not bought by a stranger and it was not bought by a physician, and there is nobody in this volume who is going to be thanked for it.
+That is the sentence the eighth month and the ninth month of this year have bought, and it was not bought by a stranger and it was not bought by a physician, and there is nobody in this county who is going to be thanked for it.
 
 Hesper Lound read the four pages himself, at about the third hour, in a room of about fifty people, in a county where the same four pages were read out loud once in four years in the twelfth month to a man with a sett-cutter's bag, and were misunderstood twice in the same hour, cleverly by the keeper of the roll and kindly by the magistrate.
 
@@ -96,7 +96,7 @@ And the cord-cutter said, "I do not know and I have thought about it for a month
 
 "I have been asked twice since the fifth month whether the books are a good thing and both times by people who had not read the third page. I have not got an answer and I have had four months to get one."
 
-Nobody in that room answered him, and the chapter is the whole of that not being answered, because the physician's objection was made in the fifth month by a man in a room with a stove in it, and it was right then, and it is right now, and about four hundred and nine people have been through a room since then and the fastest mark in the County of Ash is a list of restorations read aloud four times a day by a girl of nineteen, and **the physician is a sixty-three-year-old man who has been right about this county for four years and has had four pages in a drawer and about a week to think, and he is not going to be right about it in a hall tonight, and nobody is going to make him, and the one piece of civic work in this volume that nobody has ever written down is two hundred books in two hundred sheds and it is the best thing anybody in this county has ever done and it may be a fire.**
+Nobody in that room answered him, and the rest of that evening is the whole of that not being answered, because the physician's objection was made in the fifth month by a man in a room with a stove in it, and it was right then, and it is right now, and about four hundred and nine people have been through a room since then and the fastest mark in the County of Ash is a list of restorations read aloud four times a day by a girl of nineteen, and **the physician is a sixty-three-year-old man who has been right about this county for four years and has had four pages in a drawer and about a week to think, and he is not going to be right about it in a hall tonight, and nobody is going to make him, and the one piece of civic work that nobody has ever written down is two hundred books in two hundred sheds and it is the best thing anybody in this county has ever done and it may be a fire.**
 
 ---
 

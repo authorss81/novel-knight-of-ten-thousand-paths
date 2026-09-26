@@ -188,7 +188,7 @@ Not because it is a fact about a person — she has entered a fact about a perso
 
 **Four.** She wrote in Fallowmonth, on a page that has nothing against it, at about the tenth hour, and it is one of four lines in a day-book and it is the line the whole of this case is resting on without anybody knowing: *that this office is not going to ask him again.*
 
-And the reason she wrote that down, and she has never written it anywhere else and it is the last line of this volume, and it is not a sentence about the man, and it is the reason the whole of the four months since has gone the way it has gone:
+And the reason she wrote that down, and she has never written it anywhere else and it is the last line of the case, and it is not a sentence about the man, and it is the reason the whole of the four months since has gone the way it has gone:
 
 **"Because a keeper of records who asks a question has already decided that the answer is not in the records she keeps, and a keeper who has decided that has stopped being a keeper and started being a person who wants something."**
 

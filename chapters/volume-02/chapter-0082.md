@@ -2,7 +2,7 @@
 
 The rite worked for eleven weeks and nobody in the County of Ash noticed anything wrong in it.
 
-That is the sentence the block is built on, and it is worth saying exactly what it means, because a reader who has been trained by eleven months of this book to look for the thing that has gone wrong is going to spend the whole of the following forty pages waiting for a character to say it, and no character says it, and one of them says something else in front of about four hundred people and is not listened to.
+That is the sentence the whole thing is built on, and it is worth saying exactly what it means, because a man who has spent eleven months looking for the thing that has gone wrong is going to spend the next four months of it waiting for somebody to say it out loud, and nobody does, and one person does say something else in front of about four hundred people and is not listened to.
 
 The work was fast. It was local. It was unpaid. It was done, in the end, by the county's own people, and not one of the sixty people who had been in the hall when it was proposed was doing any of it by the fourth week, which is the only part of the whole business that a person from a fen would have got right on the first morning.
 
@@ -46,13 +46,13 @@ He read it for two days and then he stopped, and he did not say why, and she too
 
 Nobody told her that was a job she had.
 
-She read it properly. That is the thing that has to be said about her and it is the whole of her in this volume. She did not run names. She read the name, and the hearth, and the trade, at the speed of a woman reading out a row of things she has copied four hundred times, and she got every one of them right, and she put a comma where a comma goes, and she did not put a sentence round it, and she did not say *and this one* or *and here is somebody you will remember*, and when a name in the list was one the room knew she let the room make its own noise about it and did not help.
+She read it properly. That is the thing that has to be said about her and it is the whole of her. She did not run names. She read the name, and the hearth, and the trade, at the speed of a woman reading out a row of things she has copied four hundred times, and she got every one of them right, and she put a comma where a comma goes, and she did not put a sentence round it, and she did not say *and this one* or *and here is somebody you will remember*, and when a name in the list was one the room knew she let the room make its own noise about it and did not help.
 
 And she got better. That is the other half of it. She got better in the fourth week, and by the eighth week the two men on the door were reading the names in with her under their breath, half a beat behind, and by the eleventh week a man at the back of the queue was reading them before she got to them, and she noticed that and slowed down very slightly to let him keep up, and that was the most generous thing anybody did in that room in eleven weeks and she has no idea she did it.
 
 ---
 
-It is the only piece of civic work in this volume that anybody has ever described as being watched rather than heard, and it is watched, and it is watched about four hundred times a day, and nobody in the County of Ash knows what that is.
+It is the only piece of civic work anybody has ever described as being watched rather than heard, and it is watched, and it is watched about four hundred times a day, and nobody in the County of Ash knows what that is.
 
 There is a physician in this county of sixty-three who wrote four pages in the third year of the softening and had them in a drawer for four years, and the second of the four pages says that the softening enters by the mark and travels from a mark to the person who reads it, and from a person to the marks of that person's household, and travels fastest along the marks that are read most, and that the marks read most in this county are the roll marks, because a clerk reads the roll every morning and does not know that she is doing anything.
 
@@ -142,4 +142,4 @@ He wrote it on the slate under the figure, in his own hand, and the boy with the
 
 **Four hundred and nine.**
 
-That is the figure the eleven weeks made, and it is the only figure in this volume that anybody in either country is going to be proud of, and it is the figure that is going to appear on a sheet of paper four hundred words long in a fair hand, itemised, in a filing room in a fen county, in a month, and it is going to be a line on a bill, and a clerk is going to check it.
+That is the figure the eleven weeks made, and it is the only figure anybody in either country is going to be proud of, and it is the figure that is going to appear on a sheet of paper four hundred words long in a fair hand, itemised, in a filing room in a fen county, in a month, and it is going to be a line on a bill, and a clerk is going to check it.
