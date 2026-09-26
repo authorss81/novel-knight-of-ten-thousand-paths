@@ -34,7 +34,7 @@ She was four and she had been at the low end of the rack for two days going thro
 
 He saw it from about eight feet away and he did not say anything for the length of nine.
 
-He counted nine, and he watched the child press a flat place into a woman's dish, and he understood that in about a hundred and forty days that tile would be a grey nothing and that a woman who was on the roll of persons of the County of Ash would be off it, and that she would not know why, and that nobody in the county would ever be able to tell her, and that the reason she would not know is that a child of four had made a mistake in a shed in about a second and half.
+He counted nine, and he watched the child press a flat place into a woman's dish, and he understood that in about four years that tile would be a grey nothing and that a woman who was on the roll of persons of the County of Ash would be off it, and that she would not know why, and that nobody in the county would ever be able to tell her, and that the reason she would not know is that a child of four had made a mistake in a shed in about a second and half.
 
 He said one word.
 
@@ -44,7 +44,7 @@ Bel looked up. She looked at the tile, and at her hand, and at the tile, and she
 
 The woman of the Ninebridge was standing in the doorway and had been standing there for about a minute and a half and she had seen the whole of it, and she said nothing then either, and Aren Kest understood about half an hour later, on a later day, that she had been about to tell a child to put a board back where it came from, and had not, and that the reason she had not was that a four-year-old had been told by a stranger that she had it wrong, and had not argued, and had put it right.
 
-"It is the only thing I have been useful for in ten days," he said.
+"It is the only thing I have been useful for in nine days," he said.
 
 "It is the only thing you have been useful for," she said, "and I would like it on the record that I would have got there in about a week and that a week in this county is the difference between a person on a roll and a person not, and I am not being kind, I am being accurate, and I am also aware that I have a stranger on a board in a shed of mine and he is about to be the reason a four-year-old can read her own tile, and I have thought about that for a minute and a half and I have decided to have it, and I have decided it because of the tiling and not because of the child."
 
@@ -92,7 +92,7 @@ On the afternoon of the fourth day she sent him up the bridge to take a look at 
 
 And the coping of the second span is about three feet above the line of the kerb, and he put his hand up on it to get himself along, and it was cold.
 
-It was six inches by four and about the thickness of two fingers, and it was grey, and it was fired, and it was clay, and there was a rope on it hanging in two loops and no yoke, and from four feet away, in daylight, on the fourth day he had been in the county, it was not a bell. It had been a bell from two hundred yards in bad light on the first morning and it was not one now.
+It was six inches by four and about the thickness of two fingers, and it was grey, and it was fired, and it was clay, and there was a rope on it hanging in two loops and no yoke, and from four feet away, in daylight, on the fourth day of the four, it was not a bell. It had been a bell from two hundred yards in bad light on the first morning and it was not one now.
 
 There was a mark on it.
 
@@ -104,7 +104,7 @@ He put his hand back on the coping. He did not touch the tile. He did not put hi
 
 The rope was newer than the tile. That was the one fact he got, and he got it without touching anything, because a rope that has been out in the weather for nineteen years goes the colour of the coping and a rope that is a year old is the colour of ash-wood.
 
-On the afternoon of the fifth day, standing at the fourth span with her roll of tools at her hip, the woman of the Ninebridge said:
+Later the same day, standing at the fourth span with her roll of tools at her hip, the woman of the Ninebridge said:
 
 "Everybody who comes to this town asks me about that."
 
@@ -112,7 +112,7 @@ He waited.
 
 "About the coping."
 
-"I have been asked by a factor's man and by a man off a boat and by two women off a coach and by a man who said he was from a county office two winters ago, and the answers are all the same and the answer is that it is on the coping, and it has been on the coping, and nobody in this county knows what it is, and it is not mine and I do not keep it and I would not have it off there for the two hundred and forty tiles a year that would cost." She looked at him. "You have been staring at it for two days. What is it?"
+"I have been asked by a factor's man and by a man off a boat and by two women off a coach and by a man who said he was from a county office two winters ago, and the answers are all the same and the answer is that it is on the coping, and it has been on the coping, and nobody in this county knows what it is, and it is not mine and I do not keep it and I would not have it off there for the two hundred and forty tiles a year that would cost." She looked at him. "You have not taken your eyes off it since you put your hand on that coping. What is it?"
 
 There it was. There was the room, and the clerk in it, and the fifth time in eleven years.
 

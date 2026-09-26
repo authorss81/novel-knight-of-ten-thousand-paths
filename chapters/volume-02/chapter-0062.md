@@ -112,7 +112,7 @@ He said: "Does the magistrate know that?"
 
 ---
 
-He got the tile count out of her on the third day, the twenty-fifth day of the rolling, and it took about a minute, because she has it in a hand that is not a book.
+He got the tile count out of her on the third day, the twenty-fourth day of the rolling, and it took about a minute, because she has it in a hand that is not a book.
 
 "Two thousand nine hundred and six."
 
@@ -120,7 +120,7 @@ He got the tile count out of her on the third day, the twenty-fifth day of the r
 
 "Nine hundred and forty-one hearths," said Pernel Quist, "which is the county's figure, and the county's figure is the fire and not the person, and it has been the fire since the roll was begun and there is nobody left alive who remembers it being anything else."
 
-"There are two thousand four hundred and fifty people in this county," Aren Kest said, "said out loud yesterday in a kiln shed by the only man who had it, and there are two thousand nine hundred and six tiles on your roll of persons, and that is four hundred and fifty-six, and the roll has never had the people in it and there is nowhere on this shelf to put them."
+"There are two thousand four hundred and fifty people in this county," Aren Kest said, "said out loud on the first morning in a kiln shed by the only man who had it, and there are two thousand nine hundred and six tiles on your roll of persons, and that is four hundred and fifty-six, and the roll has never had the people in it and there is nowhere on this shelf to put them."
 
 Pernel Quist went along the shelves. She went the whole way along them, all forty-one, with a lamp in her hand, at twenty past the fifth hour, and she ran a finger along the label-slots, and she came back to the table and sat down and said:
 

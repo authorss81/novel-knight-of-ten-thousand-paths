@@ -78,7 +78,7 @@ Aren Kest stood in a shed with fired clay stacked to the roof in a county four h
 
 "Two thousand nine hundred and six tiles in fours is seven hundred and twenty-six and two over," he said. "Nine hundred and forty-one hearths in fours is two hundred and thirty-five and one over."
 
-"Yes," said the man with the ledger. "That is the one tile in this county that has not got three brothers and has not had since the first firing, and I have never known why there was one and I have never cared."
+"Yes," said the man with the ledger. "Two over on the clay and one over on the fires, and the one over on the fires is the one tile in this county that has not got three brothers and has not had since the first firing, and I have never known why there was one and I have never cared."
 
 "That is not a whole number of people either," said Aren Kest. "Nine hundred and forty-one is a fire. How many people are there?"
 
