@@ -32,7 +32,7 @@ And the seventh column, a witness at that end, is a ruled space about two inches
 
 ---
 
-**---**
+---
 
 **And the resolution is on the table, and it is a sheet of fair copy in this office's own press, and it is nineteen lines long and it is dated the twentieth of Hearthmonth, YR 313, and it is the only document in this case that anybody has ever asked this office to produce, and it has been produced four times and has never been signed by anybody, and the reason it is not signed is in its eleventh line, and nobody has ever asked about the eleventh line either.**
 
@@ -44,7 +44,7 @@ And the seventh column, a witness at that end, is a ruled space about two inches
 
 *That the day named is the ninth of Rainmonth in the year following, at the second hour, and that the hour is a second thing and is not to be got round.*
 
-And the keeper of records read the eleventh line out twice, and the second reading was slower and not better, and the eleventh line is the one that says a keeper of records is a keeper of records and is not a person appointed by any council to answer for any person, and she said out loud, in a room of two, that she wrote it herself, at twenty-seven, in about nine minutes, on a bench in a guild hall four hundred miles off, because a form with a column headed *Keeper* had been relied upon in four counties and none of the entries in that column was made by the man it was about, and she has never said that sentence to anybody in this room and there is nobody in this room to say it to except a second copyist who was not in that hall.
+And the keeper of records read the eleventh line out twice, and the second reading was slower and not better, and the eleventh line is the one that says a keeper of records is a keeper of records and is not a person appointed by any council to answer for any person, and she said out loud, in a room of two, that she wrote it herself, at twenty-seven, in about ten minutes, on a bench in a guild hall four hundred miles off, because a form with a column headed *Keeper* had been relied upon in four counties and none of the entries in that column was made by the man it was about, and she has never said that sentence to anybody in this room and there is nobody in this room to say it to except a second copyist who was not in that hall.
 
 And what the hearing was, and what this office owes for it, and the delegation, are all in the first column, and it took about four minutes and it is about two hundred and forty words and the keeper read it out twice before she let the second copyist have it, and the second reading was slower and not better, and that has been the practice of this office since the first year.
 
@@ -58,9 +58,9 @@ She read it out.
 
 ***And that this is entered as a fact about this office and not as a finding against anybody, there being nobody against whom it could be entered.***
 
-*And that the seventh column is empty, and that a column which asks for a name and is given nothing is not a hole in a document, and that it is the finding of this sheet, and that the reason it is written under the rule and not in the column is that the rule exists to be ruled across, and a body corporate that has had a question and had no answer has no way of saying that it has not had an answer, and this office has had one for about nine weeks and has now got a way, and the way is a column and two lines of writing under a rule, and the rest of the sheet is empty, and that is what the way costs and it is not very much.*
+*And that the seventh column is empty, and that a column which asks for a name and is given nothing is not a hole in a document, and that it is the finding of this sheet, and that the reason it is written under the rule and not in the column is that the rule exists to be ruled across, and a body corporate that has had a question and had no answer has no way of saying that it has not had an answer, and this office has had one since the hearing and has now got a way, and the way is a column and two lines of writing under a rule, and the rest of the sheet is empty, and that is what the way costs and it is not very much.*
 
-Nobody in the room said anything. The junior clerk was not in it. The second copyist had the sheet square in front of her with a rule in her hand and she did not write while it was being read and she wrote it out afterwards in about nine minutes, and the writing was slower than the reading and not better, and that is the practice.
+Nobody in the room said anything. The junior clerk was not in it. The second copyist had the sheet square in front of her with a rule in her hand and she did not write while it was being read and she wrote it out afterwards in about ten minutes, and the writing was slower than the reading and not better, and that is the practice.
 
 And when she had done it the two of them read all of it back, all seven columns and the two lines under the rule, and the day and the hour were read back as two things with the rule between them, and the second copyist said the second column out loud twice because the clause *and to no person* is the load-bearing clause of the whole sheet and it is nine words, and both of them looked at it.
 
@@ -86,7 +86,7 @@ And then the second copyist asked the question, and it was the question she aske
 
 She put the pen down.
 
-“And I am going to write it anyway, because a body corporate that cannot say what a thing it has agreed to hear was for is a body corporate that has agreed to hear things, and this office has three claim numbers in it out of four years and a half and two of them are against nobody and one of those two is this, and a body corporate that cannot say what a thing was for will be holding three of them inside about nine years and will not be able to say a word about any of them, and I would rather be in that position having written the meaning down than having not written it.”
+“And I am going to write it anyway, because a body corporate that cannot say what a thing it has agreed to hear was for is a body corporate that has agreed to hear things, and this office has three claim numbers in it out of four years and a half and two of them are against nobody and one of those two is this, and a body corporate that cannot say what a thing was for will be holding three of them inside a few years and will not be able to say a word about any of them, and I would rather be in that position having written the meaning down than having not written it.”
 
 And so the meaning was written, on a second sheet, and it was not put in a column, and it was not attributed to anybody, and the reason it was not attributed is on the third sheet and it is the standing rule of this office and it is nineteen years old and it is in a fair copy on the wall.
 
@@ -96,9 +96,9 @@ And so the meaning was written, on a second sheet, and it was not put in a colum
 
 And the second copyist read it and then read it again and put it down, and she said the thing that is the finding of the whole sheet and that took her eleven seconds and that neither of them improved on afterwards.
 
-“A meaning on a stage can be argued with. You can stand up in front of a room and say *that is not what I took you to mean* and about nine people will agree with one of you and it will be a different meaning by the fourth hour, and it will be the meaning that happened, because that is what a stage is for.
+“A meaning on a stage can be argued with. You can stand up in front of a room and say *that is not what I took you to mean* and most of a room will agree with one of you and it will be a different meaning by the fourth hour, and it will be the meaning that happened, because that is what a stage is for.
 
-“A meaning in a minute cannot be argued with. It can only be read. And once it is read it is the same for every person who reads it, and about nine years from now there will be a woman in this room who has not met you and she will read it and she will have an opinion about it and she will not be able to give it to anybody, because there is nobody in it to give it to.”
+“A meaning in a minute cannot be argued with. It can only be read. And once it is read it is the same for every person who reads it, and years from now there will be a woman in this room who has not met you and she will read it and she will have an opinion about it and she will not be able to give it to anybody, because there is nobody in it to give it to.”
 
 “Yes,” said the keeper of records. “And this office cannot refuse to hold it and cannot hand it back, and there is no instrument in this kingdom that can hold a meaning and be sued for one except a body corporate with a door, and there is one, and it is four hundred yards from this door, and it was made four years and a half ago out of a deed of thirteen words, and the words are *for the keeping of what this county cannot be shown it has lost*, and I have read that deed about four hundred times and I have never once had to work out what it was for, and I have had to work out what it was for this morning, and it is that.”
 

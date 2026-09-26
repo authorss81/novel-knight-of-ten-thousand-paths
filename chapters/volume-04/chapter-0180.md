@@ -38,7 +38,7 @@ He turned to a clean page and wrote the sum in a county's money, in the county's
 *A barrow of salt at fourpence.*
 *A hundred and sixty-five and four is a hundred and sixty-nine pence, which is three marks and twenty-five pence.*
 
-**“That is the cost of the asking in a county about four hundred miles off where a day of an unskilled man is three pence, and it is three marks and twenty-five pence, and it is a figure in a money that does not exist in this valley and cannot be changed into anything that does, and I am not going to try, and the reason I am not going to try is the reason I have given in four other rooms since the ninth week and I am not going to say it again in a room where the man of fifty-eight is keeping a book.”
+**“That is the cost of the asking in a county about four hundred miles off where a day of an unskilled man is three pence, and it is three marks and twenty-five pence, and it is a figure in a money that does not exist in this valley and cannot be changed into anything that does, and I am not going to try, and the reason I am not going to try is the reason I have given in four other rooms since the ninth week and I am not going to say it again in a room where the man of fifty-eight is keeping a book.”**
 
 “The valley's own price of that fortnight is eleven kitchens and about four barrows of salt and nobody's figure,” said Iven Sarr, “and those are the two and I am not putting one of them on a page with the other one and neither is he and it is not because it would be wrong, it is because there is no way on this earth to add them and a person who tried would be doing arithmetic on a thing to make it go away.”
 
