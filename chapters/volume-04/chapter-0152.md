@@ -24,7 +24,7 @@ And the sheet is still on that table on the Wednesday and still on the table on 
 
 **The fourth thing in the bag was a notice of four lines and it had come down a road four hundred miles off, in a fair hand, and it is not the answer to anything, because nothing was asked of the county it came from.**
 
-It came down on the Friday. It is dated four days before that, which means it was written while it was on the road, which means the road took nine days for four lines and a keeper of records has written that on the wrapper because a document's own date and a document's own arrival are the two halves of every question anybody ever asks about a letter.
+It came down on the Friday. It is dated four days before that, which means it was written while it was on the road, which means four days for four lines and a keeper of records has written that on the wrapper because a document's own date and a document's own arrival are the two halves of every question anybody ever asks about a letter.
 
 Four lines, in a fair hand, and the hand is not a clerk's hand and is not the hand of the man who keeps the minute in the county the fair copy came from.
 
@@ -47,7 +47,7 @@ The sentence is the fourth line.
 
 *That the line at this end is the whole of what this county has to say to him.*
 
-“Four words of that are the same four words a bench of nine put in a minute of its own on the twenty-fourth of this county's last year,” said Alish Renn, “and I am not going to say which four, and the second copyist of this office is not going to write them down, and if the office is ever asked which four, the answer is going to be that the office does not know and has not looked.”
+“Four words of that are the same four words a bench of nine put in a minute of its own on the twenty-fourth of this county's last year,” said Alish Renn, “and I am not going to say which four, and I am the second copyist of this office and I am not going to write them down, and if the office is ever asked which four, the answer is going to be that the office does not know and has not looked.”
 
 **And the letter that is not answered is not in the bag and never has been in the bag, and that is the second half of what this Monday is.**
 
@@ -67,7 +67,7 @@ The sheet is ruled in four columns, in her hand, and the four columns are *what 
 
 “There could be one,” said Sarn Oyelaran. “It would be the ordinary thing. Every office in this country has a column for what came back and I have never seen a returnable paper without one, and if you rule it you can write *nothing* in it, and *nothing* is a fact, and a fact is what this office is for.”
 
-“Then somebody writes *nothing* in it in about four years,” said Alish Renn, “and it is true when he writes it, and then in about forty years somebody reads a ruled column with the word *nothing* in it and says the office asked, and that is a thing this office does not do, and if you want to do it you may do it on your own sheet and I will keep it in this press and label it, and I will not have it on the same page as the other.”
+“Then somebody writes *nothing* in it in about four years,” said Alish Renn, “and it is true when he writes it, and then in about forty years somebody reads a ruled column with the word *nothing* in it and says the office asked, and that is a thing this office does not do, and if you want to do it you may do it on your own sheet and I will hand it to the keeper and she will keep it in this press and label it, and it will not be on the same page as the other.”
 
 Eleven lines went on the sheet and the eleventh is a jar of a wheat, four hundred miles, carriage paid, and there is two inches of bare paper at the right of it with nothing ruled in it, and the two inches is not a mistake and is not going to be ruled in.
 
@@ -89,7 +89,7 @@ The room did not make a sound, and about nine men in it knew what a yard in this
 
 “Then I will say the thing that is in the room,” said Bram Ottery, “and I will say it once and I would like the clerk to put it down exactly. There is a council four hundred miles off that has written down in a book that cannot be served that it owes this town four men's wages, and it has written it in a way that no court in this kingdom can get at, and it has put the word *none* in the space where the money should go, and it has done that with its eyes open, and it is not a secret, because it is nailed to a board under the stair in this hall.
 
-“And this bench has a chest with two marks in it and has been asked five times for money and has said yes five times and has given two marks, and in four years and a half this bench has not once asked a yard in this town what it is owed by anybody. Not because we are proud. Because nobody ever thought of it.”
+“And this bench has a chest with two marks in it and has been asked five times for money and has said yes to four of them and has given two marks, and in four years and a half this bench has not once asked a yard in this town what it is owed by anybody. Not because we are proud. Because nobody ever thought of it.”
 
 “Enter it,” said the reeve.
 

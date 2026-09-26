@@ -1,6 +1,6 @@
 # Chapter 0154
 
-The fourth of Goatmonth, YR 313, was a Tuesday and it was not a market day, and one bag came up the two flights with two things in it that nobody in this room expected to arrive together, and the second of them came out of the bag first because it is the smaller of the two and it was on top.
+The fourth of Goatmonth, YR 313, was a Monday and it was not a market day, and one bag came up the two flights with two things in it that nobody in this room expected to arrive together, and the second of them came out of the bag first because it is the smaller of the two and it was on top.
 
 A sheet of the office's own paper, folded in two, with a seal on the fold, and no address, because a returnable paper is not addressed to a person.
 
@@ -10,7 +10,7 @@ Alish Renn took the seal off and looked at the head of it and then put it down f
 
 There is no space for a name. Not a small one and not a ruled one. The five columns of that series are *Object*, *Date*, *Person having knowledge*, *Keeper*, *How often*, and this paper has six, and the sixth is the one at the foot, and the sixth is a line with no head to it at all, and the line is for a figure. This is not the county's own form, which is ruled in seven and has been since a landlord asked this council to put a ditch on his account nineteen years ago, and no paper of that office's has ever been ruled in seven, and this office has never seen one.
 
-The date on it is returnable on or before the seventh of Thawmonth, and the seventh of Thawmonth is a Monday, and the day was named in advance by somebody two hundred miles off who has never heard of this county.
+The date on it is returnable on or before the seventh of Thawmonth, and the seventh of Thawmonth is a Saturday, and the day was named in advance by somebody two hundred miles off who has never heard of this county.
 
 Mara Vey read it twice over and then went and got the wrapper it came in, because the answer to a paper is very often on the thing it came in.
 
@@ -34,13 +34,13 @@ Nobody in the room read it and nobody in the room was going to read it, because 
 
 “It is a letter about a book,” said Rowan Petch, who had put the bag down and had not gone.
 
-“Then it is a letter about a book that the county has a council about, and the council meets on a Saturday, and the Saturday is in four days, and I will hand it to the clerk of the county council myself and write down the hour that I did it, and I would like that in the minute, and I would like somebody else in this room to write down that I said it.”
+“Then it is a letter about a book that the county has a council about, and the council meets on a Saturday, and the Saturday is in five days, and I will hand it to the clerk of the county council myself and write down the hour that I did it, and I would like that in the minute, and I would like somebody else in this room to write down that I said it.”
 
 Aren Kest was in the room. He has been in that room about nine times in four years and a half and this is the fourth time in a month, and he came up the two flights at about the seventh hour with a stick and a tool bag and had been in the room about a minute when the letter came out of the bag.
 
 “You could read a hand,” said the keeper of records, to him, and then stopped, and did not finish the sentence, and the sentence was not finished because of what is in the letter and not because of anything in the room.
 
-**And Lysa Fenn beat it in nine minutes, in a room over a weigh-house, on a Tuesday, with the form's own construction, and she is frightened of her own answer and said so out loud in front of nine people.**
+**And Lysa Fenn beat it in nine minutes, in a room over a weigh-house, on a Monday, with the form's own construction, and she is frightened of her own answer and said so out loud in front of nine people.**
 
 She came up the two flights with a wet coat because it had begun to rain on the stair and she would not give a bag to a boy, and she did not want a chair, and she had read the thing in a filing room in the county town four days earlier, which is what a county of nine thousand does with a paper that cannot be served, which is that it gets a copy of it from the man who copied it.
 
@@ -62,7 +62,7 @@ She wrote the answer in the ordinary form on the reverse of the return, with the
 
 “We are at nothing twice in a year,” said the keeper of records, “and nothing is a figure and I cannot put it on a line, and I have four years and a half of this office to tell you that I have got very good at nothing and that it has never once been the same as a zero, and a zero is a figure and a figure is what that office wants.”
 
-**And the second copyist read the letter, because the county council is not meeting for four days and the county council has no clerk on a Tuesday, and a bag is not going to wait four days in a room with a door on a lane.**
+**And the second copyist read the letter, because the county council is not meeting for five days and the county council has no clerk on a Monday, and a bag is not going to wait five days in a room with a door on a lane.**
 
 Alish Renn read it out. All of it, twice, because she is the second copyist of this office and the first thing the second copyist of this office is for is to know what is in the bag before anybody acts on it.
 
@@ -110,4 +110,4 @@ Then she wrote four lines in the day-book, with the date and the hour and the cl
 
 And then the two of them went down to the press together, and Alish Renn ruled a line under the entry in the ordinary way and stopped the ruling two inches short of the width of the page, and the two inches is at the right-hand edge of the page and nothing is ruled in it, and there is nothing in this office that says what is going in it.
 
-The wrapper went into the press with the return and the letter and three figures on it: the hour, the count of things on a sheet with no column for what came back, and one line in the second copyist's hand saying that a Crown instrument of the Office of Provincial Registration and a letter from a valley four hundred miles off that is in nobody's book came up the same two flights in the same bag on the same Tuesday morning, and that they had arrived together, and that they were a coincidence, and that no person in that room was to do anything with it, and that the only thing anybody had done about it was to rule a line and stop two inches short of the edge of a page.
+The wrapper went into the press with the return and the letter and three figures on it: the hour, the count of things on a sheet with no column for what came back, and one line in the second copyist's hand saying that a Crown instrument of the Office of Provincial Registration and a letter from a valley four hundred miles off that is in nobody's book came up the same two flights in the same bag on the same Monday morning, and that they had arrived together, and that they were a coincidence, and that no person in that room was to do anything with it, and that the only thing anybody had done about it was to rule a line and stop two inches short of the edge of a page.

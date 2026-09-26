@@ -20,7 +20,7 @@ Bram Ottery said, “Do you want to say anything to me now, in case.”
 
 “Good. I want to be able to say that you did not say anything to me, because I have been asked before now by a man about to do a thing whether I would want to know, and I did not know the answer then and I have thought about it for a year and a half, and the answer is that I would want to know afterwards, and that I do not want to know before.”
 
-He did not make the nine up again. He had made them up on the previous afternoon on the fourth step of a stair over a weigh-house, and they were in the book with the hour against each one, and three of the nine have no figure in them at all, and there is nothing that can be done about that at a quarter past four in the morning on a bridge.
+He did not make the nine up again. He had made them up four days ago on the fourth step of a stair over a weigh-house, and they were in the book with the hour against each one, and three of the nine have no figure in them at all, and there is nothing that can be done about that at a quarter past four in the morning on a bridge.
 
 Then he put the book away and put his hand flat on the dressed block in the abutment, which is the one thing on that crossing that is not going anywhere, and which is a block of stone that came out of a quarry about nine miles off and that a man paid for on a day, and he said the four things out loud, and they take about eleven seconds, and the man on the abutment heard all four of them.
 
@@ -40,7 +40,7 @@ Bram Ottery said, “Right,” and then, after a moment, “That is the first ho
 
 He put his hat on.
 
-The bell went at the fourth hour and a half.
+The bell went at the fourth hour and a half, behind him and a good two hundred yards up the road.
 
 It is a bell with a band of forty-one rivets round it and a dull red seam in the metal where the band was closed, and it is nine stone of green-black bronze, chest-high, split lip to shoulder, and there is a boy of seventeen on the near abutment holding one end of a line and a carpenter beside him who is a hand and not a keeper and has a bar he is not using. They rang it because that is the arrangement. The arrangement has been a boy and a carpenter since the ninth of Hearthmonth and it was a boy and a ferrywright before that, and a Monday is the day the far end of that line keeps, and today is a Friday, and nothing was struck four hundred miles off on a coping on a river this county does not have, and the two of those facts are in a day-book separately and are not in one sentence, because a book is a place where things get joined whether they were joined or not.
 
@@ -72,25 +72,25 @@ It is a dressed stone about four feet long and it is the only dressed stone in t
 
 He looked at it for a while. Every bridge he has ever worked on or stood on has a bell on it, and a bell is a thing you can hear from four hundred yards, and there is no bell in this valley, and he has been here about six minutes.
 
-The girl said, "You are not from the Burn."
+The girl said, “You are not from the Burn.”
 
-"No."
+“No.”
 
-"You are from the far side of everything," she said, "because there is nothing on the Burn that would let a person come in the way you came in, and I have been at that gate since first light and there has been nobody on the road all winter and there is not going to be anybody on the road, and that is not a thing I have to be told, it is a thing I am saying out loud because you are standing in our gate and I am nine and I have got a barrow to get out at the ford."
+“You are from the far side of everything,” she said, “because there is nothing on the Burn that would let a person come in the way you came in, and I have been at that gate since first light and there has been nobody on the road all winter and there is not going to be anybody on the road, and that is not a thing I have to be told, it is a thing I am saying out loud because you are standing in our gate and I am nine and I have got a barrow to get out at the ford.”
 
 That is a better answer than he expected to get in his first six minutes in a place he cannot get out of in an afternoon, and he has not told her anything, and she has told him the valley's position in nine words and a sentence.
 
 He wanted to ask her what the lintel was and why there was nothing on it, and he did not, and there are going to be a great many more of those in this valley, and the two that cost anybody anything both happen in doorways, and neither of them happens to him first.
 
-He said, "What is your name."
+He said, “What is your name.”
 
-"What is yours," she said.
+“What is yours,” she said.
 
 So he said his.
 
 She thought about it for about as long as a person thinks about a thing like that.
 
-"You can have the name of the house," she said. "The house is the Low Holm and that is a place and you can write it down and it will not be me. And I am not going to be the one who says whether you are somebody, because I have not seen you before and nobody in this valley was sent for anybody, and if somebody in the market says they were sent for you I would tell them to go and ask the woman over the byre, and she would say the same as what I am saying."
+“You can have the name of the house,” she said. “The house is the Low Holm and that is a place and you can write it down and it will not be me. And I am not going to be the one who says whether you are somebody, because I have not seen you before and nobody in this valley was sent for anybody, and if somebody in the market says they were sent for you I would tell them to go and ask the woman over the byre, and she would say the same as what I am saying.”
 
 Then she lifted the bar and went through, and he went through after her because the gate was up, and a man who stands outside a gate somebody has opened for him is a man who has been told where he is, and she had not told him anything, and the gate was only open.
 
@@ -98,9 +98,9 @@ The yard is about half the size of the yard on Weir Street. It is clean. There i
 
 Under the stair of the stone room there was a woman of about forty with a yoke on her shoulders going out to the byre, and she put the yoke down in the middle of the yard, which is a thing a woman does with a yoke when she has decided to stop for a moment, and she looked at him for about as long as it takes to look at a wet man with a stick.
 
-"You are wet through," she said, "and you have come a long way on that leg, and there is bread and there is a fire, and you will sleep in the room over the stair because there is nowhere else, and because that room is the room and not a room for a stranger, there is one room and it is not a room for anything.
+“You are wet through,” she said, “and you have come a long way on that leg, and there is bread and there is a fire, and you will sleep in the room over the stair because there is nowhere else, and because that room is the room and not a room for a stranger, there is one room and it is not a room for anything.
 
-"And I am not going to ask you anything and you are not going to tell me anything, and if you want to tell me anything you will tell me at the fire and not on the bank, because on the bank a thing is said to the river and at the fire a thing is said to a person, and we have not got the habit of saying things to the river in this valley and I would like it kept that way for a stranger for about a week."
+“And I am not going to ask you anything and you are not going to tell me anything, and if you want to tell me anything you will tell me at the fire and not on the bank, because on the bank a thing is said to the river and at the fire a thing is said to a person, and we have not got the habit of saying things to the river in this valley and I would like it kept that way for a stranger for about a week.”
 
 Then she picked the yoke up and went to the byre.
 

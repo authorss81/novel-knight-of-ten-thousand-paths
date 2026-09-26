@@ -6,7 +6,7 @@ There is no seal. There is no number. There is no returnable date and no signatu
 
 **Two thousand six hundred and forty.**
 
-That is the reply. It is a figure, and it is the office's figure, and it is a bigger figure than the one asked for, and the paper asked for no figure at all, and the answer to a return that put nothing in a ruled line has been a number.
+That is the reply. It is a figure, and it is the office's figure, and it is bigger than anything this county has ever put on a line, and the paper asked for no figure at all, and the answer to a return that put nothing in a ruled line has been a number.
 
 Nobody in that room could check it and that is the first thing about it.
 
@@ -20,9 +20,9 @@ She put it in the press on the day it came, with the hour, and against no person
 
 *Entered, on the sixth of Goatmonth, YR 313, second hour, against no person: that a figure has been returned against a return in which this office put nothing, and that the figure is dated and is in a hand and there is no name in it and no seal and no number, and that the figure is therefore not an instrument and is not returnable and can be neither enforced nor refused, and that it is the only answer that office has ever given to a question it did not like the form of. And that the figure is larger than the number of persons this district has, or is not, and that this office cannot tell, and that the reason it cannot tell is that this district has never been counted, and that a district cannot be counted without a hand that is a Crown's, and that no name has been written in a Crown's hand in this county since the twenty-seventh of Fallowmonth, and that there is still not one, and that the second time in two volumes that this case has come up against a figure in a return it has come up against one with no name in it and that this is the first time the figure has been the answer and not the question.*
 
-A man at the back of the room said, quietly, that two thousand six hundred and forty was more than the district and anybody could see that by looking at the river.
+A man at the back of the room said, quietly, that two thousand six hundred and forty was more than the district and anybody could see that by looking at the river, and the keeper of records said that this district is nine thousand and has been nine thousand for longer than this office has had a door on a lane, and the man said that he had not said it was a count of people, and she said that he had said it as though it were, and that was the whole of the difference and there was no other difference in it.
 
-“Then it is a number of entries and not a number of people,” said the keeper of records, “and that is worse, and I would like everybody who has ever said that a big figure must be a lie to hear that sentence in a room over a weigh-house, and I have said it out loud on purpose so that it is in the record, and no name in it.”
+“Then it is a number of entries and not a number of people,” said the keeper of records, “and it is under this district and over nobody, and a figure under a head count and a figure over one are the same figure, because neither of them is a count, and that is worse, and I would like everybody who has ever said that a big figure must be a lie to hear that sentence in a room over a weigh-house, and I have said it out loud on purpose so that it is in the record, and no name in it.”
 
 ---
 
@@ -60,11 +60,11 @@ That last sentence is the fourth thing in a coat. He has four things in a coat a
 
 He gave her the numbers before she asked. That is what he does, and he has done it four times, and she has never once told him to and has never once been able to stop listening.
 
-“The eighth of this month, at the fourth hour, on a line made up in nine minutes with the hour against each of the nine. A county four hundred miles off that is in nobody's book in this one, and a man of fifty-eight in it who keeps a book and has wanted it read for six years, and two readings, and one of the two lasted a night. A valley with a river in it and a roll nine generations deep and no writ and no bell and no office, and about two hundred people on the roll from birth, and I have none of that out of my own observation and every bit of it out of a letter read aloud in this room on Tuesday and entered in that room's day-book with the hour against it.
+“The eighth of this month, at the fourth hour, and a line made up in nine minutes on the fourth with the hour against each of the nine. A county four hundred miles off that is in nobody's book in this one, and a man of fifty-eight in it who keeps a book and has wanted it read for six years, and two readings, and one of the two lasted a night. A valley with a river in it and a roll nine generations deep and no writ and no bell and no office, and about two hundred people on the roll from birth, and I have none of that out of my own observation and every bit of it out of a letter read aloud in this room on the fourth and entered in that room's day-book with the hour against it.
 
 “The printed figure is three weeks. It has been three weeks in an office's hand for two years and it has not moved and the office cannot say whose it is and neither can I. I am not going to tell you what the number of days is going to be, because I do not know it, and I have written on the near side before that I would not improve on a sentence by being right about it twice.
 
-“The leg is the leg. It is a stick for four hundred yards of road, and I have not got to any of them since Tuesday, and I will not have this leg put in this book, and a figure would be yours to keep and it is not a fact about a person.”
+“The leg is the leg. It is a stick for four hundred yards of road, and I have not got to any of them since the fourth, and I will not have this leg put in this book, and a figure would be yours to keep and it is not a fact about a person.”
 
 Then he stopped, and the stopping was in the order it happened, and she wrote the figures down and read them back, and there was one thing missing out of it and neither of them said so.
 

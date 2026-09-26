@@ -1,6 +1,6 @@
 # Chapter 0160
 
-The ninth week of a winter in its ninth generation begins on a morning when the Beck comes up, which the man of eighty-one said would happen in the fourth week and which happened in the ninth, and the whole valley treated that as the man being wrong and nothing else, and he is eighty-one and has been wrong about the water before.
+The ninth week of a winter in its ninth generation is the week the Beck comes up in, and it is up over the stones this morning, and the man of eighty-one said the water would come up in the fourth week and it came up in the fourth week, and he is eighty-one and has been wrong about the water before, and the whole valley made its own arrangements about that man and water a long time ago and has not had to make one since.
 
 Aren Kest went out at first light because he has gone out at first light every morning since he came and because a leg is better at the top of a morning than at the bottom of one, and he went as far as the ford and back, which is about two miles, and the ice on the edges of the Burn was thin and grey and there was water under it doing four feet a second.
 
@@ -30,11 +30,11 @@ It came out the way a word comes out of a person who has been saying it all her 
 
 “I am not a carrier,” said Aren Kest.
 
-He said it before he knew what the word meant. That is on the page and it was said in about a second and a half and it was the first thing he had said in six weeks that he had not thought about first, and he heard himself say it and could not have said afterwards what he had heard.
+He said it before he knew what the word meant. That is on the page and it was said in about a second and a half and it was the first thing he had said in forty days that he had not thought about first, and he heard himself say it and could not have said afterwards what he had heard.
 
 The woman looked at him.
 
-“Right,” she said. “Then I will not say it again and I will not call you that. And I am not going to ask you what you are, because you are somebody who has come a long way on a bad leg and has not asked me a single question in six weeks, which is more than the last four men off this road managed between them, and a man who does not ask is either polite or frightened and I do not need to know which to shut my gate.”
+“Right,” she said. “Then I will not say it again and I will not call you that. And I am not going to ask you what you are, because you are somebody who has come a long way on a bad leg and has not asked me a single question in forty days, which is more than the last four men off this road managed between them, and a man who does not ask is either polite or frightened and I do not need to know which to shut my gate.”
 
 She went in. The door was not shut behind her. It is never shut behind a man who is going past in a valley that has not had a man off the road since before the oldest living person was born.
 
@@ -42,7 +42,7 @@ He stood at the gate for about a minute with the stick in his hand and did not a
 
 That is the thing on the page and it is a small thing and it is not going to be small by the end of the day, and the reason it is not going to be small is that a man who has a word used about him and does not ask what it means has done the same thing as every family in this valley has done to about two hundred people, except that he has done it in a day rather than in a generation, and he did it with a word he had never heard, and nobody asked him a single question and nobody entered anything and nothing at all has happened yet.
 
-**He did not know what it meant. He had heard it eleven times in nine weeks, in a doorway, in an argument about a gate, and every other time it had been about a person and not about him, and the not-asking is not a thing he decided. It is a thing he did, and then, about a quarter of an hour later, he noticed that he had done it, and noticing it afterwards is not the same as not having done it, and that is what he has learned about this valley in nine weeks. It has cost him nothing. It has cost him a day.**
+**He did not know what it meant. He had heard it eleven times in forty days, in a doorway, in an argument about a gate, and every other time it had been about a person and not about him, and the not-asking is not a thing he decided. It is a thing he did, and then, about a quarter of an hour later, he noticed that he had done it, and noticing it afterwards is not the same as not having done it, and that is what he has learned about this valley in forty days. It has cost him nothing. It has cost him a day.**
 
 **And by the sixth hour of that morning the word had become a name for him, and no form in this valley has a column for it.**
 

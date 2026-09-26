@@ -10,19 +10,19 @@ He wrote it standing at the window with the bag open on the sill, and he wrote i
 
 *And I have a number and no frame, which has not happened to me before. In the county with a stone in a field I could not convert a rolling into a day. Here there is nothing to convert out of. A man who cannot count the days he is gone cannot tell anybody afterwards how long he was, and that is not a thing a warning can be beaten with.*
 
-**And on the fourth morning he tried to convert, and the second time in this case that anybody has tried, and he refused it in his own notebook, and the refusal is all of it.**
+**And on the fourth morning he tried to convert, and the third time in this case that anybody has tried, and he refused it in his own notebook, and the refusal is all of it.**
 
 He is a man who counts things. He has counted load points under a structure every working morning for a year, and it is a habit and not a working, and there is no book in the county he came from that it goes in. He cannot help it. A place arrives and he counts what is in it, and a place that keeps its count in winters and generations has given him a number he cannot use, and he tried anyway.
 
 *Nine winters. A generation is a winter. So there have been nine generations and we are in the ninth and the tenth is arguing. Ninety-one years if a year is ten, and it is not ten here, it is whatever it is, and if I had to guess I would guess about nine years to a winter and there is no authority in this valley that I could ask, and a guess is not a frame.*
 
-*Three weeks since the gate. The woman at the Low Holm says it is the ninth week of the cold and I have counted ten sleeps. Ten sleeps is not a day in any calendar I have and I am not going to make it one. I have tried this twice before in this case, once in a county that keeps its year in rollings of four weeks, and both times the answer came out as a number with no meaning and I threw the paper away both times, and here I am on a third and I am not going to do the arithmetic at all this time, I am going to write the number of sleeps and the number of weeks and leave it.*
+*Three weeks and two sleeps since the gate. The woman at the Low Holm says it is the ninth week of the cold, and the ninth week of the cold is the ninth week of this valley's winter and has nothing to do with me, and I can get no nearer it than three weeks and two sleeps, and three weeks and two sleeps is not a day in any calendar I have and I am not going to make it one. I have tried this twice before in this case, once in a county that keeps its year in rollings of four weeks, and both times the answer came out as a number with no meaning and I threw the paper away both times, and here I am on a third and I am not going to do the arithmetic at all this time, I am going to write the number of sleeps and the number of weeks and leave it.*
 
 He put the pencil down about nine inches above the page and came back to it about a quarter of an hour later and read the first line of it again and did not write the conversion.
 
-*Two sleeps short. Nine weeks and two sleeps since the gate, and the valley's own count is that the ninth week of the cold began on a morning it names in a way I do not use, and both of those are on this page, and neither of them is in any calendar I came with, and I am going to leave it exactly like that.*
+*Two counts and no frame. Three weeks and two sleeps, which are mine, and the ninth week of the cold, which is the valley's and began on a morning it names in a way I do not use, and neither of them is in any calendar I came with, and I am going to leave it exactly like that.*
 
-That is the second time in two volumes that a figure has been refused in a book because there was no frame to put it in, and the first time it was refused on paper and the paper was thrown away, and nobody in that county knows to this day that it was tried, and nobody in this valley is going to know inside a generation either, and the reason it is in this book at all is that a notebook is a thing a man reads at the fourth hour of a morning he does not remember.
+That is the third time in two volumes that a man has tried to put a figure into a frame and got a number with no meaning out of it, and the two before this one were on paper and the paper was thrown away both times, and nobody in that county knows to this day that it was tried, and nobody in this valley is going to know inside a generation either, and the reason it is in this book at all is that a notebook is a thing a man reads at the fourth hour of a morning he does not remember.
 
 ---
 
