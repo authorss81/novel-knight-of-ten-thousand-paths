@@ -38,7 +38,7 @@ And about two people in that lane have worked out since that a woman of twenty-n
 
 ---
 
-**A woman of about thirty went up that lane in the fourth hour with a pail in her hand and put one thing in front of each of those nine doors, and at all nine of them she was gone before the noise of the knuckle had finished in the frame, and what she put in front of them that day was a man who went into the water at the third span on the Friday.**
+**A woman of about thirty went up that lane in the fourth hour with a pail in her hand and put one thing in front of each of those nine doors, and at all nine of them she was off down the lane again before the last of the knocking had died in the frame, and what she put in front of them that day was a man who went into the water at the third span on the Friday.**
 
 “**He went in on the Friday,**” she said, at the first door.
 
