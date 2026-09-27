@@ -26,7 +26,7 @@ A carter of thirty with a barrow and a waggon of his own came up the lane at abo
 
 A man of about nineteen came down the lane carrying a hod and carrying it badly and was told to hold another man's hod and held it for about an hour and did not know why and did not ask. He is going to be a foreman before he is thirty and everybody in that yard knows it and nobody is going to say it to him.
 
-He has an elder sister of twenty-two in a house two streets off and has not said one word about her to anybody in that lane in about a year, and a yard is a place where men who are related to each other stand nine feet apart and do not say so, and a yard that carries nine men and about four families in it has never once had a conversation about a family in it.
+He has an elder sister of twenty-two in a house two streets off and has not said one word about her to anybody in that lane in about a year, and there is no room in this county where a man can stand beside a relation for the length of a working day and neither of them has to say one word about it, and nobody in that yard has ever worked out why that is so and nobody there is going to ask.
 
 “**You have got the left end wrong,**” he said to the boy of fifteen, about an hour into the hour he was holding the other hod.
 
@@ -54,7 +54,7 @@ And the yard on Weir Street had nine men in it on that Saturday and a bench-boar
 
 The yard's rule is that nothing that belongs to a man goes in that yard's book and only a thing set. The owner of it is twenty-five and he was in the yard that morning and he did not say one word about the press and about four of the nine men noticed that and about four did not.
 
-A man of about sixty was packing lime at the end of the yard in the open, because wet lime is packed and dry lime is dusted, and he has packed lime at that end of that yard for about nine years, and he is not on the yard's book. The man who packs the lime is the only man in that yard who is not paid out of it and nobody in this county has ever worked out why.
+A man of about sixty was packing lime at the end of the yard in the open, and he has been at that end of that yard for about nine years and is not on the yard's book, and about four of the nine men in that yard have worked out that the lime he packs is not the lime that yard bought and about four have not, and nobody in that yard has ever asked him where it comes from and he has never said.
 
 He came in out of the weather at about the fifth hour with a lid on the heap and stood at the wall with his back to about nine men.
 

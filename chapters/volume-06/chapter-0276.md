@@ -2,7 +2,7 @@
 
 **The twelfth day of Longlight, YR 316, a Saturday, and a market day, and the fourth hour, and a crossing four hundred yards up a fen county's own road that carries nobody and carried nobody for four years before anything happened to it and carries nobody now, and about four hundred people in a town of about four thousand people on a river who do not know that the forty yards of tarred hemp that were in a dressed block in the abutment of that crossing are not in it, and that nobody in that county has looked, and that nobody is going to, and that the man who put them in there did it himself about a year ago and has not been near the place since.**
 
-That is not a refusal and it is not a shape. A thing done at the second hour of a Tuesday eight days after a promise was said out loud in a field four miles away can be set down in about nine words, and every one of the nine would be a lie, and so it is not set down, and the fourth day after it is the first day anybody in that county knows anything about it, and the reason that county knows anything at all is that the weather took a sheet out of a sill and not that anybody said so.
+That is not a refusal and it is not a shape. A thing done at the second hour of a Tuesday seven days after a promise was said out loud in a field four miles away can be set down in about nine words, and every one of the nine would be a lie, and so it is not set down, and the fourth day after it is the first day anybody in that county knows anything about it, and the reason that county knows anything at all is that the weather took a sheet out of a sill and not that anybody said so.
 
 What the weather did was take the sheet out of the sill.
 
@@ -44,7 +44,7 @@ That is the whole of what any person in that lane knows about the morning of the
 
 ---
 
-A man of fifty-five sat in a hut at a barrier of three bars three hundred yards down that road and has been in that hut nineteen years, and on that Saturday he turned round about four hundred times and let them all by and he did not see a cart and he did not see a barrow and he did not see a man with a stick, and he has never once been told what is four hundred yards up the road from him and is not going to be.
+A man of fifty-five sat in a hut at a barrier of three bars three hundred yards down that road and has been in that hut nineteen years, and on that Saturday he turned round about nine times and let them all by and he did not see a cart and he did not see a barrow and he did not see a man with a stick, and he has never once been told what is four hundred yards up the road from him and is not going to be.
 
 “**Somebody went up there on Tuesday,**” he said, to a carter of thirty who was passing.
 
@@ -64,6 +64,6 @@ He said them standing up with the wind behind him and he did not write them down
 
 And on the third day of that illness he could not get out of bed, and on the fifth day a man of about thirty came up the stairs of a room over a smithy with a pail of something and put it on the table and went out again without asking him a question, and nobody had sent him and he said so at the door, and a man of thirty-two with a limp did not ask him his name and has not since.
 
-The fever is a week and it is the second one in about two months and it is the same fever and it is not worse. A county that has a bench and a market and about forty men on a reach four hundred yards down a lane does not stop in a week of weather, and the fourth bay is finished, and the salt went over the first bay for the tenth week running, and a man of fifty and a half who does the arches and does the pointing and does not do the laying went up a ladder and came down it again, and a boy of fifteen was at a bench-board with a bill under his arm and no bill on the board.
+The fever runs about nine days and it is the second one in about two months and it is the same fever and it is not worse. A county that has a bench and a market and about forty men on a reach four hundred yards down a lane does not stop in a week of weather, and the fourth bay is finished, and the salt went over the first bay for the tenth week running, and a man of fifty and a half who does the arches and does the pointing and does not do the laying went up a ladder and came down it again, and a boy of fifteen was at a bench-board with a bill under his arm and no bill on the board.
 
 Nobody in that yard was told that the man who used to stand at it for about an hour and a half every market morning was ill, and nobody in that yard asked, and a yard is a place where a man can be away for nine days and about four men notice and about four do not, and about four hundred people in a town of about four thousand people on a river do not know that a man of thirty-two with a limp has not been out of a room over a smithy since the twelfth day of Longlight, and that the only reason anybody in this county knows anything about the fourth of that month is that the weather took a sheet out of a sill.

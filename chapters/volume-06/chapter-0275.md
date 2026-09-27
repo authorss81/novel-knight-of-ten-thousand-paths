@@ -40,7 +40,7 @@ The man of forty-seven has said the same four things five times in a year, to a 
 
 ---
 
-A man of fifty-five sat in a hut at a barrier of three bars three hundred yards down that road, and he has been in that hut nineteen years and has turned round about four hundred people and let about nine thousand through, and the four words he gives at that barrier are the same four words three hundred yards from any two of them, and nobody in that county has ever worked out where a set of four words comes from.
+A man of fifty-five sat in a hut at a barrier of three bars three hundred yards down that road, and he has been in that hut nineteen years and has turned round about four hundred people and let about four thousand through, and the four words he gives at that barrier are the same four words three hundred yards from any two of them, and nobody in that county has ever worked out where a set of four words comes from.
 
 “**Is somebody after the toll,**” he said.
 

@@ -10,7 +10,7 @@ And the line that went in at about the second hour and a quarter on that Saturda
 
 The man of forty-four read the place in about four seconds and did not read the word out, because the word is in the column and the columns are read by their heads and the head of that column is *Object*.
 
-The other four places against that line are blank, and one of the four is ruled for a figure and one is ruled for a date, and the sixth column has no head on it and is the same width as the fifth, and about four of the six columns on that sheet are ruled for a figure and there is nowhere on the whole of it for the name of a person.
+Against that line there are six columns and four of them are blank, and one of the four is ruled for a figure and one for a date, and the sixth column has no head on it and is the same width as the fifth, and about four of the six columns on that sheet are ruled for a figure, and there is nowhere on the whole of it for the name of a person.
 
 The man of forty-four had not been asked what is in the four places. Nobody in that chamber has ever asked him, and he has never asked, and about four people in that building noticed afterwards, on four different days, in four different rooms, and did not know the other three had noticed and are not going to be told.
 
@@ -36,11 +36,9 @@ The man with the satchel came through that passage at about the third hour and d
 
 The name in the fourth column was read out because a name in a column is read out when the column is read, and it was the name of a woman of thirty-three who is an aid to the register on the first floor of that building and is not a member of anything and has never been, and who has filled that column about two hundred times in a season for eleven years and has been afraid of it since she was twenty-two.
 
-Two floors down and a floor down, at about the first hour, which is before any of it, she had filled in two of them from a roll in about a minute and a quarter each without looking up, the way she does the four hundred, which is to say she read the first two columns and wrote the fourth with no pause anywhere in the third.
+Two floors down, at about the first hour, which is before any of it, she had filled in two of them from a roll in about a minute and a quarter each without looking up, the way she does the four hundred, which is to say she read the first two columns and wrote the fourth with no pause anywhere in the third.
 
 Nobody in that building went up or went down on that Saturday, and a leaf on the second shelf of a case behind her is face down and has been since the sixth of a month in a year before last and has nineteen words on it in her own hand, and she did not turn it over, and nobody has asked her to, and she has not come up two floors and she is not going to.
-
----
 
 ---
 
@@ -70,6 +68,6 @@ And the whole of what it cost that county to be put in a schedule it did not kno
 
 A sheet of the office's own printed series for one classification, a penny. A second sheet of the same series for the person the matter is entered against, a penny. A clerk's fee for entering one classification, fourpence. A carrier's hand for two hundred miles, and there is no rate for two hundred miles printed in this county and the man who carries bags here has never been asked what a thing like that costs and would not be asked. A stone off a bank four hundred yards down a lane, and there is no rate for a stone in this county and there is not going to be one.
 
-*A penny and a penny is twopence. Twopence and fourpence is sixpence.*
+*A penny and a penny is twopence. Fourpence on top of that is sixpence.*
 
 **Total: six pence. And that is the whole of what it cost two hundred miles of road to put a name in a column about a crossing that has carried nobody for four years and has not been asked about anything in that time, and about four hundred people in a town of about four thousand people on a river do not know that a sheet is in the sill, and the man of thirty-two with a limp is in that town and does not know it either, and he is not going to be told, and it is going to be in a sill until the weather takes it.**

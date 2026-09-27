@@ -2,11 +2,11 @@
 
 **The twenty-seventh day of Longlight, YR 316, a Sunday, and not a market day, and the second hour and the fifth hour, and a crossing four hundred yards up a fen county's own road and a barrier of three bars three hundred yards down it and a yard on a street four hundred yards from a wharf, and about four hundred people in a town of about four thousand people on a river who do not know that a man of thirty-two with a limp said one claim out loud in a hut to a man of fifty-five on that Sunday morning, and that the claim was not against anybody and not for anybody, and that the verdict was not given and is not going to be given, and that a thing was refused at about the fifth hour of that Sunday that has been the price of a thing in this county for four years and a half and nobody in this county ever charged it.**
 
-The fever was over on the nineteenth and he had been up five days by the twenty-seventh and the leg was what it is and the stick was a stick, and he went up that lane on his own on a morning when there was nobody else on it and got to the toll house in about nine minutes and stood in it for a while.
+The fever was over on the seventeenth and he had been up ten days by the twenty-seventh and the leg was what it is and the stick was a stick, and he went up that lane on his own on a morning when there was nobody else on it and got to the toll house in about nine minutes and stood in it for a while.
 
 The toll house was open at the low end and nobody was in it. The sill is a foot and a half wide and it has nothing in it and no glass in it and no third seat, and the dressed block is in the abutment with the mortar round it, and the forty yards of tarred hemp that were in it are not in it and are four feet down somewhere in a hole in a bank that nobody has dug and nobody is going to dig.
 
-He did not go up the bank. He had not gone up the bank since the seventh day of the month and was not going to on that Sunday, and a man who has decided in advance that he cannot do a thing has got nine days of thinking out of it for nothing, and he has not told anybody that he cannot do it and has not been asked.
+He did not go up the bank. He had not gone up the bank since the seventh day of the month and was not going to on that Sunday, and a man who has decided in advance that he cannot do a thing has got twenty days of thinking out of it for nothing, and he has not told anybody that he cannot do it and has not been asked.
 
 A man of fifty-five sat in that hut on that Sunday and gave a man of thirty-two with a limp the same four words he gives everybody, and added nothing to them, and was not asked for a fifth thing, and is not going to be asked for one in this county by anybody.
 

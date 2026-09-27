@@ -80,7 +80,7 @@ Nobody in that field had a calendar. This is not a figure of speech and it is no
 
 The clerk had all four of them ruled into a column on the inside cover of the book under a line he had drawn himself, and he read the day off it in about two seconds without counting on his fingers, and about four people in that field looked at the column and none of them asked what the other three lines were for.
 
-**“The first of Longlight,” he said. “That is Tuesday and it is not a market day and there will be about nine of us here at the fourth hour and a man with a barrow, and I want the hour in the book and I want it in the book at the time and not afterwards, because a minute with the hour filled in afterwards is a thing somebody could have put in.”**
+**“The twenty-fourth of Greenmonth,” he said. “That is a Tuesday and it is not a market day, and the first of Longlight is a Tuesday and is not a market day either, and there will be about nine of us in this field on that day at the fourth hour and a man with a barrow, and I want the hour in the book and I want it in the book at the time and not afterwards, because a minute with the hour filled in afterwards is a thing somebody could have put in.”**
 
 **“You have been filling them in afterwards for nineteen years,” the magistrate said.**
 

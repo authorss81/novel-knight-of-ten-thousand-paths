@@ -1,6 +1,6 @@
 # Chapter 0277
 
-**The fourteenth day of Longlight, YR 316, a Monday, and not a market day, and the seventh hour to the second hour of the morning after, and a room over a smithy in a town of about four thousand people on a river with a table in it and three pieces of paper on it, and about four hundred people in that town who do not know that a man of thirty-two with a limp put three forms of the same printed series side by side on a table on that Monday and found that they were the same shape, and that one of them was a sheet he had read out of a sill, and that the finding is not a relief and is not a rescue and is the opposite of both, and that his mother is on the eleventh line of a list he has had in his head for about four months and has never had on a table.**
+**The fourteenth day of Longlight, YR 316, a Monday, and not a market day, and the seventh hour, and the second hour of the morning after, and the seventh hour of that morning, and a room over a smithy in a town of about four thousand people on a river with a table in it and three pieces of paper on it, and about four hundred people in that town who do not know that a man of thirty-two with a limp put three forms of the same printed series side by side on a table on that Monday and found that they were the same shape, and that one of them was a sheet he had read out of a sill, and that the finding is not a relief and is not a rescue and is the opposite of both, and that his mother is on the eleventh line of a list he has had in his head for about four months and has never had on a table.**
 
 The fever let him up on the fourth day and he went down the stairs in two stages and stopped on the landing both times, and a stick that is ash and four feet nine and cut out of a fence rail in a county that is not on any map is not a thing a man can lean on in a room, and he leaned on a table instead, and a table is deal and is not warm.
 
@@ -68,13 +68,13 @@ He squared the three forms together at about the fourth hour and stacked them wi
 
 ---
 
-The yard was at its best about the seventh hour on that Monday and there were about nine men in it and the owner of it was twenty-five and had come in from the wharf and had not said anything about the four sheets in a press in a room that belongs to the yard and cannot be served with anything.
+The yard was at its best about the seventh hour on the morning after and there were about nine men in it and the owner of it was twenty-five and had come in from the wharf and had not said anything about the four sheets in a press in a room that belongs to the yard and cannot be served with anything.
 
 “**You look as though you have been somewhere and come back,**” the man of twenty-five said.
 
 “**I have been upstairs and come down,**” the man of thirty-two with a limp said.
 
-**“You have been upstairs for four days and I have not asked you about it and I am not going to,” the man of twenty-five said, “and I would rather you did not tell me, because if you tell me then I know it, and then I am a man who knows a thing about a man in his own yard, and there is no way in this yard to be a man who knows a thing about a man in his own yard.”**
+**“You have been upstairs for three days and I have not asked you about it and I am not going to,” the man of twenty-five said, “and I would rather you did not tell me, because if you tell me then I know it, and then I am a man who knows a thing about a man in his own yard, and there is no way in this yard to be a man who knows a thing about a man in his own yard.”**
 
 He said it at a bench-board, standing up, with about four men within thirty feet of him, and about four hundred yards down a lane a door was open and has been open since the spring and nobody in that lane has said anything about it.
 
