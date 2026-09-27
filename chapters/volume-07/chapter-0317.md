@@ -20,7 +20,7 @@ Thirty-one, and six years of carrying that printed series to doors, and the numb
 
 **And what he gave her was a sheet of that office's own printed series with a place in the first column and nothing at all in the second, and the first column had not come back empty, and it was not empty with a word and it was not empty with a hand.**
 
-Six ruled spaces. Five heads, set in that office's own fount. Four of the six are ruled for a figure. The fifth is for a man and takes him by what he earns his bread by. The sixth is as wide as any of them and has nothing at all over it. **Take that sheet apart and there is no name of a person in it, at either end or in any line between.**
+Six ruled spaces. Five heads, set in that office's own fount. Four of the six are ruled for a figure. The third is for a man and takes him by what he earns his bread by. The sixth is as wide as any of them and has nothing at all over it. **Take that sheet apart and there is no name of a person in it, at either end or in any line between.**
 
 The first of the six is the column a place goes into, and a place is in it, and this county is the place, written the way that office writes one, which is a set of market towns, and it is the same set of market towns that this county has been entered under twice before on two other sheets of the same printing.
 

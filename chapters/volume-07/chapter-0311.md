@@ -16,7 +16,7 @@ The keeper of records is twenty-nine. She has held the office four years and a h
 
 There is no other series. About four hundred of that series go out of a building in a town about two hundred miles off into nine counties every month, and about four hundred of them come back in a month, and about four of the nine counties in it are counties this office has never had a letter from, and a thing written on anything else in this kingdom is a thing that stays where it is written. That is the whole of the reason and there is no other reason and she gave it out loud to nobody because there was nobody in the room.
 
-It carries six spaces, and five of them have a head standing over them in that office's own setting. Four of the six are for figures. The fifth is for the man who knows, given as his trade and not as his name. **There is no place on the whole of that sheet, in any of the six, in any line of them, at the top or the bottom, where the name of a person goes.**
+It carries six spaces, and five of them have a head standing over them in that office's own setting. About four of the six are for figures. The third is for the man who knows, given as his trade and not as his name. **There is no place on the whole of that sheet, in any of the six, in any line of them, at the top or the bottom, where the name of a person goes.**
 
 Number one is the object column and a place goes into it, and a place in that office is a set of market towns. Number two is for a figure and the word above number two is *Date*. Number three takes the person who knows by his trade. Number four says *Keeper*. Number five says *How often*, and that head is the office's own. Number six is as wide as any of the other five and nothing at all is set over it.
 
@@ -32,7 +32,7 @@ There is no column on that series that will take a day. The second column takes 
 
 “**It is a question with nowhere on it to put the day it was asked,**” she said, “**and the only column on the whole of that sheet that will take a day is the one that says *Date* over a figure, and about four hundred of them go out of a building two hundred miles off into nine counties a month and every one of them has a count of something in the second column, and the office that reads them has never once asked what any of the counts are a count of.**”
 
-And she put her own trade in the fifth column, because that is the only column on the whole of that printed series that will take a person at all, and it will take him by what he does and not by what he is called. She wrote *keeper of records* in it, and about four hundred people who would have been able to say whether that was a person or an office were not asked.
+And she put her own trade in the third column, because that is the only column on the whole of that printed series that will take a person at all, and it will take him by what he does and not by what he is called. She wrote *keeper of records* in it, and about four hundred people who would have been able to say whether that was a person or an office were not asked.
 
 **And the first mistake in it is in the first line of it, and it is the second column, and it went out of that room in the ordinary post in a bag with about four hundred others of the same thing in it, and nobody in that county was told that it had gone.**
 
@@ -40,7 +40,7 @@ And she put her own trade in the fifth column, because that is the only column o
 
 **And at about the third hour and a half the reeve came up that lane and put a tally on the table, and the reeve is the elder sister of the magistrate and does not vote on the guild's own matter and has not for nine years.**
 
-She comes up that lane twice a week about the year round and she had come up it about ninety times in nine years, and two people in that lane have worked out that a woman with a right to vote on almost everything in that county who has not voted on one thing in nine years is known at the market cross by a trade.
+She comes up that lane about once a month the year round and she had come up it about ninety times in nine years, and two people in that lane have worked out that a woman with a right to vote on almost everything in that county who has not voted on one thing in nine years is known at the market cross by a trade.
 
 “**What is that,**” she said.
 

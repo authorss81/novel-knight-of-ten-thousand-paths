@@ -1,10 +1,10 @@
 # Chapter 0314
 
-**The twenty-first day of Frostmonth, YR 316, a Saturday, and a market day, and the second hour and the fourth hour and the fifth hour, and a market day in a town of about four thousand people on a river, with a street four hundred yards long, about four hundred people in it, a reach four hundred yards down a lane off that street with about forty men on it, and a yard on a street four hundred yards up the county's own road with about nine men in it, and a hut at a barrier of three bars three hundred yards down that road, and a long room over a wharf at the north end of that market with its outside stair standing open and nobody on it, and nobody in that market knows that about nine people went up that outside stair on the Wednesday before last and looked at a thing under it and came down again.**
+**The twenty-first day of Frostmonth, YR 316, a Saturday, and a market day, and the second hour and the fourth hour and the fifth hour and the seventh hour, and a market day in a town of about four thousand people on a river, with a street four hundred yards long, about four hundred people in it, a reach four hundred yards down a lane off that street with about forty men on it, and a yard on a street four hundred yards up the county's own road with about nine men in it, and a hut at a barrier of three bars three hundred yards down that road, and a long room over a wharf at the north end of that market with its outside stair standing open and nobody on it, and nobody in that market knows that about nine people went up that outside stair on the Wednesday before last and looked at a thing under it and came down again.**
 
 It is on from the second hour and it is not finished till about the seventh, and in the middle of it a waggon of salt stood at the mouth of the channel road with nobody standing under the tailboard for the better part of an hour, and the salt on it belongs to a salt merchant in his own waggon and the guild has no part of it and no claim on any of it. One line went into the book of that road's up and down for the waggon, and there are nine lines in that book this year, and nobody in this town knows there are nine.
 
-**A long room over a wharf at the north end of that market stood open from the second hour, and a bench of nine sits in it on Saturdays and on nothing else in the week, and a bench of nine sits at about the seventh hour, and this day had not got to the seventh hour, and so nobody went up that stair.**
+**A long room over a wharf at the north end of that market stood open from the second hour, and a bench of nine sits in it on Saturdays and on nothing else in the week, and it sits at about the seventh hour, and up to about the fifth hour of that day nobody had gone up that stair, and the reason nobody had is that the last person up it had come on the Wednesday before last and had not come back since.**
 
 The last person up those steps was a man of thirty-two with a limp, on the Wednesday before last, and he climbed them by himself and stood on four bare feet of floor between the table and the wall for about as long as nine things take to count twice, and he did not go a step further. Under that room's window is a chest with two marks in it that have sat where they are since the ninth of a month in the year before last. Nine people have noticed that floor. Not one of the nine has ever asked anybody what it is there for.
 
@@ -26,7 +26,7 @@ Bay four of that reach was finished in a summer and its pointing ran into a thir
 
 “**I have been on the deck of it,**” the man with the limp said.
 
-“**It is the same thing to me and it is not the same thing to you and I have not worked out which of us is right,**” the man of fifty and a half said, and went on with the bar he is not using.
+“**It is the same thing to me and it is not the same thing to you and I have not worked out which of us is right,**” the man of fifty and a half said, and laid the bar down flat on the parapet and picked it up again without using it.
 
 He is fifty and a half and the arch work and the pointing are his trade and he has been spreading a second coat of finish over a first one for about a fortnight, and the laying of the timber is not his and nobody in that yard has put him in a position to ask him about it. Four people in this town have it worked out that a man paid to point a thing who does not point it has been told to leave off and has not been told that he is permitted to.
 
@@ -38,7 +38,7 @@ What he writes on the deck of a bridge in a town of about four thousand people i
 
 **Nobody in that town has ever noticed that the inside of that man's left hand is warm at about the fourth hour and has been for two years, and four people have watched him lay it flat on cold timber about forty mornings a month and have never once put a question to it, and the one person in this kingdom who would have felt it is two hundred miles off in a building that has stopped doing its ordinary work, sitting beside a stove that has not been lit since the weather turned, and nobody in that building has asked after a man with a warm hand and nobody is going to.**
 
-By the fifth hour he had shut the tally and was up the lane and standing in the street with the rest of them, four hundred strong in four hundred yards. The salt waggon outlasted the market by about an hour and then turned back down the channel road, and the man who keeps the account of what that road carries in both directions put down one more line, which makes nine in his book for the year, and this town does not know that a book exists.
+By the fifth hour he had shut the tally and was up the lane and standing in the street with the rest of them, four hundred strong in four hundred yards. The salt waggon outlasted the market by about an hour and then turned back down the channel road, and the man who keeps the account of what that road carries in both directions wrote nothing more that day, because a waggon that comes up a road and goes back down it is one line and not two, and that line is the ninth in his book for the year, and this town does not know that a book exists.
 
 ---
 

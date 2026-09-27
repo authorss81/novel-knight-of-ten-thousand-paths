@@ -16,7 +16,7 @@ The reach had about forty men on it and the road was open over it and the salt w
 
 **And at about the fourth hour the keeper of records took a sheet out of a press in a room with a door on a lane and read it, and the whole of what she did with it took about a minute and a half.**
 
-It is a sheet of that office's own printed series. Six spaces, five heads, the sixth the same width as the other five with nothing at the top of it, and the heads are that office's own, and four of the six are ruled for a figure and the fifth is for a person and it takes him by his trade and not by his name, and **there is no place on the whole of that sheet, in any column, in any line, at the head or the foot, where the name of a person goes.**
+It is a sheet of that office's own printed series. Six spaces, five heads, the sixth the same width as the other five with nothing at the top of it, and the heads are that office's own, and four of the six are ruled for a figure and the third is for a person and it takes him by his trade and not by his name, and **there is no place on the whole of that sheet, in any column, in any line, at the head or the foot, where the name of a person goes.**
 
 The first column has a place in it, written the way that office writes a place, which is a set of market towns, and the second column has a figure in it standing under a head that says *Date*.
 

@@ -1,14 +1,14 @@
 # Chapter 0316
 
-**The first day of Hearthmonth, YR 316, a Tuesday, and not a market day in a county with a market, and the second hour and the fifth hour and the eighth hour, and a room above a cross at the top of a lane, in a valley four hundred miles from any county that is on a map, where twenty-nine benches are bolted down in four rows with a number cut in the end of every one, and the number cut in the end of the last bench of the right-hand row at the back is a hundred and forty, and four feet of aisle between the two middle rows has not been stood in by three generations going, and about nine people are on those benches and about thirty are in the room and about two hundred of a generation that has never once come down off that hill are standing at the back, and four hundred people live in that valley and nine of them know that a book was copied in that room over four days.**
+**The first day of Hearthmonth, YR 316, a Tuesday, and not a market day in a county with a market, and the second hour and the fifth hour and the eighth hour, and the four days from that Tuesday to the Friday, and a room above a cross at the top of a lane, in a valley four hundred miles from any county that is on a map, where twenty-nine benches are bolted down in four rows with a number cut in the end of every one, and the number cut in the end of the last bench of the right-hand row at the back is a hundred and forty, and four feet of aisle between the two middle rows has not been stood in by three generations going, and about nine people are on those benches and about thirty are in the room and about two hundred of a generation that has never once come down off that hill are standing at the back, and four hundred people live in that valley and nine of them know that a book was copied in that room over four days.**
 
-The room over a cross is a room and not a bench, and the twenty-nine benches bolted down in four rows are the room, and a thing can be asked a second time in a room and cannot be asked a second time in a bench, and there is one bench in that room and it has been there since before the water came and nobody has ever sat in it for a vote.
+The room over a cross is a room and not a bench, and the twenty-nine benches bolted down in four rows are the room, and a thing can be asked a second time in a room and cannot be asked a second time in a bench, and the only one of those twenty-nine that anybody in that valley thinks of as a bench is the one at the back of the right-hand row with a hundred and forty cut in the end of it, and nobody in that valley has ever sat at that one for a vote.
 
 **And about nine people in that valley have said since that the only way anybody in this place can tell a room from a bench is to wait for a thing to be asked twice, and that a room which has never been asked anything twice is a bench that has not been noticed, and that about four hundred people have been coming up that lane for about a hundred and forty years and have not asked anything twice.**
 
 ---
 
-**And a man of thirty-four with sixteen men and no work had a trestle brought into the corner at the back of that room on the second morning and had been copying the winter book on it for four days, and Marek Ollen, who keeps the roll of who is in that valley, was in the room for about an hour on the second of the four days, and four of the thirty had come in to look at the copy, and two hundred at the back had not.**
+**And a man of thirty-four with sixteen men and no work had a trestle brought into the corner at the back of that room on the first morning and had been copying the winter book on it for four days, and Marek Ollen, who keeps the roll of who is in that valley, was in the room for about an hour on the second of the four days, and four of the thirty had come in to look at the copy, and two hundred at the back had not.**
 
 Forty leaves, tied with a piece of tarred hemp, and nine spreads, one to a generation. A man of fifty-eight keeps it, and his father's before him kept it, and his father's father's before that. Marek Ollen has kept that roll for nineteen years, is a different man from the keeper of the winter book, and has not been asked about the copy and is not going to be. There is a finding in it. Nobody in that room said anything about where the finding is or how many there are, and nobody asked, and the man of thirty-four did not copy the head of the first spread out loud to anybody and did not look at it while he was working, and the four days he spent on that book are four days out of which about four hundred people in that valley spent an afternoon in a room with a man making a copy of the only book any of them will ever be in twice.
 
@@ -32,7 +32,7 @@ The rule is that a book of nine spreads is the only record any of them has, and 
 
 **And a copy made by a man who does not keep the book is not a second book, because a second book is one a person has decided to make, and about two people in that valley have said since that the difference between a copy and a second book is that a second book is a decision and a copy is four days of a wet season, and that a man with sixteen men and no work does not make decisions in a wet season, he makes copies.**
 
-So the copy went into the press at the end of that room on the fifth morning, and the press has a door and a bar and no shelf anybody looks at, and the original is under the trestle against the wall where it has been for nineteen years, and the two of them are in the same room within about six feet of each other and there is no line in the room and no line in either of the two books that says which of them is the one that happened.
+So the copy went into the press at the end of that room on the fourth morning, and the press has a door and a bar and no shelf anybody looks at, and the original went back under the trestle against the wall on a board of its own, where it had lain for nineteen years before that trestle was carried in, and the two of them are in the same room within about six feet of each other and there is no line in the room and no line in either of the two books that says which of them is the one that happened.
 
 ---
 
@@ -42,7 +42,7 @@ She carries one in the ordinary way. It is a foot long with a string on it and a
 
 “**You will want a line at the foot of it,**” a man said, at about the fifth hour, to the man of thirty-four.
 
-“**There is no line at the foot of a book of nine spreads,**” the man of thirty-four said. “**That is the whole of what is wrong with it and I am not going to put one there in pencil in about four days' work and have it be a tenth thing in a room where there are nine things on the benches.**”
+“**There is no line at the foot of a book of nine spreads,**” the man of thirty-four said. “**That is the whole of what is wrong with it and I am not going to put one there in pencil in about four days' work and have it be a tenth thing in a room where the only other nine things are in a book about four feet from me.**”
 
 “**Then how will anybody know you made it.**”
 
@@ -52,7 +52,7 @@ She carries one in the ordinary way. It is a foot long with a string on it and a
 
 ---
 
-**The man of fifty-eight was in that room on the last of the four days for about half an hour and did not go to the trestle, and the copy was already shut into the press with the bar across it, and nine people in that room saw the bar go across and four of them worked out what was under it and the two hundred at the back did not.**
+**The man of fifty-eight was in that room on the last of the four days for about half an hour, and the bar was already across the press, and he did not go to the press and did not go to the trestle, and about four of the thirty worked out that there are two books in that room and that the one under the trestle is the one he has brought up that lane himself every year since he was seventeen, and the two hundred at the back did not.**
 
 Fifty-eight, and every day of his life has been spent in that valley. In about eleven years the ninth generation has come down off that hill to that room to the number of about two hundred, and he has spoken to nine of them, and when he asked two of the nine who they were they could not tell him, and he wrote down neither answer nor question.
 

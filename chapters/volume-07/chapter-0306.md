@@ -44,7 +44,7 @@ It is thirty-six words, and it is all he has said out loud in that yard in about
 
 It had come into the valley in the ordinary post about two months before, in a bundle of about nine things for the mill and the oven and the two ferries, and it had stood in the box at the low gate with a strip of paper round it since the day it came, and a strip of paper round a thing in a box is a thing that has not been opened by anybody, and every person in that valley had seen it every day for two months and about nine of them had picked it up and put it down again.
 
-It is a sheet of a printed series. It is ruled in six spaces and five of the six have a head over them, and the heads are the office's own, and about four of the six will take a figure and the fifth will take a person by trade and not by name, and **nowhere on the whole of the sheet, in any column, in any line, at the head or the foot, is there the name of a person.**
+It is a sheet of a printed series. It is ruled in six spaces and five of the six have a head over them, and the heads are the office's own, and about four of the six will take a figure and the third will take a person by trade and not by name, and **nowhere on the whole of the sheet, in any column, in any line, at the head or the foot, is there the name of a person.**
 
 The first column is the object column and it takes a place, and a place goes in it the way that office puts a place in, which is a set of market towns, and the second column takes a figure and the head over the second column says *Date*, and the third and the fourth and the fifth took whatever a person had and nobody in that valley had any of the four of them, and the sixth space is the same width as the other five and has nothing at the top of it.
 

@@ -26,7 +26,7 @@ And about four people in that lane have said since that a woman of twenty-nine a
 
 The weigh-house takes the tide up through its boards in a wet week, and that was a wet week, and the boards were damp on the inside and there was about an inch of water on the floor of the lower room that nobody had swept out because there was nowhere to sweep it to, and a scale under that room has not been used since the fourth of a month.
 
-**And the sheet says that a return is wanted, and it is a sheet of that office's own printed series, and it is ruled in six spaces with a head over five of the six, and the heads are that office's own, and four of the six will take a figure and the fifth will take a man by what he does and not by what he is called, and nowhere on the whole of it is there the name of a person.**
+**And the sheet says that a return is wanted, and it is a sheet of that office's own printed series, and it is ruled in six spaces with a head over five of the six, and the heads are that office's own, and four of the six will take a figure and the third will take a person by what they do and not by what they are called, and nowhere on the whole of it is there the name of a person.**
 
 **The first of the six is the object column and it has a set of market towns in it, written the way that office writes a place,** and the second column has a figure in it and the head over the second column says *Date*, and **that figure is the whole of what came up that lane, and there is nothing on the paper in that room that a reader could set it against, and there is nothing in the office two hundred miles off that sent it that could set it against either.**
 

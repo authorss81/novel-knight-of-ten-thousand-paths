@@ -4,7 +4,7 @@
 
 That building turns out something near four hundred of its forms every month, and they go into nine counties and four hundred and nine parish rolls, and on any one of them six spaces are ruled and a head stands over five of the six, and those heads are *Object*, *Date*, *Person having knowledge*, *Keeper* and *How often*, and the sixth is the same width as any of the other five, with nothing set over it at all.
 
-**About four of the six will take a figure and the fifth will take the man who knows, described by what he does and not by what he is called, and four hundred of them a month are read in this building at waist height under a window by light off the floor, and about nine hundred people in that town have never in their lives read one and are never going to.**
+**About four of the six will take a figure and the third will take the man who knows, described by what he does and not by what he is called, and four hundred of them a month are read in this building at waist height under a window by light off the floor, and about nine hundred people in that town have never in their lives read one and are never going to.**
 
 “**Nine of them again,**” a man said at the passage end.
 
