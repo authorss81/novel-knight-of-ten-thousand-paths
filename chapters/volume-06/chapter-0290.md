@@ -18,7 +18,7 @@ The sheet has a number of an office on the head of it and the seal of that offic
 
 ---
 
-**She read it once, and it took her about two minutes, and the second copyist of about thirty was in that room and had been in that room for four days, having come back down a made road in a cart on the second of a month with a bag of her own, and neither of them has said one word to anybody about the three weeks the other one of them was not in that room.**
+**She read it once, and it took her about two minutes, and the second copyist of about thirty was in that room and had been in that room for three days, having come back down a made road in a cart on the fourth of a month with a bag of her own, and neither of them has said one word to anybody about the three weeks and a day the other one of them was not in that room.**
 
 The sheet says four things and only four things, and they are in the ordinary way and they are on a printed series and there is a head on each of them.
 

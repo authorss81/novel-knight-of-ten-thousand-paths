@@ -20,7 +20,7 @@ The keeper of records is not in the room and was not sent for, and there is a li
 
 The oath is on the back of a return and a clerk of the Crown said it without any weight in it at all.
 
-“**You are sworn on the back of that. It is the same sheet the returns go out on. It is not the front.**”
+“**You are sworn on the back of that sheet, and it is a return going out on the Monday like any other, and what you say will be on the reverse of it and not on the front.**”
 
 “**Nobody minds,**” the woman of thirty-eight said.
 
@@ -64,7 +64,7 @@ She asked for it once, in nineteen sentences, standing, with the list on the wal
 
 ---
 
-A man of about fifty who has been a clerk of a press for thirty-one years and has entered about eleven thousand forms stood up when his name was called and was sworn on the back of a return and was not asked anything.
+A man of about fifty from the press on the ground floor stood up when his name was called and was sworn on the back of a return and was not asked anything.
 
 A man of about thirty-one with a satchel stood up when his name was called and was sworn on the back of a return and was not asked anything.
 

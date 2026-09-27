@@ -8,13 +8,13 @@ A building of four floors and seven presses is quieter on a Friday that is not a
 
 **A man of about fifty came up two flights at about the second hour and stood in that room for about four minutes and said nothing at all, and he had a sheet under his arm and he put it on the table and picked it up again and took it back down with him.**
 
-He has been a clerk of a press for thirty-one years and has entered about eleven thousand forms and has never once been asked what is in the four places, and he has not been thanked for anything at any time in about two years, and a man who comes up two flights and says nothing has come up to find out whether anybody in that room knows, and he went back down having found out that nobody in that room had said anything about his hand.
+About eleven thousand forms have gone through his hands in thirty-one years at that press and not one of those thirty-one years has anybody in this building asked him what is in the four places, and he has not been thanked for anything at any time in about two years, and a man who comes up two flights and says nothing has come up to find out whether anybody in that room knows, and he went back down having found out that nobody in that room had said anything about his hand.
 
 And he did not come up again, and the four minutes are the whole of it, and a man who has found out twice that nobody in a room is talking about him is a man who will not come up a third time, and that is the only kind of decision a man makes in that building that is not written down anywhere and is not in any column at all.
 
 ---
 
-The woman of thirty-three filled in two forms that morning and read them both back once and put them in a tray, and the fourth column of each of them is headed *Keeper*, and she filled that in from a roll in about a minute and a quarter each without looking up, and there was nobody in that room watching her do it and she did not check.
+She put two forms through on that Friday and the fourth column on each of them is headed *Keeper*, and it took her about a minute and a quarter to come to that column off a roll without looking up, and the four other people in that room did not look up either, and one of them has said since that he did not know which column she had been at, and that he had not been asked, and that both of those are the ordinary way.
 
 The woman of about twenty-nine who is a clerk of the returns turned a sheet about the second hour and did not say anything, and has wanted the sixth column ruled for six years and has not asked for it in a form, and Perry Hask, 34, wrote a figure in a second column in about a minute and a quarter and read it once and put it in a tray.
 
@@ -60,9 +60,9 @@ And at about the fourth hour she stood up and put the two forms she had filled i
 
 ---
 
-**And behind her there is a case with a shelf on it, and a book on the shelf with one leaf face down, and nineteen words on that leaf in her own hand, written on the sixth of a month in a year before last, and nobody in that room asked her about it and nobody in that room is going to.**
+**And behind her there is a case with a shelf on it, and a book on the shelf, and the leaf that is face down is still face down, and the nineteen words on it are still the nineteen words she wrote on the sixth of a month in a year before last, and she has looked at the edge of it about nine times in eleven years and has not put a finger under it, and a woman who came two hundred miles to a room she was not put in has not been in that room at all that day and has not been told about the shelf.**
 
-Four people in that building have said out loud that a person who turns a leaf over is a person who has made a decision about what comes next, and about four hundred forms a month go out of that building and not one of them has ever had a line in it for what a person is going to do next, and she was at a press on the second floor at about the fifth hour that Friday and heard nothing said about a column and said nothing back.
+And a leaf that is turned back down is a decision that has been made and then unmade, and there is no column in that building for a decision of that kind and there never has been one, and she was at a press on the second floor at about the fifth hour that Friday and heard nothing said about a column and said nothing back.
 
 ---
 

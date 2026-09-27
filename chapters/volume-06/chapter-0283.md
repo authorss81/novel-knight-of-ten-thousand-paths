@@ -40,7 +40,7 @@ He is a clerk of the returns and he has read about nine hundred forms a month in
 
 And he went down to the press room at about the fourth hour, and the press room is the smallest room on that floor and the warmest, and there is one window in it and the window is nine feet off a wall, and a man of about fifty was at the stone with a sheet under his hand and did not look up.
 
-He has been a clerk of a press for thirty-one years and has entered about eleven thousand forms and has never once been asked what is in the four places, and about four hundred forms a month go out of that building and about four of the six columns on them are ruled for a figure and about one of the six is a column a person can only be entered into and not refuse, and there is no line on any of them for a person to refuse on.
+Thirty-one years at that press and about eleven thousand forms entered on it, and not one of those thirty-one years has anybody in this building asked him what is in the four places, and about four hundred forms a month go out of that building and about four of the six columns on them are ruled for a figure and about one of the six is a column a person can only be entered into and not refuse, and there is no line on any of them for a person to refuse on.
 
 He put his hand flat on the stone for about a second, which is a thing he has done twice in about two years and has not been asked about either time, and then he picked up a sheet.
 
@@ -66,7 +66,7 @@ And that is the whole of what Perry Hask said in that room about a thing he want
 
 A room that has been free on a day for four consecutive years is a room nobody has wanted, and nobody in that building has ever asked the question in the other direction, and there is no column on a booking board for a reason.
 
-The card of a different colour is for a chamber on the third floor with a table of three in it and a witness list and a form of oath and a clerk of the Crown, and the woman of thirty-eight has been in that building nine years and has written the finding at the end of nine of these, and every one of the nine is a figure of something and not one of the nine is a room, and the card of a different colour does not say any of that and a clerk of the Crown did not ask her any of it when she took it.
+The card of a different colour is for a chamber on the third floor with a table of three in it and a witness list and a form of oath and a clerk of the Crown, and the woman of thirty-eight has been in that building nine years and has written a finding at the end of nine of these, and what she has at the end of every one of the nine is a figure, because a figure is what that office has a line for, and a room is not a figure and cannot be got onto the line she has for it, and the card of a different colour does not say any of that and a clerk of the Crown did not ask her any of it when she took it.
 
 ---
 

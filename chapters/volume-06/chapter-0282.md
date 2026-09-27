@@ -62,7 +62,7 @@ A satchel of that office's own printed series goes back down the lane and down t
 
 ---
 
-Nobody walked any part of that Saturday with him. The man with the satchel went up the lane alone and came down it alone and about four hundred people in that market did not notice a man going either way.
+The man with the satchel went up that lane alone and came down it alone, and about four hundred people in that market did not notice a man going either way, and nobody has ever asked him what he does up there and he has never said.
 
 ---
 
@@ -78,4 +78,4 @@ Nobody in that office has said why she is the one and not the woman of twenty-ni
 
 **And the second keeper of twenty-six is not going and the third post in that day-book is still not signed, and the woman of about thirty has wanted a line in that book with her own name on it since the summer before last and has said out loud that she is not going to get it, that she does not want it, and that those two are the same thing, and the two of them have never once raised either of those, and the day-book is the only book in that office that cannot be served with, and it stands at nine entries of a thing nobody asked and there is no tenth coming on that Saturday or the Monday.**
 
-Nobody walked any part of that Monday with her either. She went down that lane on her own at about the sixth hour to a cart and got into it and about four hundred people in a town of about four thousand people on a river did not see a woman go anywhere, and a bench of nine had sat for about an hour that morning and been asked nothing, and a clerk of about sixty had read a minute back once, and the tide came up under the wharf at about the tenth hour and went back at the third, and the salt was over the first bay, and a bell a hundred yards up a road went at the fourth hour and a half, and nine sheets that had gone out on a Monday came back to a building two hundred miles off with a county in one of them and nothing in that building to say how it got there.
+Nobody walked any part of that Saturday with her either. She was in that room over the weigh-house from the first hour to the ninth with a sheet in front of her and came out of it once, and about four hundred people in a market four hundred yards away did not see a woman go anywhere, and a bench of nine had sat for about an hour that morning over a wharf and been asked nothing, and a clerk of about sixty had read a minute back once, and the tide came up under the wharf at about the tenth hour and went back at the third, and the salt was over the first bay, and a bell a hundred yards up a road went at the fourth hour and a half, and on the Monday she went down that lane on her own at about the sixth hour to a cart and got into it, and by then a county was in a folder two hundred miles off with a district on it and nothing in that building to say how it got there.

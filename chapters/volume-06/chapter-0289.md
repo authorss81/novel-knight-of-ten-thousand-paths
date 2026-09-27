@@ -20,7 +20,7 @@ And about four people in that building have said since that a Crown officer who 
 
 And a sheet of that office's own printed series went out of that building with the minute on the back of it, and the minute has the term of the injunction in it, and the sheet went down two flights and out of the front door and into a bag, and a bag goes in the ordinary post, and about nine hundred copies of a form of that series go into nine counties in a year and this is not one of them and has not been counted with them.
 
-The clerk of the Crown made it up at about the fifth hour and read it back once, and only once, and a clerk who reads a minute back once is doing the correct operation, and there is no practice in that chamber of reading anything twice and there never has been.
+The clerk of the Crown made it up at about the fifth hour and read it back once, and nobody in that room asked for it again and it was not offered again, and about nine people in that building heard a minute read once and one of the nine was holding the pen and did not put it down afterwards.
 
 Nobody in that building put a courier in a bag and nobody thought of one, and the only thing anybody in a chamber can do with a thing that has stopped is put it in a bag, and a bag is ordinary, and a county two hundred miles off is a place a bag goes to whether anybody in the building sending it has ever been there or not.
 
@@ -28,9 +28,9 @@ Nobody in that building put a courier in a bag and nobody thought of one, and th
 
 **And two floors up there is a chamber with a long table in it that is not the table of three, and a record on the head of that table with a schedule of about two hundred and forty lines on the desk beside it, and the second hour came and went, and the third hour came and went, and nobody read anything into that record.**
 
-The head of that record is the same head it has carried since the eighth of a month in the year before, and it is the head that says a schedule is to be complete before a date, and the date on it went by a month ago.
+The head of that record is the same head it has carried since the eighth of a month in the year before, and it is the head that says a schedule is to be complete before a date, and the date on it is sixty days old.
 
-**And the first of Longlight was a month ago, and about nine people in that building have read that head about nine times in a month, and about four of them have worked out that the date on it has gone, and nobody has said so to anybody, and there is no column in that building for a head that is out of date, and a schedule that cannot be completed before a date that has been is not a schedule that is late. It is a schedule that has stopped.**
+**And the first of Longlight was sixty days before that Saturday, and about nine people in that building have read that head about nine times in two months, and about four of them have worked out that the date on it has gone, and nobody has said so to anybody, and there is no column in that building for a head that is out of date, and a schedule that cannot be completed before a date that has been is not a schedule that is late. It is a schedule that has stopped.**
 
 The clerk with the bad wrist was at the other end of that table with the good hand on the pen and about two hundred and thirty lines to go and nothing to copy, and he sharpened the pen and put it down and picked it up and sharpened it again, and a man who sharpens a pen twice in a morning has understood something about the morning and is not going to be the one to say it.
 
@@ -66,9 +66,9 @@ And that is the whole of what she said in that chamber about a column, and a Cro
 
 And a woman of about thirty went down two flights at about the fifth hour and out of the front door of that building with a bag of her own, and the office entered no third sitting and there is nothing to hold her for, and nobody in that building said that the reason she was able to go was that the thing that was being held was over.
 
-She came two hundred miles in a cart on the Friday of a month and got to a town of about nine hundred people at about the first hour and was put in a room at the end of a second-floor passage because the building had nowhere to put a person, and a warrant to produce named a room and a day and did not name a person, and she was in that town for about four weeks and she is going home in a cart and she has not written to anybody about any of it and nobody has written to her and nobody is going to.
+She came two hundred miles in a cart on the Friday of a month and got to a town of about nine hundred people at about the first hour and was put in a room at the end of a second-floor passage because the building had nowhere to put a person, and a warrant to produce named a room and a day and did not name a person, and she was in that town for twenty-two days and she is going home in a cart and she has not written to anybody about any of it and nobody has written to her and nobody is going to.
 
-**And a keeper of records two hundred miles off does not know that a woman has been in a building of hers for four weeks and is not going to be told, and a second keeper of twenty-six is in that county with a warrant for a third post in a day-book and it is still not signed, and the two women have never spoken about either of those and are not going to.**
+**And a keeper of records two hundred miles off does not know that a woman has been in a building of hers for twenty-two days and is not going to be told, and a second keeper of twenty-six is in that county with a warrant for a third post in a day-book and it is still not signed, and the two women have never spoken about either of those and are not going to.**
 
 ---
 
