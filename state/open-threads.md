@@ -1,5 +1,9 @@
 # Open Threads
 
+## How to read this file
+
+**An append-only ledger, one section per batch, roughly half a megabyte. It cannot be loaded whole and it is not truncated, because every one of these is a promise the next volume has to keep or a question a later batch has to answer.** **Read this guide, then the section for the batch you are writing after, then the one before it. For Volume 06 Batch 0003 the useful reading is this guide and the sections *Threads Volume 06 Batch 0002 carries into Batch 0003* and *Threads Volume 06 Batch 0001 carries into Batch 0002*.**
+
 ## Initial story threads
 
 1. **The cracked toll bell:** Why does the Bellweather anchor respond to Aren, and what does its first crossing cost him? The local mystery pays off in Volume 1 — a damaged anchor that still remembers refusing a severance writ, a permanent roadmark, the remembered pitch of one verse, nine lost days, and three days of fever. The bell's provenance and its two-pence purchase stay live for the whole series, because at Chapter 900 it is silent under his hand.
@@ -1096,3 +1100,13 @@ Written by the Volume 04 Batch 0005 phase, cross-referenced to continuity items 
 19. **A seventh look at the seventh line that says *a person* was not written. The sixth stands at `260` and `outline/volume-06.md` §4 still places that look in Block 5, and the four words he has had ready since a day he cannot count were not said in this block and are still ready.** Open, and it is still a live disagreement between the plan and the page, and Block 3 must not write a seventh look without recording the correction.
 
 **And the four things that do not get to be threads, because they are not threads and no batch may make them one: the ninety days a courier takes to cross a vale, the two-to-six-week testimony lag, the printed warning that has said three weeks in an office's hand for two years, and the number of persons the office would not print on an offer. All four are barred from this block's arithmetic, none was used, and the sheet dated the second of Greenmonth was dated by the office and not converted by anybody into a figure of days of waiting.**
+
+
+## Threads Volume 06 Batch 0002's review repair pass carries into Batch 0003
+
+1. **The block's own density verdict was reversed, and the reversal is binding on the next block.** Continuity item 705 records that a volume in which a narrator formula has replaced the scenes is a defect, and continuity item 706 records the principle used to repair it. **A Batch 0003 writer inherits a named ceiling, not a target: the formula *about four people in that building have said since that* is a narrator assertion and is not a substitute for a scene.** Where a fact is observable, write the observation. Where it is not, keep the sentence and shorten it.
+2. **Two passages in this block may not be cited by line number.** The four lines of the winter book are in `chapters/volume-06/chapter-0266.md` and the unattributed two-line statement is in `chapters/volume-06/chapter-0265.md`. **A Batch 0003 writer who needs either must find it by its text.** This is a live trap, not a formality: item 697's own pointer was stale before the repair and the repair moved the lines again.
+3. **The sweep basis the project has been using is the wrong shape and the wrong length.** Both the duplicate-paragraph sweep and the near-repeat sweep are paragraph-scoped and cannot see a defect that lives inside one paragraph or across two sentences in a chapter. **The eight-word shingle is also too loose against a house voice built on stock phrases.** Use a clause-level comparison of a named pair, or a materially longer shingle, and report which basis was used.
+4. **The four state ledgers now carry reading guides at their heads and are still append-only.** A Batch 0003 writer should use the guides and should not attempt to truncate them, and should keep its own state entry to a size a human can read.
+5. **The two outline defects are still unfixed and are not this block's to fix.** `outline/volume-06.md` calls day 191 a Friday in its Block 2 header where §17's own table says Wednesday, and §17 consequence 3 gives Block 3 five Saturdays where its own interval contains six. **The six Saturdays are on the face of the Batch 0003 prompt and that is what governs. An outline repair pass is owed before Block 4 and a Batch 0003 writer must not make one.**
+6. **The block's strongest line was already on the page and is now surrounded by scene rather than assertion.** The eighteen-word oath in `chapters/volume-06/chapter-0267.md` is the emotional peak of the volume. **It cannot be asked a second time, and Block 3 may not re-derive it.**

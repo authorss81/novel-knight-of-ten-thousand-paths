@@ -24,11 +24,9 @@ Nobody put a hand on it for about a minute after it was on the trestle.
 
 ---
 
----
-
 **And a man of eighty-one came and had not been asked to come, and a man of sixty-one came out of a mill at the low end of the water who cannot leave his wheel and had not wanted to come and came, and a woman of about thirty who has carried a slate for eleven years came and sat on the second bench, and a man of about thirty-one of the ninth generation who farms four steadings had not wanted to come and came, and the woman of sixty-six came and gave it up in writing in a minute nobody can be served to, and the man of fifty-five came and had voted against keeping the winter eight to one in the fourth week of the fourth cold and has not stood in the aisle at any point in thirty-five years.**
 
-Nine people on the benches and about thirty in the room, and about two hundred of the ninth generation at the back not in a seat, and about four people in that valley have said since that a room which seats twenty-nine and holds two hundred is a room that was built for nine and has been used for two hundred every time it has been used, and that nobody in that valley has ever proposed to build another one and that the proposal has never been needed because nobody in that valley has ever wanted to be in a room with more than about nine people in charge of it.
+Nine people on the benches and about thirty in the room, and about two hundred of the ninth generation at the back not in a seat. A room which seats twenty-nine and holds two hundred is a room that was built for nine and has been used for two hundred every time it has been used, and nobody in that valley has ever proposed to build another one, and the proposal has never been needed, because nobody in that valley has ever wanted to be in a room with more than about nine people in charge of it.
 
 ---
 
@@ -36,7 +34,7 @@ Nine people on the benches and about thirty in the room, and about two hundred o
 
 A man of thirty-four with sixteen men and no work seconded it and a man of fifty-five did not and a woman of sixty-six did not and a man of eighty-one said nothing at all, and nobody counted the hands and there is no column in that room for a hand and there has not been one since the second cold of the ninth generation. A room that counts its own hands is a bench, and a room that has nine people on benches in it is not a bench. The difference between the two is a bench, and this room has one.
 
-Nobody went to the fire and the fire went down about a foot over the four minutes before the reading, and about four people in that room have said since that a room of about thirty people does not move for a book and a room of about nine people does, and that on the twenty-sixth day of that month about thirty people stood in a cold room for nine minutes for a man of fifty-eight, and about nine of them were on benches and about four of the nine had come for the fire.
+Nobody went to the fire and the fire went down about a foot over the four minutes before the reading. A room of about thirty people does not move for a book and a room of about nine people does. On the twenty-sixth day of that month about thirty people stood in a cold room for nine minutes for a man of fifty-eight, and about nine of them were on benches and about four of the nine had come for the fire.
 
 ---
 
@@ -54,7 +52,7 @@ He read them in the voice of a man reading a rule and he read them at the speed 
 
 **And about four people in that valley have said since that the four lines are a hundred and forty years old and that the hundred and forty is the same figure as the one cut into the end of the bench at the back of the right-hand row, and that a figure being the same in two places in one room is not a coincidence and is not a mystery either, it is a room that has been measuring the same thing two ways for a hundred and forty years and that nobody in that room has ever been asked to say why, and that the man of fifty-eight has read one of them about nine hundred times and has never once put the two together and that he is fifty-eight.**
 
-He squared the book before he read and squared it again after, and about four people in that room have said since that a man squares a book about four hundred times a year and that a man who squares it twice in nine minutes has done a thing with his hands that his head has not caught up with, and that about two hundred of the ninth generation at the back of that room were watching his hands and not his face and about four of them had worked out what he was doing before the room had.
+He squared the book before he read and squared it again after. A man squares a book about four hundred times a year, and a man who squares it twice in nine minutes has done a thing with his hands that his head has not caught up with. About two hundred of the ninth generation at the back of that room were watching his hands and not his face, and about four of them had worked out what he was doing before the room had.
 
 He put his hand flat on the cover and left it there for about four seconds, and he was in no hurry about it and nobody in that room was in a hurry about it either.
 
@@ -72,10 +70,12 @@ He said the six years out loud for the first time and said nothing else about it
 
 **And the woman of sixty-six was at the front on the second bench and she had been asked what she swore forty years ago in that aisle in the cold in front of the whole valley and it took nine minutes and it was the worst nine minutes of her life, and she has told the ninth generation about it four times and told them it was survivable, and she was wrong, and she knows she was wrong, and she has never told anybody which of the three was the wrong one.**
 
+The man of thirty-four came down the aisle about nine feet and stopped, and did not come the rest of the way, and about four of the two hundred at the back had counted the nine feet and about nine of them had understood that he had stopped there on purpose.
+
 She said one sentence on that evening and it was to her knees and it was fourteen words, and it is the only thing she said in that room in about four years and she has said it to nobody and will not say it again.
 
 “**I have had my turn at it and I would not have it back.**”
 
-Nobody asked her a second question and the man of thirty-four did not ask her one and the man with a stick did not ask her one, and about four people in that valley have said since that a woman of sixty-six who gave up a thing in writing and has said fourteen words about having given it up has been left alone about it by everybody in that room including two men who had come nine days to ask questions, and that this is the arrangement this valley has and that it is not politeness and that it has cost her about forty years and has never been entered anywhere.
+Nobody asked her a second question and the man of thirty-four did not ask her one and the man with a stick did not ask her one. A woman of sixty-six who gave up a thing in writing and has said fourteen words about having given it up has been left alone about it by everybody in that room, including two men who had come nine days to ask questions. This is the arrangement this valley has. It is not politeness. It has cost her about forty years and has never been entered anywhere.
 
 ---

@@ -28,11 +28,13 @@ He did not put a hand on anything.
 
 That is the whole of it and there are about nine men in that yard within thirty feet of him and it is daylight and it is a wet morning and his left hand is warm at about the fourth hour every day and has been since a lane in a county that is not on any map, and it was about the second hour and he did not put it on a sill, a gate, a bench-board, a stone, a wall, a door or a man.
 
-Nobody in that yard noticed him not doing it, because a man not putting a hand on a thing is not a thing anybody in a yard looks up for, and about four people in that county have said since that a man of thirty-two with a limp has come into that yard about four times since the spring and has not put a hand on anything in it on any of the four, and that the fourth of the four was the second hour of a wet Friday morning in front of nine men, and that the hour was not chosen and that about four of the nine men in that yard have worked out what the hour was and about none of them has ever worked out why it was not chosen.
+He wrote it standing up, braced with his left forearm along the top edge of the board, because a man cannot get at a bench-board at that height from a seat and there is nowhere in that yard to sit and write. The pen went over the grain on two of the lines and he did not start again on either of them.
+
+Nobody in that yard noticed him not doing it, because a man not putting a hand on a thing is not a thing anybody in a yard looks up for. A man of thirty-two with a limp has come into that yard about four times since the spring and has not put a hand on anything in it on any of the four, and the fourth of the four was the second hour of a wet Friday morning in front of nine men. The hour was not chosen. About four of the nine men in that yard have worked out what the hour was and about none of them has ever worked out why it was not chosen.
 
 **And the weather came in again about the fourth hour and the man of about sixty packing lime put a lid on the heap and came in out of it and stood at the wall with his back to about nine men. A man who packs lime stands with his back to a yard for nine years and knows what nine men say behind him without hearing it, and he has never once turned round, and nobody in that yard has ever asked him how he does it, and a man with his back to a yard for nine years is the closest thing that yard has to a person who keeps it and is on nobody's book and is paid out of nothing. The finding about the bell in that county is a finding about this man. Nobody in that county has said so and nobody is going to.**
 
-He came in out of the lime and looked at the sheet on the bench-board from about nine feet off and read it upside down without moving his head, which is a thing a man does at a bench-board and not a thing a man does at a table, and he said nothing about it, A man who reads a sheet upside down from nine feet and says nothing is a man who has read four hundred sheets upside down in nine years. Nine men in that yard have watched him do it about nine hundred times, none of them has ever thought about it, and four of them have.
+He came in out of the lime and looked at the sheet on the bench-board from about nine feet off and read it upside down without moving his head, which is a thing a man does at a bench-board and not a thing a man does at a table, and he said nothing about it. A man who reads a sheet upside down from nine feet and says nothing is a man who has read four hundred sheets upside down in nine years. Nine men in that yard have watched him do it about nine hundred times, none of them has ever thought about it, and four of them have.
 
 ---
 
@@ -48,7 +50,7 @@ The first column of that sheet is what is given, and what is given on that Monda
 
 “**That one is going out.**”
 
-Nobody improved on either of them and about four people in that yard have said since that two men agreed about a bag in five words each at a bench-board in the wet, and that a thing two people agree about in ten words is a decision, and that a decision made in a yard in the wet on a Friday is a decision with no room in it anywhere, and that there is no column in this county for a decision and there never has been and that is the whole of what a bench of nine is for and does not know it.
+The man of about twenty-six did not look at the bag when he said it and he did not look at the man with the stick when he said it, and then he went back to the course he was setting, and about four people in that yard have said since that two men agreed about a bag in five words each at a bench-board in the wet, and that a thing two people agree about in ten words is a decision, and that a decision made in a yard in the wet on a Friday is a decision with no room in it anywhere, and that there is no column in this county for a decision and there never has been and that is the whole of what a bench of nine is for and does not know it.
 
 ---
 

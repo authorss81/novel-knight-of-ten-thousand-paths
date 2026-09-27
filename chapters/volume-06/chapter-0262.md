@@ -4,7 +4,7 @@
 
 He was told to bring up a witness record and that is the whole of what he was told, and it is the ordinary way a thing is asked for in that building.
 
-The stock is in a drawer under the stone and the drawer has about nine hundred copies of the office's own printed series in it in about forty bundles, and a witness record is one sheet of that series with the second column short, and he took the top sheet off the top bundle without counting, and about four people in that room have said since that a man of thirty-one in a room does not count a bundle he has been taking off for thirty-one years, and that the not-counting is the whole of his competence and that it is a real competence and that nobody has ever put it in a column.
+The stock is in a drawer under the stone and the drawer has about nine hundred copies of the office's own printed series in it in about forty bundles, and a witness record is one sheet of that series with the second column short. He took the top sheet off the top bundle without counting, and he did not have to count, because he has taken the top sheet off the top bundle about four times a month for thirty-one years and his hand goes to the same place on the same sheet every time and there is no decision in it anywhere.
 
 A witness record has six columns and five of them have a head on them. The first is *what is given*. The second is *to whom*. The third is *by whose hand*. The fourth is headed *Keeper*. The fifth is *the day*. And the sixth has no head and the same width as the fifth, and about four of the six are ruled for a figure and nowhere on the whole of the sheet is there any place at all for the name of a person.
 
@@ -20,9 +20,11 @@ The third was the paper, and the paper is the office's own and has been in the d
 
 ---
 
-**And he did it in about nine minutes and he did it in the ordinary way, and the ordinary way is the reason it happened, and four people in that building have said since that the villainy of this is thirty-one years of pressing type and that no man in that room did anything on that Saturday that he had not done four hundred times before.**
+He did it in about nine minutes and he did it in the ordinary way, and the ordinary way is the reason it happened.
 
-He wrote the first column and the second and the third himself and he wrote the fifth from the return, and the fourth he wrote with the loop leaning the way it leans, and he did the nine shapes without lifting the pen more than a man lifts it when he is writing quickly on a thing he has written four hundred times.
+He wrote the first column and the second and the third himself and he wrote the fifth from the return, and the fourth he wrote with the loop leaning the way it leans, and he did the nine shapes without lifting the pen more than a man lifts it when he is writing quickly on a thing he has written four hundred times. Nine minutes is a long time to write five entries. Most of it was the fourth.
+
+The ink on that stone is thin and the nib wants cleaning about every fourth line and he cleaned it about twice while he was on that sheet, and between the cleanings he did not stop.
 
 Then he read the sheet back to himself, once, in about a minute and a quarter, and put it on the bench, and a man of about twenty-nine who is a clerk of the returns came down at about the third hour and took it and went up two flights and did not stop in the doorway.
 
@@ -32,6 +34,8 @@ Then he read the sheet back to himself, once, in about a minute and a quarter, a
 
 The ink is warm and it is not hot, and the forme is set with a quoin and a wedge and about nine pieces of furniture, and a man of thirty-one can set a page in about a minute and a quarter and a boy of nineteen can set a page in about two and a half, and neither of those figures has ever been written on a piece of paper in that room and both of them are known to about four people who do not discuss them.
 
+The boy could do it in about two and a half and could very nearly do it in two, and on that morning he was at about two and a half and the man of about fifty let him keep the stone, because there was a witness record to go and the witness records did not wait and a page of type did not know whose week it was.
+
 ---
 
 **And a boy of nineteen was on the stone at about the second hour and a half and asked him one question, and it was seven words, and the man of about fifty answered it in eleven words, and neither of them has said anything else about it and the boy did not understand the answer and has not asked about it since and is not going to.**
@@ -40,25 +44,23 @@ The ink is warm and it is not hot, and the forme is set with a quoin and a wedge
 
 “**A head on a column is what a court can use.**”
 
-The boy set the sheet and did not look up, and about four people in that press room have said since that a man of thirty-one who has entered about eleven thousand forms answered a boy of nineteen's question about whether a thing was real with a true sentence about a column, and that the boy asked about reality and the man answered about use, and that the two of them are the two halves of what a form is and that neither of them has ever said so to the other one.
+The boy waited for the rest of it with his hand still on the quoin, and the man of about fifty went on wiping the stone, and the boy's hand came off the quoin and went back to the type, and that was the whole of the conversation. The boy had asked about reality and the man had answered about use, and those are the two halves of what a form is, and neither of them has ever said so to the other one.
 
 ---
 
-**And about nine of the forms a month that go out of that building come back, and eight of the nine come back with a figure in them and one comes back with a space empty and four lines beside it, and all nine go into the returns press because a return is a return, and the only difference between the eight and the one is what is in a column, and there is no column in that building for what is in a column, and about four people in that press room have said since that the eight and the one are the same piece of paper with a different thing in it and that the room upstairs keeps them in the same press and has never had a reason to separate them and is not going to.**
+**And about nine of the forms a month that go out of that building come back, and eight of the nine come back with a figure in them and one comes back with a space empty and four lines beside it, and all nine go into the returns press because a return is a return, and the only difference between the eight and the one is what is in a column, and there is no column in that building for what is in a column, and the room upstairs keeps them in the same press and has never had a reason to separate them and is not going to.**
 
-The hand that fills the fourth column of all nine of them was on the first floor at about the first hour of that morning, and the man of about fifty was on the ground floor at about the second hour of it, and about four people in that building have said since that two people in one building who both know the fourth column and have never spoken about it are a floor and a half apart, and that this is the only joke anybody in that building has made about it and it was made by a man of about thirty on a stair and he did not know he had made it.
-
----
+The hand that fills the fourth column of all nine of them was on the first floor at about the first hour of that morning, and the man of about fifty was on the ground floor at about the second hour of it, and two people in one building who both know the fourth column and have never spoken about it are a floor and a half apart. That is the only joke anybody in that building has made about it, and it was made by a man of about thirty on a stair, and he did not know he had made it.
 
 ---
 
-**And the return the day came from is in a file on the second floor and it is one of about eleven returns in about nine years that have been written by a room in that building and not by a press, and it has a figure of persons in the second column of it, and the second column is a column with a head on it, and the office would not print the number the offer was made on and did print this one, and nobody in that building has ever put those two facts next to each other and about four people on a stair have said since that a return is the only sheet in the building that carries a figure of persons and that the only reason it does is that a return is a thing a person has to fill in and a form is not, and that the hand that filled in the figure filled it in in about a minute and a quarter without looking up, and that the hand that wrote the fifth column of the sheet he made on that Saturday is not the hand that wrote the figure and that nobody in that building has ever compared two hands in its own records and is not going to.**
+**And the return the day came from is in a file on the second floor and it is one of about eleven returns in about nine years that have been written by a room in that building and not by a press, and it has a figure of persons in the second column of it, and the second column is a column with a head on it, and the office would not print the number the offer was made on and did print this one, and nobody in that building has ever put those two facts next to each other.**
 
-He did not go and get the return. He took the day off the top of the tray of returns on the second floor, which is where the days are, and there are about eleven days in about nine years on that tray and he has never once asked which of the eleven a day belongs to, and about four people in that building have said since that a man who takes a day off a tray of eleven has taken a date that somebody else wrote and has put it in a column under his own name, and that this is the ordinary way a date is got into a form in that office and that it is the reason nobody in that office can say afterwards who put a given day where.
+He did not go and get the return. He took the day off the top of the tray of returns on the second floor, which is where the days are, and there are about eleven days in about nine years on that tray and he has never once asked which of the eleven a day belongs to. A man who takes a day off a tray of eleven has taken a date that somebody else wrote and has put it in a column under his own name, and that is the ordinary way a date gets into a form in that office, and it is the reason nobody in that office can say afterwards who put a given day where.
 
 ---
 
-**And nobody thanked him, and he was not thanked because he was not thanked for anything, and about four people in that building have said since that a man who says a true thing about a column in a press room at about the second hour and a half of a market Saturday is a man who has said it to a boy of nineteen, and a boy of nineteen is not an office, and that a true thing said to a boy of nineteen is not entered anywhere and is not going to be, and that the same sentence said upstairs to a man of forty-four in a chamber would be in a record by the fourth hour and would be the only sentence anybody had ever said in that room about a column.**
+**And nobody thanked him, and he was not thanked because he was not thanked for anything, and a true thing said to a boy of nineteen at about the second hour and a half of a market Saturday is not an office and is not entered anywhere and is not going to be, and the same sentence said upstairs to a man of forty-four in a chamber would be in a record by the fourth hour and would be the only sentence anybody had ever said in that room about a column.**
 
 He had not been thanked eleven years ago either and had not expected to be, and at about the fourth hour he came past the register on the first floor and the woman of thirty-three was at the bench with a sheet in front of her and he went by at about four feet and said nothing to her, and she did not look up, and neither of them has said one word to the other in eleven years and neither of them is going to.
 
