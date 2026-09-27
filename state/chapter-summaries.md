@@ -743,7 +743,7 @@ Block 4, second third of thirteen rollings, all path time in the Hearth Marches.
 
 ## Volume 06 index
 
-**Volume 06 — The Parliament of Oaths (Chapters 251–300)**, outlined in `outline/volume-06.md`, and no volume close document exists yet.
+**Volume 06 — The Parliament of Oaths (Chapters 251–300)**, outlined in `outline/volume-06.md`. **Its close record is `outline/volumes/volume-06-close.md`, and the outline produced by that close is `outline/volume-07.md`. No chapter beyond 300 exists and none is described below.** The close wrote no chapter summaries, because a close is not a batch and this file is one entry per batch; **what the close established about the fifty chapters is at `state/continuity.md` items 782 to 806 and `state/open-threads.md`'s section *Threads the Volume 06 close carries into Volume 07*, and the fifteen findings it made on the printed page are §2 of the close, one of which — the four rooms and four people, or five — is ruled on there and not here.**
 
 | Blocks | Chapters | Content |
 | --- | --- | --- |
