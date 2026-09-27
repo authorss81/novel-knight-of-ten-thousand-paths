@@ -8,7 +8,7 @@ The mill is at the low end of the water and the man at the wheel has not left th
 
 “**He is at his wheel,**” a man said.
 
-The water was down and the second span of the bridge was out of use and the woman of thirty-six who keeps two hundred and forty feet of stone had forty feet of it in a yard at the low end in nine pieces, and the tide of that river is nothing like the tide under a wharf in a county two hundred miles off and nobody there has ever compared the two.
+The water was down and the second span of the bridge was out of use and the woman of thirty-six keeps the second span and has two hundred and forty feet of stone on it, of which forty feet is in a yard at the low end in nine pieces, and the tide of that river is nothing like the tide under a wharf in a county two hundred miles off and nobody there has ever compared the two.
 
 ---
 
@@ -66,9 +66,9 @@ The man did not notice that anything had happened. He took the board and went do
 
 **And at the seventh hour, at the top of the lane, a man of about sixty who keeps the roll of the crossing filled in nine ruled days that had been empty in a roll of everybody, and nobody asked him to.**
 
-He is the second keeper. The first keeper keeps who is in the valley and the second keeper keeps who came over the water, and the two rolls have been kept side by side for about nine years and have never been put on the same table, and neither of the two men has ever asked the other for a day of the other's half, and everybody in that valley is on one or the other of the two and about nine are on both.
+He is the second keeper. The first keeper keeps who is in the valley and the second keeper keeps who came over the water, and the two rolls have been kept side by side in two rooms for about nine years and have never been put on the same table, and neither of the two men has ever asked the other for a day of the other's half, and everybody in that valley is on one or the other of the two and about nine are on both.
 
-He had nine days of names in his own half that the town roll had ruled across and left empty, and the days were not the same nine days in any two seasons and about half of them were not the same nine days as the ones the first keeper ruled, and a man with two halves of a valley's record in two boxes in two rooms four hundred yards apart has about nine times in a season the chance of finding out whether the two agree, and about nine people in that valley have worked out that nobody ever took it.
+He had nine days of names in his own half that the town roll had ruled across and left empty, the days were not the same nine days in any two seasons and about half of them were not the same nine days as the ones the first keeper ruled, and he had seen that ruling about four times in nine years on an open sheet lying on a trestle in that room with a man standing at the side of it who never turned it round, and a man with two halves of a valley's record in two boxes in two rooms four hundred yards apart has about nine times in a season the chance of finding out whether the two agree, and about nine people in that valley have worked out that nobody ever took it.
 
 “**Nine days,**” the man of about sixty said, to nobody, and went on down the lane.
 

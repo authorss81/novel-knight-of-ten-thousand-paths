@@ -30,11 +30,11 @@ The man of thirty-four stood up at the side of the aisle and waited for the fort
 
 “**Say what your end of it is like now,**” he said. “**You have come four hundred miles and you have been here a week and none of us knows anything about it and about two hundred of the ninth generation are standing at the back of this room. Say it so that they can hear it.**”
 
-And the man of thirty-two answered in about a second and a half, and he answered it in a voice that was not his own, and what he said was not about the end of a road.
+And the man of thirty-two answered it in a voice that was not his own, and what he said was not about the end of a road, and he took about a second and a half to find that out and about as long again to stop talking.
 
-“**There is a bridge with about two hundred and forty feet of stone on it and the parapet was done in one summer by about nine men and I have not got up a bank since a day in the middle of a long month and I cannot and I am not going to, and I have sixteen men and four of them have nowhere to work this season and one of the sixteen is nine years old, and I dug four hundred yards of road with a crown on it in a wet summer and it has a standing finish on the end of it and there is about nine feet of grass at the end of that finish and nothing else, and I have never once been asked whether it goes anywhere, and there is no law about it and no office and nobody in that valley has ever called it anything but a road.**”
+“**There is a bridge with about two hundred and forty feet of stone on it and the parapet was done in one summer by about nine men and there has not been a bank under my hand since a day in the middle of a long month and I cannot get up one and I am not going to, and I have sixteen men and four of them have nowhere to work this season and one of the sixteen is nine years old, and I dug four hundred yards of road with a crown on it in a wet summer and it has a standing finish on the end of it and there is about nine feet of grass at the end of that finish and nothing else, and I have never once been asked whether it goes anywhere, and there is no law about it and no office and nobody in that valley has ever called it anything but a road.**”
 
-About thirty people in that room heard all of it. Nobody made a sound. A hundred and forty is cut into the end of the bench at the back of the right-hand row and about nine inches of that aisle had not been stood in for three generations and a man had just said the whole of what four hundred people in that valley had been carrying for a year in 157 words in a room with a board ceiling and no window in it.
+About thirty people in that room heard all of it. Nobody made a sound. A hundred and forty is cut into the end of the bench at the back of the right-hand row and about nine inches of that aisle had not been stood in for three generations and a man had just said the whole of what four hundred people in that valley had been carrying for a year in 162 words in a room with a board ceiling and no window in it.
 
 **And he knew it in about a second, and four of the thirty noticed that something had happened, and about twenty-six did not.**
 
@@ -68,7 +68,7 @@ And about four people in that valley have said since that two men in a room over
 
 The room emptied at the fourth hour after the light the way it empties, and the book went under the trestle and the trestle went back against the wall, and the man of thirty-four went out to his sixteen, and the man of fifty-eight stayed where he was, and at the mill a man came out into the cold for about four minutes anyway and went back in.
 
-**Nobody walked any part of that day with him, and the man who had said the thing at the seventh hour and the man who had said the other thing at the seventh hour went out of that room by different doors and neither of them said goodnight to anybody.**
+**Nobody walked any part of that day with him, and the man who had said the thing at the fourth hour and the man who had said the other thing at the fourth hour went out of that room by different doors and neither of them said goodnight to anybody.**
 
 **And the woman of about thirty with the slate was at the top of that lane with about nine other people going in and out of the door, and she had a line to enter and she entered it, and it went in the day column with a mark against it that is a gate, and there was nothing to enter about him under any of the other two columns and she did not invent one.**
 

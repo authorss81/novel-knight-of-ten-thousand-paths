@@ -34,13 +34,13 @@ The man of about nineteen put the hod down against the wall and stood at the end
 
 A man of about thirty-two with a limp has a coat over a chair and a chair nine feet off him, and in the inside pocket of that coat there is a separate leaf with a seventh line on it that says *a person*, and he has carried that leaf since a chamber with no window in it in a town two hundred miles off, and the line is a question and it is not finished, and he did not take it out in that yard and did not look at it in that lane, and nobody in that county knows it is in his coat.
 
-He went up the lane and past the end of the market and up a road that the county keeps and nobody has ever put anything else on, and there is no bell on it and no clerk and no seal, and the road he went up carries a road over the water four hundred yards off it, and he went over that too, and there is no second crossing on that road and nobody in that county has ever said so and nobody is going to.
+He went up the lane and past the end of the market and up a road that the county keeps and nobody has ever put anything else on, and there is no bell on it and no clerk and no seal, and the road he went up carries a road over the water four hundred yards off it, and he went over that too. There is no second crossing on that road and nobody in that county has ever said so and nobody is going to.
 
 **And on the other side of it there was a valley with about four hundred people in it, and a town at the low end of the water with two hundred feet of wharf on it, and eleven steadings and four hamlets up the water, and about two hundred of a generation that had never once left the valley, and a man with a limp arrived in it about four minutes after he had said a date in a yard four hundred miles off, and nobody in that valley knew he was there.**
 
 ---
 
-The first person he met was a woman of about thirty with a slate under her arm and a stick of chalk tied to the string of it, and she was outside a door at the top of a lane with about nine other people going in and out of it, and she asked him one question, and it was an ordinary question, and he answered it in about a second and a half.
+The first person he met was a woman of about thirty with a slate under her arm and a stick of chalk tied to the string of it, and she was outside a door at the top of a lane with about nine other people going in and out of it, and she asked him one question, and it was an ordinary question, and he answered it before he had got to the end of the first clause of it.
 
 “**You are not one of the three,**” she said.
 
@@ -48,7 +48,7 @@ The first person he met was a woman of about thirty with a slate under her arm a
 
 And the woman with the slate looked at him for about four seconds and did not take a step back and did not write anything on the slate, and about nine people going in and out of that door heard all of it and about four of them had heard a man say that before and in a different voice.
 
-**And then he knew it was not his, and he knew it in about a second, and it had been about a second and a half in the answering.**
+**And then he knew it was not his, and he knew it about half way through the first sentence of it, and it had taken him no time at all to find that out and about four seconds to finish saying what he had started.**
 
 “**I am not right,**” he said. “**And I would like somebody to tell me what I have taken.**”
 
