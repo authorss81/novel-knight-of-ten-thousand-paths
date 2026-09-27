@@ -8,7 +8,7 @@ Two rooms over a weigh-house, and the two of them are the salt merchant's and no
 
 ---
 
-**And the register stands at seven entries, all of them questions, none of them a finding, and the day-book stands at nine entries of a thing that was not asked, and neither of those two books was opened on that Monday, and a shelf beside them carries four things, and a press in the corner carries a fifth, and the fifth is the whole of that chapter.**
+**And the register stands at seven entries, all of them questions, none of them a finding, and the day-book stands at nine entries of a thing that was not asked, and neither of those two books was opened on that Monday, and a shelf beside them carries four things, and a press in the corner carries a fifth, and the fifth is the whole of that Monday.**
 
 The four things are a contested sheet with a figure of persons against this county standing under a head that says a day, a fair copy of the register made in the middle of that month by a woman of about thirty in that room which carries her trade at the foot of it and not her name, a sheet that came back up that lane in the ordinary post with a place in it and nothing at all in the second, and the answer itself, going round nine counties. About four people in that lane have counted those four and about nine hundred people in that town have not.
 

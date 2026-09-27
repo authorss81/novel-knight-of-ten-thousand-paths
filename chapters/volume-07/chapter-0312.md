@@ -37,7 +37,7 @@ And two people in that lane have worked out that a woman who wanted a thing for 
 
 ---
 
-**And a fair copy of a register is a copy, and a copy is the thing this volume is about, and nobody in that room improved on it.**
+**And a fair copy of a register is a copy, and a copy is the thing that room is about, and nobody in that room improved on it.**
 
 The register is the one book in that office that a body corporate can be sued over and that nobody can be served out of, and its six entries are all questions, and a question that is a question cannot be produced against anybody, and a question that is a copy of a question can be produced against anybody, and two people in that lane have worked out that a woman of thirty found that out on a Wednesday morning by doing the ordinary thing she was trained to do.
 

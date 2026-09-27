@@ -52,7 +52,7 @@ She said it at the second door, and at the third, and at the fourth, and at the 
 
 ---
 
-**And the block's cost is a person and she is two hundred miles off and she is not in that lane, and nobody in that lane has ever heard her name.**
+**And the cost of those forty days is a person and she is two hundred miles off and she is not in that lane, and nobody in that lane has ever heard her name.**
 
 A woman of thirty-three in a building of four floors and seven presses filled the fourth column off a roll of about four hundred people in about a minute and a quarter on the Friday without looking up, and the fourth column is headed *Keeper*, and the roll was a copy of a roll of a place four hundred miles off, and the person she was writing down was on a list she had never seen, and nobody thanked her and nobody asked her why she did it, and her want is nine words and has not changed since she was twenty-two, and a leaf in a book on the second shelf behind her is turned face down and was not turned over, and she went home at the seventh hour and will be at that column on Monday.
 

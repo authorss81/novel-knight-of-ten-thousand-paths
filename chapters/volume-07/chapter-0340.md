@@ -4,7 +4,7 @@
 
 Mudmonth is the worst month for roads in that kingdom and there was water standing in the low end of that province and about four hundred sheets a month still went across one table under one window and were read at waist height by one woman, and the weather had turned for the worse about a fortnight before and the light in that room had got worse with it.
 
-**And the stove has not been lit and nobody has asked her to light it, and a woman of thirty is going to spend a winter in a room where the light comes up off the boards and she writes the only record anybody in that building makes by hand, and that is the whole of the cost of this block and it is not a person and it is not a city and it is a hand.**
+**And the stove has not been lit and nobody has asked her to light it, and a woman of thirty is going to spend a winter in a room where the light comes up off the boards and she writes the only record anybody in that building makes by hand, and that is the whole of the cost of those forty days and it is not a person and it is not a city and it is a hand.**
 
 ---
 
@@ -22,7 +22,7 @@ It is thirty-eight words and it foots at thirty-eight, and the woman of about th
 
 “**The one under my arm. Nine inches by six, one of your forms to a line, made by me, and on none of your series.**”
 
-“**A copy of that is a second book and a second book is a decision,**” the man of about thirty said, and two people in that building have said that a man of thirty told a woman of thirty that the copy she wants is a decision in about eleven words, and that he is right, and that being right is not a kindness, and that the woman of thirty said **I know** in two words and went back to the table and was not thanked and was not told she was right.
+“**A copy of that is a second book and a second book is a decision,**” the man of about thirty said, and two people in that building have said that a man of thirty told a woman of thirty that the copy she wants is a decision in fifteen words, and that he is right, and that being right is not a kindness, and that the woman of thirty said **I know** in two words and went back to the table and was not thanked and was not told she was right.
 
 
 **And two more things were said in that room that morning and neither of them was about a book.**

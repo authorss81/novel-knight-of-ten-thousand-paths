@@ -8,7 +8,7 @@ The mill is at the low end of the water and the man at the wheel has not left th
 
 “**He is at his wheel,**” a man said.
 
-The water was down and the second span of the bridge was out of use and the woman of thirty-six keeps the second span and has two hundred and forty feet of stone on it, of which forty feet is in a yard at the low end in nine pieces, and the tide of that river is nothing like the tide under a wharf in a county two hundred miles off and nobody there has ever compared the two.
+The water was down and the second span of the bridge was out of use and the woman keeps the second span and has two hundred and forty feet of stone on it, of which forty feet is in a yard at the low end in nine pieces, and the tide of that river is nothing like the tide under a wharf in a county two hundred miles off and nobody there has ever compared the two.
 
 ---
 

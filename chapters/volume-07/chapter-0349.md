@@ -22,7 +22,7 @@ And so: nothing entered. The register in a room over a weigh-house is at seven e
 
 It is sixty-nine words and it foots at sixty-nine, and about nine people in four counties have said since that a woman of about fifty said the first rule of this year out loud once, in a room over a byre, in about eleven seconds, and that nobody improved on it, and that a rule that one person has said out loud in one room and that four counties know about is not a rule at all in the sense this kingdom uses the word, and that it is the first thing anybody in four counties has agreed on since before any of them can remember and that nothing was minuted.
 
-**And two people asked about it in the room and neither of them got a rule out of it, and one of them got a person, and about nine people in four counties have been saying since that a rule which is nine sentences long can be heard once in a room over a byre and can be asked about twice and can be written down by nobody, and that is the correct outcome and not a defect in it.**
+**And two people asked about it in the room and neither of them got a rule out of it, and one of them got a person, and about nine people in four counties have been saying since that a rule which is one sentence long can be heard once in a room over a byre and can be asked about twice and can be written down by nobody, and that is the correct outcome and not a defect in it.**
 
 “**Is that a rule,**” the man of about forty said, from the door.
 
@@ -32,7 +32,7 @@ It is sixty-nine words and it foots at sixty-nine, and about nine people in four
 
 “**I have never once in nineteen years had to call anything anything,**” she said, “**and I have said that sentence out loud once and I am not going to say it a second time, and you have your ninety sheets and I have said what they are and there is nothing else about them that anybody in this county is going to be told this year.**”
 
-And about nine people in four counties have worked out since that a woman of about fifty said the whole of what a rule is in a room in about sixty-four words and that the sixty-fourth word was *year*, and that a county of about nine hundred people has a rule in it now and has had it for about half an hour, and that nobody in that county will be able to point at it in nine years and that this is the correct outcome and about two hundred people in that county have worked that out and nobody has said so out loud.
+And about nine people in four counties have worked out since that a woman of about fifty said the whole of what a rule is in a room in about sixty-two words and that the sixty-second word was *nowhere*, and that a county of about nine hundred people has a rule in it now and has had it for about half an hour, and that nobody in that county will be able to point at it in nine years and that this is the correct outcome and about two hundred people in that county have worked that out and nobody has said so out loud.
 
 **And what is at the other end of it is a trade and not a name, and a man of thirty-two with a limp took a leaf out of the inside pocket of a coat at about the fourth hour of that Saturday and looked at the seventh line on it, and it is the seventh time he has looked at it, and the seventh line says *a person*, and a trade is not a person and a person is not a trade, and he folded the leaf in three and put it back and did not finish it and has not finished it.**
 
