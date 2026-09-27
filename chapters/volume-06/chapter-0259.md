@@ -1,6 +1,6 @@
 # Chapter 0259
 
-**The fourteenth day of Thawmonth, YR 316, a Tuesday, and not a market day, and the second hour, and a room on the third floor of the building in a provincial town two hundred miles from a fen county, and a man in that room who had a sheet with a name on it before anybody in that building had been asked for the name, and about four hundred people in a town of about four thousand people on a river who do not know that a man of thirty-two with a limp was sent for on the twelfth day of Thawmonth by a hand that does not use the ordinary post, and that he was in the room for about an hour and a half and said nine words to a man who did not ask him a question and got no answer for them and that nobody in that room was surprised.**
+**The fourteenth day of Thawmonth, YR 316, a Tuesday, and not a market day, and the second hour, and a room on the third floor of the building in a provincial town two hundred miles from a fen county, and a man in that room who had a sheet with a name on it before anybody in that building had been asked for the name, and about four hundred people in a town of about four thousand people on a river who do not know that a man of thirty-two with a limp was sent for on the twelfth day of Thawmonth by a hand that does not use the ordinary post, and that he was in the room for about an hour and a half and said seventy words to a man who did not ask him a question and was answered in ten, and that nobody in that room was surprised.**
 
 He was sent for by a sheet with his own name on it and the sheet had been written before he was in the building on the second of Thawmonth, YR 316, and he has not worked out how and has not tried, and four people in that building have said since that a man who says *I have not worked out how* about a thing that was done for him has understood that the not-working-out is the correct position and has chosen it.
 
@@ -26,7 +26,7 @@ The man of thirty-two put his hand flat on the table for about two seconds and t
 
 ---
 
-**And he took a sheet out of a drawer and put it on the table and did not let it out of the room, and that is the whole of the offer and the whole of what is in the sealed record that anybody in this block will see, and the rest of the sealed record is in ten other drawers in three other buildings and is not in this room.**
+**And he took a sheet out of a drawer and put it on the table and did not let it out of the room, and that is the whole of the offer and the whole of what is in the sealed record that anybody in that building will see, and the rest of the sealed record is in ten other drawers in three other buildings and is not in this room.**
 
 It is a list of about eleven lines. It is ruled in two columns and the two columns are in two parts, and the first part of the first column is a hand and the second part is a road, and there are eleven hands and eleven roads and they are the same size and the same shape and they are not the same thing, and four people in that building have said since that two columns of the same width with the same kind of thing in them is a list of a journey and that a list of a journey is the oldest paper in this kingdom and that it is the one kind of paper that cannot be checked by anybody who was not there.
 

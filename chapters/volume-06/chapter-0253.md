@@ -30,7 +30,7 @@ She did not answer it. That is the whole of it and it is a fact about the twenty
 
 ---
 
-**And what the second copyist did with it is the only thing in this chapter that nobody in this county has an opinion about yet, and it is the best piece of machinery in a volume about forms, and it happened because a woman of about thirty had been the second copyist for six years and had wanted a post with her name in the day-book since the summer before last.**
+**And what the second copyist did with it is the only thing that nobody in this county has an opinion about yet, and it is the best piece of machinery in that office, and it happened because a woman of about thirty had been the second copyist for six years and had wanted a post with her name in the day-book since the summer before last.**
 
 The day-book is the only book in that office nobody can be served with. That is the whole of why it exists and it has existed for four years and a half and it has nine not-askings in it, and there is not going to be a tenth and the tenth would be a question asked of a man of thirty-two by a woman of twenty-nine in a room she owns. A post in the day-book means a place in the book where a person's own entry stands under that person's own name, and a second copyist of about thirty has wanted one since the summer before last and has said out loud that she is not going to get it and does not want it and that the two are the same thing.
 

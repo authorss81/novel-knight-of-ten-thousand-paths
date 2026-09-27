@@ -16,7 +16,7 @@ The sheet is the ordinary one. It is a sheet of the office's printed series, and
 
 “**Nobody ever asks me to read it twice. They ask me to read it once and slowly and then they ask me what it means and that is the same thing with more of your face in it.**”
 
-He said one thing in that room that day and it was in his own voice and it was nineteen words and it was the only thing about the offer that he said, and he has not said it since to anybody, and four people in that building have said since that a man of about forty has one sentence about an offer and says it the same way in every county in this province and that nobody has ever found out whether it is true in any of them.
+He said one thing in that room that day and it was in his own voice and it was twenty-four words and it was the only thing about the offer that he said, and he has not said it since to anybody, and four people in that building have said since that a man of about forty has one sentence about an offer and says it the same way in every county in this province and that nobody has ever found out whether it is true in any of them.
 
 “**A person who gives evidence in the proceeding is not sentenced for the matter the evidence is about. That is the whole of it.**”
 
@@ -32,7 +32,7 @@ And the man of about forty has carried four matters in about nine years and ther
 
 ---
 
-**And the sheet has two prices of the same thing on it and nobody in that room added them, and a man of thirty-two with a limp looked at the two for about a minute and a half and did not add them and did not ask why they were different, and four people in that building have said since that this is the second time in about a year that two figures out of one place have been looked at in that province and not added, and that the first time was said out loud in nine words and this time was not said out loud at all.**
+**And the sheet has two prices of the same thing on it and nobody in that room added them, and a man of thirty-two with a limp looked at the two for about a minute and a half and did not add them and did not ask why they were different, and four people in that building have said since that this is the second time in about a year that two figures out of one place have been looked at in that province and not added, and that the first time was said out loud in a room in another county two hundred miles off and this time was not said out loud at all.**
 
 The sheet gives what a person in that case may be sentenced to, and it gives it twice, and the two are a matter of course in the trade and not a trick: the first is what it is and the second is what it would be if the person gave evidence. The fine is a mark and a half the first time and one mark the second time, and a mark is four shillings and a shilling is twelve pence, and those two figures are on the sheet in words and not in figures, and nobody in that room wrote them down and nobody added one to the other and nobody asked what the difference of them was, and those are two prices of one thing and there is no column in that building for two prices of one thing.
 
@@ -46,7 +46,7 @@ The man of about forty did not write it down at once. He looked at the sheet for
 
 ---
 
-**And two hundred miles off there was a market on that Saturday morning four hundred yards long with salt and fish and peat in it and one load of glass, and a man of about nineteen came down the lane with an empty hod and bought a piece of bread and did not stop at anything else, and a woman of about thirty with a pail was at the corner of it and was at the same corner on the last market Saturday of a year, and four people in that town have said since that the two of them have not spoken in about a year and that neither of them has said one word about the other to anybody, and that a man of thirty-two with a limp was not in that market and has not been in it on a Saturday since the spring and that nobody in that market has asked him where he was.**
+**And two hundred miles off there was a market on that Saturday morning four hundred yards long with salt and fish and peat in it and one load of glass, and a man of about nineteen came down the lane with an empty hod and bought a piece of bread and did not stop at anything else, and a woman of about thirty with a pail was at the corner of it and was at the same corner on a market Saturday a year back, and four people in that town have said since that the two of them have not spoken in about a year and that neither of them has said one word about the other to anybody, and that a man of thirty-two with a limp was not in that market and has not been in it on a Saturday since the spring and that nobody in that market has asked him where he was.**
 
 ---
 
@@ -54,7 +54,7 @@ The man of about forty did not write it down at once. He looked at the sheet for
 
 *Witness attended. Offered reduction of sentence. Declined. Evidence offered before the asking.*
 
-That is the entry, and it went into a book in the ordinary way, and four people in that building have said since that the fourth of the four lines is not on any form in that office and that the man of about forty put it there because it is what happened, and that a clerk who puts what happened into a book that has no line for what happened has done the one thing in that building that cannot be got out of a room, and that about nine hundred people in that building do not know that it happened on the eleventh of Thawmonth, YR 316 at about the fourth hour in a room with no window in it.
+That is the entry, and it went into a book in the ordinary way, and four people in that building have said since that the fourth of the four lines is not on any form in that office and that the man of about forty put it there because it is what happened, and that a clerk who puts what happened into a book that has no line for what happened has done the one thing in that building that cannot be got out of a room, and that about nine hundred people in that town do not know that it happened on the eleventh of Thawmonth, YR 316 at about the fourth hour in a room with no window in it.
 
 **And a sheet of the office's printed series is a penny, and a second sheet for the person the matter is entered against is a penny, and a clerk's fee for entering a witness is fourpence, and a witness's day is eightpence. A penny and a penny is twopence, and twopence and fourpence is sixpence, and sixpence and eightpence is fourteen pence, and fourteen pence is a shilling and twopence, and that is the whole of what a man of thirty-two with a limp cost that building on the eleventh of Thawmonth, YR 316, and the two prices of the same fine are not in it and are not added to it and are not going to be.**
 

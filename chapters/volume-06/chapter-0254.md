@@ -65,7 +65,7 @@ The fourpence a year that the office in that county pays is not in that column, 
 
 ---
 
-**And a man of thirty-two with a limp spent the whole of that day in a passage with a stick across his knees, and a man with a satchel came down that passage at about the fourth hour and did not stop, and that is the only conversation he had in that building on the second of Thawmonth, YR 316 and it was about nine words long and neither of them said it twice.**
+**And a man of thirty-two with a limp spent the whole of that day in a passage with a stick across his knees, and a man with a satchel came down that passage at about the fourth hour and did not stop, and that is the only conversation he had in that building on the second of Thawmonth, YR 316 and neither of them said anything twice.**
 
 Nobody sent for him. That is the finding of a day and a night in a passage and it is not a finding anybody entered, and a man of thirty-two with a limp came into that building on the strength of a summons that was posted in a county with no writ and no seal and no office, and he came into it because a sheet went out of a press in a room in this province and got itself to a lane, and there is no line on that sheet for a person who turns up.
 
