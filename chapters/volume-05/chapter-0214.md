@@ -83,7 +83,7 @@ The woman of about sixty said, “We do not answer things.”
 
 ---
 
-**And on the way down the lane a boy of fourteen who was sitting on the step said, without getting up, that the man who kept the forms was at the bottom of the lane past the works and round by the yard with the bindles, and that his name was Crane, and that he was in on the second and the ninth and not on the others, and that it was the fifth hour now and he would be there until the ninth.**
+**And on the way down the lane a boy of fourteen who was sitting on the step said, without getting up, that the man who kept the forms was at the bottom of the lane past the works and round by the yard with the bindles, and that his name was Crane, and that it was the fifth hour now and that the man was at his bench and would be there until the ninth, and that there was a board over a thing on that bench and that nobody was to touch it.**
 
 “Thank you.”
 

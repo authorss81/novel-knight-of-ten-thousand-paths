@@ -2,17 +2,19 @@
 
 **The second day, and the market, and the hour the market opens, which is not an hour anybody in this city is keeping and is the same four days out of seven, and about four hundred people in a street of about two hundred yards with glass on one side of it and reed and salt fish on the other, and a man of thirty-two with a limp and a stick standing in it at the third hour with a cup he has been given and has stopped listening in the middle of.**
 
-There is no market day here. That was the first thing a man who had come up out of a valley that keeps no months and no hours found out about this place, and it took him two days, and on the second day he stood in the middle of a street with about four hundred people in it and worked out, standing up, in the time it took a man to look twice, that this street is busy four days out of seven and that he had come down the hill on one of the four, and that nobody in it thought the word market meant anything in particular.
+There is no market day here. That was the first thing a man who had spent sixteen months in a valley that keeps no months and no hours found out about this place, and it took him two days, and on the second day he stood in the middle of a street with about four hundred people in it and worked out, standing up, in the time it took a man to look twice, that this street is busy four days out of seven and that he had come down the hill on one of the four, and that nobody in it thought the word market meant anything in particular.
 
 **And the market is the trade of this place, and the trade is not selling. What is sold on that street is bread at the price of a market at home and glass at a price that has not moved in four hundred years and salt fish, reed, rope, oil, and a quantity of small things that a man who has been in eleven markets in four counties could not name. What is not sold and what the street is for is that about four hundred people know each other.**
 
-A woman of about thirty at a stall with reed in it said the thing out loud, once, to him, in about eleven words, and a few of the people on that street have said since that she is the only person in that market who has ever said it to a stranger and that she said it because he had asked her what the market was for, which is a question nobody asks.
+A woman of about thirty at a stall with reed in it said the thing out loud, once, to him, in about forty words, and a few of the people on that street have said since that she is the only person in that market who has ever said it to a stranger and that she said it because he had asked her what the market was for, which is a question nobody asks.
 
 “**You are going to try to remember us,**” she said. “**And if you do you have got a place, and if you do not you have got a day, and I would like you to have the day.**”
 
-**And the reason, which is not the same as the trade, is that a name in this city is a person somebody can be shown. A name in a book is a person somebody can be shown. A name in about four hundred heads is not, because four hundred heads are in this city and are going to be in this city next year. That is the difference and I am not going to say it again and I have said it to two men in four hundred years and one of them was you.**”
+And then she said the other half of it, and the reason, which is not the same as the trade, and it came out of the same mouth in the same breath and took about as long again.
 
-And she went back to her reed, and four people on that street have said since that a woman who gives a stranger that in eleven words and then says she will not say it again is doing the ordinary trade of that street, which is that everybody in it is extremely careful with a stranger and nobody in it is unkind to one.
+“**A name in this city is a person somebody can be shown. A name in a book is a person somebody can be shown. A name in about four hundred heads is not, because four hundred heads are in this city and are going to be in this city next year. That is the difference and I am not going to say it again and I have said it to two men in four hundred years and one of them was you.**”
+
+And she went back to her reed, and four people on that street have said since that a woman who gives a stranger that in one breath and then says she will not say it again is doing the ordinary trade of that street, which is that everybody in it is extremely careful with a stranger and nobody in it is unkind to one.
 
 ---
 
@@ -44,7 +46,7 @@ He is a man of about thirty and he does not look up much and he has a way of sta
 
 ---
 
-**And he bought two things and paid what he would have paid at home, and the two were a pound of bread and a hand's breadth of glass rod, and the glass rod was for no purpose at all and he has never said so to anybody, and a man of about forty at the glass stall asked him what he wanted it for and he said he did not know and the man of forty said that was the best answer he had had in four years and cut him a piece and did not weigh it against anything.**
+**And he bought two things and paid what he would have paid at home, and the two were a pound of bread and four feet of glass rod, and the glass rod was for no purpose at all and he has never said so to anybody, and a man of about forty at the glass stall asked him what he wanted it for and he said he did not know and the man of forty said that was the best answer he had had in four years and cut him a piece and did not weigh it against anything.**
 
 A pound of bread, a penny. Four feet of glass rod, twopence. A cup of something hot and a piece of salt fish, a penny. One and two is three and three and one is four pence.
 
