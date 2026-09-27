@@ -1,0 +1,79 @@
+# Chapter 0245
+
+**The sixth day of Goatmonth, YR 315, a Saturday, and a market day, and the market in this county is on a Saturday and on a Thursday and twice a week and that is all of it, and the market was on that county's main street from the second hour until about the sixth hour, and the bench of nine sat in the long room over the wharf at about the seventh hour, and about forty men were on the Sedge Reach four hundred yards down the lane with the road open, and a reeve of this town put an eighth thing on a table and a bench said no to it in eleven words and a clerk of about sixty entered the reason twice, and about four hundred people in this town do not know that any of that happened and one of the four is a man of nineteen who came down four hundred yards of lane to look at what a man was doing at a door last week and did not ask.**
+
+The bench of nine sits on Saturdays. That is the arrangement and it is older than anybody in that room and it has not been broken in nineteen years. A Saturday sitting begins about the seventh hour because the market is on from the second until about the sixth, and the market is the one day in this county's week on which anybody in this town can say what day it is, and about four people in this hall have said that a thing that is refused in a room is refused in a room and a thing that is refused on a market morning is refused in front of the people who live here, and that this bench has never once been asked anything on a day that is not a market day and that this is not procedure.
+
+**What was on the table had come in the ordinary post and it was a sheet of a printed series and it was not of this county's making.**
+
+It is about nine inches by six and it is folded once across the middle and soft at the fold, and it is ruled in six columns, five of them with heads, and the heads are words none of the people at that table can read the sense of, and the sixth column has no head on it and is the same width as the other five, and about four of the six are ruled for a figure.
+
+The object column has a name in it. The name is not the name of this county and it is not the name of any county anybody at that table has ever had a paper out of, and about four people in that room have said since that a reeve of this town carried that sheet to a bench on a Saturday morning and that she carried it the way she carries a thing she has not decided about, and that she has brought five things up two flights of that stair in nineteen years and put three of them and that the other two are in the minute as not put.
+
+There is a district name on it. A district is not a county in this town and there is no such thing in this county and about four people in that hall have said that a word on a printed sheet is a thing the county has never had to answer anything about in nineteen years, and that about nine hundred sheets in a provincial town two hundred miles off have that word on them and about nine hundred people in that county do not know it is a word they could be asked a question about.
+
+And there is a space ruled for a figure and the space is empty, and there are four of them on that sheet and all four are empty, and about four people in that room have said since that a printed form with four empty places in it is the first thing of that kind that has come into that hall in nineteen years and that the two marks in the chest under the window are the only figures in the room and neither of them is on the sheet.
+
+**And what the reeve asked for was that the bench have the county answer it.**
+
+She said it in about four minutes and the clerk wrote it as she said it and did not tidy it, and she did not vote on it and has not voted on the guild's own matter in nine years, and she is a magistrate's elder sister and has been up two flights of that stair about five times in nineteen years, and about four people in that hall have said since that the asking was not the sheet and that the sheet was the reason the asking was made and that a sheet that arrives in a market town addressed to a district of about nine market towns gets answered by a market town or it does not get answered at all, and that a clerk in a provincial town does not know that a market town has a bench in it.
+
+“Then it will be sent on,” she said, at about the fourth minute.
+
+“Then it will be sent on to about nine market towns,” said the clerk of about sixty, who has kept that minute for nineteen years and has never entered a name in it that somebody else in the room did not put there first, “**and eight of the nine of them are places where a man can be found at a counter, and one of them is a place where eleven people meet on a Saturday in a room over a wharf, and the office is going to send it to this one because this is the only one of the nine that has a bench in it to send it to.**”
+
+---
+
+**And then the man in the chair said the reason, and it was eleven words long, and it is the third of the eleven-word things that have ever decided anything in that hall, and about four people in that hall have said since that the first two of the three are in a Harvestmonth and on the thirtieth of Fallowmonth and that nobody in this county has worked out why a bench keeps getting shorter.**
+
+“**A market town is not a district and never has been.**”
+
+Nobody in that room argued with it for about nine seconds, and the nine seconds were the shortest of that sitting, and a good half of them in that hall have said since that there are now three of those nine seconds in the record of this room and that the three of them are the only times this hall has ever decided anything and that two of the three were about roads and the third is about a word.
+
+**And the reason went in twice, and the reeve asked for it twice, and she said the reason out loud first.**
+
+“Then it is a no, and I am glad it is a no, and I want the minute to carry that I said that, and I want the reason twice, because a bench that says no for money has refused a thing it could not afford, and a bench that says no for anything else has refused a thing it does not want, and this county has never in the whole time of the bench got the first, and I am not going to let it put the second down in a book under a stair and have it read in a generation as the first.
+
+“**And I want it entered that this is the third time this bench has refused a thing for a reason. Five askings for the crossing four hundred yards up this town's own road, a fifth of them brought up two flights and not put, a sixth in a Harvestmonth with a figure of forty marks on a page and a man who said that was correct before he said anything else, a seventh on the thirtieth of Fallowmonth with the word consent in it four times, and now this. Five and one and one and one and one is eight things asked of this bench in nineteen years and I would like the count on the page under that stair where anybody coming up can read it, because in about forty years somebody is going to come up these stairs wanting to know what this county thinks about roads, and there is going to be one line in that book that answers it, and I want it to be the right one.**”
+
+The clerk read that back and entered it and read it again, and the second reading was slower and not better, and that has been the practice of that room since the first year.
+
+---
+
+**And the clerk entered the reason twice and entered no names, and that is the first time in nineteen years that a refusal in that minute has gone in with no name of any kind against it.**
+
+Nobody spoke. The reeve did not vote and has not voted on the guild's own matter in nine years. The magistrate, who is the reeve's sister and has been at that bench for nine years and has beaten two counts of persons with a form's own construction and is frightened of her own answer, did not vote and did not speak, and about four people in that hall have said since that a woman who has been frightened of her own answer for nine years sat at that table on the sixth of Goatmonth, YR 315 while a form with a district on it lay on it and said nothing at all, and that the sheet on the table was a count of persons with nowhere on it to put a name and that she has beaten two of those with the form's own construction and that she said nothing.
+
+**A man of forty-seven who is on that bench because a man in a market asked who was going and who has voted once in nineteen years and once was a hand going up in a room with no speech in it did not vote, and did not say anything, and the clerk did not enter that he was in the room.**
+
+That is the fact of that sitting and about four people in that hall have said since that the clerk's rule is that he enters no name that was not put there by somebody else in the room, and that a man who does not vote is a thing nobody else in the room put there, and that the clerk sat with a pen for about half a minute and did not write it, and that about four people in that hall have worked out that a clerk who does not write down a silence is doing the same thing a clerk does when he does not rule a line across an empty space, and that the rule about empty spaces is one he did not make and has kept for nineteen years, and that he has said out loud to two people in that hall that he would not rule a line across a child's name if he could and that he has not said it a third time.
+
+**And the man of forty-seven said one thing afterwards, and it was about eleven words, and he said it to the sheet and not to the room, and about four people in that hall have said since that it is the second time he has said a thing nobody asked him for and that the clerk entered neither of the two.**
+
+“**I have been the witness at two ends of two crossings in a year and I am not a road warden, and I have said that in this room before, and I am not going to be asked about a district either.**”
+
+---
+
+**And the reeve of this town has four names in a subscription book at a market four times a year, and two of them are the same man twice, and she knows the figure and the man does not, and about four people in that hall have said that a woman who gets to a true thing by saying the wrong one first has been doing it for as long as she has held the office and that it is the only thing in the office she is good at.**
+
+She said one thing about the sheet after the reason went in twice and it was not to the bench, and it was about nineteen words, and about four people in that hall have said since that it is the only thing she has said in that room in about a year that was not about a road and that the reeve of this town has said in a market four times a year for about nine years that a thing is wanted by name and that about half the names in that book are the same four men and that the book is not a minute and cannot be got out of and is not got out of.
+
+“**I have said the wrong thing first for nine years and the wrong thing is the only thing that has ever got anybody to look at the right one, and if this county is on a sheet in a provincial town then this county is on it as a set of market towns, and a set of market towns is a thing you can count, and I am not going to sit here and be counted.**”
+
+Nobody improved on it and nobody voted on it. And about four people in that hall have said that a reeve who does not vote on the guild's own matter and has not for nine years said a thing on a Saturday morning that is about being counted, and that the minute carries that she said it and carries no name of anybody who voted, and that a clerk of about sixty has kept that minute for nineteen years and has never once entered a vote of his own opinion and that on the sixth of Goatmonth, YR 315 he entered the absence of one for the first time by not entering it at all.
+
+---
+
+**And about four hundred people were in that market that morning and about forty of them came up four hundred yards of lane to a reach with the road open, and a market in this county is on a Saturday and on a Thursday and that is the whole of it, and on a Thursday the hall does not sit and there are a few in Merefen who could tell you that a Thursday is a market and no more than that.**
+
+There was salt and fish and peat and one load of glass in that market on the sixth of Goatmonth, YR 315, and a waggon of stone out of a quarry eleven miles up the channel that was not for sale and stopped at the wharf for about an hour and a half and went back, and a good half of them in that hall have said since that a road open over a bridge brings people up a channel road who have not come up it before, and that the county has never asked whether it wants them and has not voted on it and would not know what to do with a vote.
+
+And a bell with a band of forty-one rivets in it was rung at the fourth hour and a half by a boy and a carpenter and not by anybody else, four hundred yards up that county's own road, and about four people in that hall have said that a witness repeats four words and that a bell is a thing nine men in a yard can be asked for and that nobody in this county has asked the yard for anything since the eighth of Embermonth in the year before, and that about nine people on that yard are working every working day and that one of the nine has not once said his brother's name and that nobody on that yard has asked him why.
+
+And a man of about nineteen who has an elder sister of twenty-two came down four hundred yards of lane on the Thursday before this one to see what a man was doing at a door and did not ask, and he was in that room on the Saturday and did not ask that either, and about four people in that hall have said that a man of about nineteen in a room for an hour and a half is a man who is going to be a foreman before he is thirty and that everybody in that yard knows it and nobody is going to say it to him.
+
+---
+
+**And the market had gone in at about the sixth hour and the tide was under the wharf and the road four hundred yards down the lane was open and about forty men were on it, and the fourth bay of the reach was being pointed and the joint on that parapet was a foot and a half short, and nobody in that hall has ever measured that joint and the clerk has been asked about it once and said that a clerk cannot measure a thing and that the only figure in this room is two marks in a chest and that neither of them moved.**
+
+And a sheet of a printed series with four empty places in it and a district on it and a word in the object column that nobody in that hall can read the sense of went down to a press on a table in a room over a wharf and was not answered, and about four people in that hall have said since that a bench that has been asked eight things and has said no to three of them for reasons and yes to four and has never once been asked to be a witness has a county behind it, and that the county does not know it has one, and that the two marks in the chest under the window have not moved since the ninth of Fallowmonth in the year before last and that a bench of nine has said no to a form in eleven words and that the eleven words are the shortest thing in this room and that they are about a word and not about a road, and that in about forty years somebody will come up that stair and want to know what this county thinks about roads and there will be one line in that book that answers it.
