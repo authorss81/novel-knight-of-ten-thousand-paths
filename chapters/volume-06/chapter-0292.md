@@ -60,8 +60,6 @@ She put the pencil back in the drawer and shut it and did not go down to the wha
 
 ---
 
----
-
 The keeper of records asked him one thing and he gave her one answer and it was the whole of that exchange.
 
 “**Do you knock.**”
@@ -88,7 +86,7 @@ That street filled at about the second hour and was empty again by about the sev
 
 **And at about the sixth hour a man of thirty-two with a limp came down the outside stair of a room over a smithy in that town and got as far as the end of his lane and sat down on the step of a door about four feet off the ground, and he did not go up the lane, and about four hundred people in that market were standing in a street four hundred yards off and did not see him.**
 
-He had been in a room over a smithy since the sixth day of a month in a year in which the year turns and the fever had been out of him sixteen days, and he could get down one flight and could not get up a bank, and a man who can get down a flight and cannot get up a bank sits on a step and does not explain the difference to anybody.
+He had been in a room over a smithy since the sixth day of a month in a year in which the year turns and the fever had been out of him fifteen days, and he could get down one flight and could not get up a bank, and a man who can get down a flight and cannot get up a bank sits on a step and does not explain the difference to anybody.
 
 A woman of about thirty with a pail went up that lane at about the sixth hour and saw him on that step and went round the step.
 

@@ -34,7 +34,7 @@ And the reeve went down the two flights and did not improve on that, and nobody 
 
 ---
 
-The sheet says that the record entered against that set of market towns is contested, and it does not say by whom, and it does not say what the record is, and it gives a day by which cause may be shown to an office two hundred miles off, and the day is about eleven weeks off, and there is no line on that sheet for a person and no column in that office that a county can send an answer in.
+The sheet says that the record entered against that set of market towns is contested, and it does not say by whom, and it does not say what the record is, and it gives a day by which cause may be shown to an office two hundred miles off, and the day is about ten weeks off, and there is no line on that sheet for a person and no column in that office that a county can send an answer in.
 
 A county of about four thousand people with three kinds of paper in it has looked at a fourth, and there is nothing a person in that county can put on it. A claim in that office is a claim about a person, and the thing that is contested is a figure, and the two of those cannot be made into one another by anybody who has not got a column for it, and there is no column, and about four hundred people in that town do not know that there is a day.
 
@@ -51,8 +51,6 @@ He took it out at about the sixth hour and a half. There were eleven lines on a 
 He has looked at that leaf five times in five months and finished never, and that afternoon was the sixth time, and it is not finished, and a man who has looked at one line of paper six times in six months has not finished it, and there is nobody in that county he could finish it with, and the seventh line is a question, and the sixth time is the closest he has come to it, and nobody in that county has ever been told there is a question.
 
 His left palm was warm at about the fourth hour and had been warm at about the fourth hour in that county for two years and nobody in that county knows that.
-
----
 
 ---
 

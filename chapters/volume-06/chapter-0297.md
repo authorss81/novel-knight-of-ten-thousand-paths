@@ -26,13 +26,11 @@ The hundred and forty cut into the end of the bench at the back of the right-han
 
 ---
 
----
-
 What they keep is the ninth spread, and it runs to something over two hundred lines, and the day on any one of those lines is the day somebody was born, and about two hundred of that generation have never once left that valley and are not going to be asked to. The man of fifty-eight has stood in that room and said out loud that nobody here put two hundred people into a column to be struck and that no form in the world would fit the ninth spread to any use, and it is a list of births with a day against each one, and it has been kept in the shape of somebody else's answer for a hundred and forty years.
 
 A second column has been ruled on that ninth spread, two fingers wide, in the same man's own ink, and eight people have put their own names down in it. The ninth line is blank and has not been ruled across and is not going to be. In the day column opposite there is a figure of nine, and it is out by one, and in the margin in the same hand it says *eight named and one not found*.
 
-The man of fifty-five asked about the ninth line. He has not been in that room at a first spread in about nine years and he asked about a column and not about a man, and he asked it at the eighth hour in about nine words and nobody improved on it.
+The man of fifty-five asked about the ninth line. He has not been in that room at a first spread in about nine years and he asked about a column and not about a man, and he asked it at the eighth hour in twelve words and nobody improved on it.
 
 “**The ninth line is not ruled across.**”
 
@@ -56,13 +54,9 @@ Nothing in that room was counted by hands, and there has been no place in that r
 
 ---
 
----
-
 The valley has eleven steadings and four hamlets and about four hundred people in it and about two hundred of the ninth generation, and a road about four hundred yards long with a standing finish on it, made by hand, and the standing finish has been there since the summer before last and it is the only straight thing in that valley, and a man of thirty-four dug it and has never once been asked whether it goes anywhere, and it does not go anywhere, and it is a road in the sense that a river is a road.
 
 And a bridge over the river with about two hundred and forty feet of stone on it, and the parapet on it was done in a summer by about nine men and it has a number cut into the end of the fourth stone of the second span, and the number is the number of a bench in that room over the cross and nobody in that valley has ever said so out loud, and the woman of thirty-six who keeps that bridge did not put it there and does not know who did.
-
----
 
 ---
 

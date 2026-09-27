@@ -49,7 +49,7 @@ The man of thirty-four was still in the yard at about the seventh hour and she s
 
 “**I am not going to tell anybody,**” the man of thirty-four said.
 
-“**That is not the same thing,**” Bessa Quill said, and the two of them have never raised it since and are not going to, and a woman who keeps a bridge got a man in a yard to promise her a thing in nine words and then told him that a promise and an entry are not the same thing, and a valley of about four hundred people has an instrument for the second of those and not for the first, and the instrument is a book nobody will show her.
+“**That is not the same thing,**” Bessa Quill said, and the two of them have never raised it since and are not going to, and a woman who keeps a bridge got a man in a yard to promise her a thing in seven words and then told him that a promise and an entry are not the same thing, and a valley of about four hundred people has an instrument for the second of those and not for the first, and the instrument is a book nobody will show her.
 
 And the man at the mill came out of the mill door at about the seventh hour and a quarter and shut it behind him and stood in the cold for about two minutes and said nothing to anybody, and went back in, and about four hundred people in that valley do not know that three people said three short things in a yard that afternoon and that about two hundred of the ninth generation were inside the mill and heard none of them.
 

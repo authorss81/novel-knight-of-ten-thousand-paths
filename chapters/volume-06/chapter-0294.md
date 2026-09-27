@@ -60,8 +60,6 @@ A man of about sixty came in with a tray at about the third hour, put down enoug
 
 ---
 
----
-
 On the line for that district, under the date and the figures, there is one more entry, and it is the only entry in that book that is not a return, and it went in in the second month of this year as a sheet because a sheet is what it is and there was no line for anything else, and a man of thirty-four is a second clerk of the returns and has been in that building eleven years.
 
 The woman of about twenty-nine carried the quarter forward over the top of it. The pen went across the line above and the line above that and did not stop on it and did not go round it, and about four seconds is not long enough to decide to do that and long enough to do it, and she has not asked him about it and he has not come up and explained it, and there is no column in that book for an entry that was made correctly and is still not a return.

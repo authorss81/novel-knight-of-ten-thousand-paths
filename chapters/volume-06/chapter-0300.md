@@ -28,7 +28,7 @@ A bench of nine has been asked eight things in nineteen years. Four yes, three n
 
 **And a woman of thirty-eight came up the outside stair at about the seventh hour on her own and put a sheet on the long table face down and did not sit down.**
 
-She is of the office that convened a proceeding in a chamber in a provincial town two hundred miles off in the second month of this year, and she has been in that building nine years and has written a finding at the end of nine of them, and what she has at the end of every one of the nine is a figure, and she has known since the fourteenth of a month in Thawmonth that it would be and entered the room anyway, and being correct is the most expensive thing available to a person in a chamber.
+She is of the office that convened a proceeding in a chamber in a provincial town two hundred miles off in the second month of this year, and she has been in that building nine years and has written a finding at the end of nine of them, and what she has at the end of every one of the nine is a figure, and a figure is a thing that can be carried in one hand and set down on a table in front of nine men, and she has known since the fourteenth of a month in Thawmonth that this morning would be the ninth of those and she came up that stair anyway, and there is nobody in that room to ask her what the ninth one was going to be.
 
 She turned the sheet over. It is the term of a temporary injunction against forced culling and it holds to a day, and after that day it holds if a local council renews it in public, and the day is about nine days off, and there is no council in this county and there is no writ and no seal and no office in this county at all.
 

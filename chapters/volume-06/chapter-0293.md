@@ -66,8 +66,6 @@ And a man of about thirty who is a clerk of that room came down at about the fif
 
 ---
 
----
-
 A man of about thirty-one with a satchel came through that building at about the fifth hour on his way down to a cart and stopped in the passage outside that press room because a man of about fifty was standing at a stone with a sheet under his hand and not working it.
 
 “**Is that going out today,**” the man with the satchel said.
@@ -88,7 +86,7 @@ A sheet of the office's own printed series for the contested record is a penny. 
 
 *A penny and a penny is twopence. Twopence and a penny is threepence. Threepence and fourpence is sevenpence. Sevenpence and twopence is nine pence.*
 
-Total: nine pence. And no figure out of another county and no figure out of another room is in that column, and the wages of a boy of nineteen at that press are on a sheet in a drawer in that building and the sheet is not one of the five items, and the fourpence a year that a body corporate in a fen county pays at the end of a lane four feet from a wagon arch is in a different column in a different county and is not in this one, and nobody in that building has added one to another of them, and being correct is the most expensive thing available to a person in a room.
+Total: nine pence. And no figure out of another county and no figure out of another room is in that column, and the wages of a boy of nineteen at that press are on a sheet in a drawer in that building and the sheet is not one of the five items, and nobody in that building has added one to another of them, and being correct is the most expensive thing available to a person in a room.
 
 ---
 
