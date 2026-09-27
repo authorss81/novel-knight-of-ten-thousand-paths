@@ -16,7 +16,7 @@ It has been asked nine things in nineteen years. Four were yes and three were no
 
 **And under the fourth step of the outside stair of that room there is a slip of paper about nine inches by six, and the figure at the head of it is in a hand that does not write figures very well, and there are nine marks under that figure, and it said nine before that Saturday and it said nine after it, and what that figure counts is askings, and an asking is neither money nor a person and goes into nobody's arithmetic, and no form in that hall has ever been the place one went.**
 
-**And a hundred and forty is cut into the end of one of twenty-nine benches in a room over a cross four hundred miles off, and what that one counts is how often anybody has ever was in an aisle to be asked, and those two nines and that hundred and forty and the nine piles on a board in a shop are four different figures and no person in this kingdom has ever added any of them to any of the others and is not going to.**
+**And a hundred and forty is cut into the end of one of twenty-nine benches in a room over a cross four hundred miles off, and what that one counts is how often anybody has ever been in an aisle to be asked, and those two nines and that hundred and forty and the nine piles on a board in a shop are four different figures and no person in this kingdom has ever added any of them to any of the others and is not going to.**
 
 Nobody walked a part of that day with anybody. Two hundred yards of market carried about four hundred people and about five hundred of that county did not come out of their houses, the mill two days up the water turned as a mill turns, nine men stood at a bench-board four feet off the ground in a yard, and a man of about fifty-five worked three bars at a barrier nine hundred yards further up that same road that anybody at all can go round at either end in nine seconds.
 
@@ -24,7 +24,7 @@ Nobody walked a part of that day with anybody. Two hundred yards of market carri
 
 **And at the fourth hour a man with a satchel came into the yard of that building and put the satchel on the bench against the wall and asked the man of about forty a question, and it was the first question anybody in that building has been asked in about four years, and it went the other way from the way a question goes in a shop.**
 
-He is about thirty. He has a satchel and a firm is not in it and he carries for a trade that has a name and the name is not printed on anything he carries. He had been in that room once before, in the last month of the year before last, and had was in it for nine minutes with a bundle against his chest while a woman of about fifty counted four hundred and fifty sheets into nine piles, and nobody spoke to him then and nobody has spoken to him in four years and he has not said that he had been there before.
+He is about thirty. He has a satchel and a firm is not in it and he carries for a trade that has a name and the name is not printed on anything he carries. He had been in that room once before, in the last month of the year before last, and was in it for nine minutes with a bundle against his chest while a woman of about fifty counted four hundred and fifty sheets into nine piles, and nobody spoke to him then and nobody has spoken to him in four years and he has not said that he had been there before.
 
 “**What is in the pigeonholes,**” he said.
 

@@ -66,7 +66,7 @@ And about two people in that county have been saying since that a man of thirty-
 
 **And that Wednesday is set out here in pennies, and the total is on the line after the last item.**
 
-A quill, a penny. A candle, a penny. A wick, a penny. A pot of oil for a lamp, twopence. A sheet of that office's own printed series, blank, to make the count on, a penny. A leather apron, twopence. A fathom of string, threepence. The charge for entering one line in a book, fourpence.
+A quill, a penny. A candle, a penny. A pot of oil for a lamp, twopence. A sheet of that office's own printed series, blank, to make the count on, a penny. A leather apron, twopence. A fathom of string, threepence. The charge for entering one line in a book, fourpence.
 
 *Three of those are pennies and that is threepence, and the apron and the oil are twopence each and that is fourpence, so threepence and fourpence is sevenpence, and the string is threepence, so sevenpence and threepence is tenpence, and the charge is fourpence, and tenpence and fourpence is fourteen pence, and fourteen pence is the whole of that Wednesday.*
 
