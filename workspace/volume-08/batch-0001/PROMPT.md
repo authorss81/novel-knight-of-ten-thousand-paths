@@ -1,3 +1,5 @@
+Retired phase — Batch 0001 was written inside phase next-0002, which opened Volume 08, planned the volume and wrote its first block in a single run, so this prompt was planned and spent in the same phase and never got a `.done` of its own. **Chapters 351 to 360, this prompt, `outline/volume-08.md` and every state update are committed.** The file is kept as the record of what Block 0001 was planned to be and must not be dispatched again; a re-dispatch would rewrite ten finished chapters. **The next phase for this volume is `workspace/volume-08/batch-0002/PROMPT.md`, Chapters 361 to 370.**
+
 # Volume 08, Batch 0001 — Chapters 351 to 360
 
 ## 0. What this phase is, and what it is not

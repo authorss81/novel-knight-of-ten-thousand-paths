@@ -336,7 +336,8 @@ Batches 0001 to 0005, ten chapters each. **The cap is six per batch, per `bible/
 | 665 | Rainmonth 30 | Mon | not, and the end of the month |
 | 666 | Harvestmonth 1 | Tue | not, and a month carried at thirty begins |
 | 668 | Harvestmonth 3 | Thu | market, and Chapter 357 |
-| 675 | Harvestmonth 10 | Thu | market, and Chapter 358 |
+| 672 | Harvestmonth 7 | Mon | not a market day, and Chapter 358 |
+| 675 | Harvestmonth 10 | Thu | market |
 | 682 | Harvestmonth 17 | Thu | market, and Chapter 359 |
 | 688 | Harvestmonth 23 | Wed | not, and Chapter 360 |
 | **690** | **Harvestmonth 25** | **Fri** | **not a market day, and Block 1 ends** |
