@@ -26,7 +26,7 @@ The man of about twenty-nine put his cup down.
 
 “**He wanted a name,**” she said, “**for the road. And I said I would find out who was asking before I said anything, and I have been on this road nine days and I have asked two men and one of them told me there is a room over a weigh-house with a door on a lane, and the man who told me had it off a man who told him, and I do not think either of them has been in it.**”
 
-**That is sixty-seven words in one turn of one speech and it is the whole of what she said for the first hour, and the man of about twenty-nine counted them on his thumb without knowing he was doing it and told nobody and has not told anybody.**
+**That is sixty-seven words in one turn of one speech and it is the first of the seven things she says in that taproom, and the man of about twenty-nine counted it on his thumb without knowing he was doing it and told nobody and has not told anybody.**
 
 “**You have been in it,**” said the man of thirty-two with a limp.
 

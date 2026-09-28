@@ -20,7 +20,11 @@ He said that he had.
 
 “**You are standing like a man who has been carrying something for nine days,**” she said, “**and you have not got anything, and that is the only thing I have ever seen you do that was wrong.**”
 
-**And that is thirty-five words in one turn of one speech, and it is the only sentence anybody said to him on that road that morning, and she said it in the accent of a foreshore and he answered in the same accent, in a sentence that was about the tide and not about himself, and about nine people going past heard both of them and about four of the nine looked at each other and about none of the nine said anything.**
+**And that is thirty-five words in one turn of one speech, and it is the second thing she said to him on that road, and she said it in the accent of a foreshore, and he answered it in the same accent in a sentence about the tide and not about himself, and about nine people going past heard the two of them and about four of the nine looked at each other and about none of the nine said anything.**
+
+“**There will be water over that wall this afternoon,**” he said, “**and it will be off it again by the eighth hour of the morning.**”
+
+**And he did not hear it. On the eighth of a month a woman of about thirty-four with a barrow said one sentence of his back to him to be sure he had said it, and he heard the two of them about four seconds apart and they were not the same sound, and that was five weeks earlier, and the sound that came out of him on this road was the sound he meant.**
 
 He asked her one question and it was about the man with a chain, and she said the surveyor was coming back on the ninth day with a second chain and a longer rod, and that the man with the sheet came with him about half of the time, and that neither of them had ever been on that sand at the fourth hour of a morning, and then she went.
 
