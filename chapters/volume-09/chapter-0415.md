@@ -10,7 +10,7 @@ He got on the cart at a crossroads about eleven miles off the room and he was no
 
 **And then he was given a sheet at the last moment by a woman of twenty-nine who did not put a head on it and did not say where it went, and he put it in the inside pocket of the coat that is not his, and he has carried it about a day and a half and has not looked at it, because he was told not to say what the sheet was and he decided some while ago that not looking is the same as not saying, and that decision is a good one and is about the only thing about the last eleven days that is entirely his.**
 
-The cart went about two days and he was put down at a crossroads at about the fourth hour of the second day, and the two days of his own trade were gone, and the ditch four hundred yards west of a bar in another county was not his ditch and there was no bar on this road.
+The cart went about two days and he was put down at a crossroads at about the fourth hour of the second day, and the two days of his own trade were gone, and the ditch four hundred yards west of a bar in another county was not on this road, and there was no bar on it.
 
 **The two days were on a made road and about four hundred carts a week go up it and the cart went at about four miles an hour and stopped four times in two days, once for a ford and twice for a cart that had come off in the middle, and the man of about thirty-three with a barrow got off it at each stop and put a shoulder against the back of it and did not say anything to the driver, and the driver did not say anything to him, and that is the whole of what he did for two days for a woman of twenty-nine who did not ask him to.**
 

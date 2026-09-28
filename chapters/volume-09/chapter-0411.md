@@ -20,7 +20,7 @@ There were about eleven people in that room and four kinds of answer came out of
 
 **A man of about thirty-eight who had come in off the salt road with a load of glass said that the person who has to be here is the man whose father's name is on the gate, and that if that man dies the thing stops until there is another one, and that there usually is, and he said it in the tone of a man describing a lock.**
 
-**A man of about fifty-eight who keeps a pound in that township said that whoever is in the chair that night is the person, and that the chair goes round, and that a man sits in it a year and then it goes to the next, and that the going round has been going round in this county for about a hundred and forty years and has never once had a name in it.**
+**A man of about fifty-eight who keeps a pound in that township said that whoever is in the chair that night is the person, and that the chair goes round, and that a man sits in it about a month and then it goes to the next, and that the going round has been going round in this county for about a hundred and forty years, and that nobody in that township can tell you from one month to the next who is in it.**
 
 **A woman of about thirty-one said that anybody in nine hundred people may put their name in the hat at the back of the room and anybody may come and look at the names before the names are read, and that about nine people do it every year and take a month at a time, and she said that this is the fairest arrangement she knows of anywhere and that she has never once heard of a thing that is done that way.**
 
