@@ -1,6 +1,6 @@
 # Chapter 0427
 
-**The eighth day of Harvestmonth, YR 318, a Wednesday and not a market day, and the second hour and the fifth hour and the eighth hour, nine miles on past four lime kilns on a made road that runs between a market and about four hundred people, in a house with about nine feet between the kitchen and the front room, where a slip of paper with three things on it has been on the counter for five days, and a boy of seventeen with a hand-basket of glass has been coming into that room four years and has been fed about four hundred times and has never once been asked for anything, and on this morning he was asked for nothing and did the thing himself.**
+**The eighth day of Harvestmonth, YR 318, a Friday and not a market day, and the second hour and the fifth hour and the eighth hour, nine miles on past four lime kilns on a made road that runs between a market and about four hundred people, in a house with about nine feet between the kitchen and the front room, where a slip of paper with three things on it has been on the counter for six days, and a boy of seventeen with a hand-basket of glass has been coming into that room four years and has been fed about four hundred times and has never once been asked for anything, and on this morning he was asked for nothing and did the thing himself.**
 
 ## One
 
@@ -60,7 +60,7 @@ He did not go down it. He has not been down the far half of it. Nobody asked him
 
 ## Five
 
-The cost of that Wednesday is a column and it is a boy's column and a boy's is the smallest thing in this kind and it is the only one that has ever been right.
+The cost of that Friday is a column and it is a boy's column and a boy's is the smallest thing in this kind and it is the only one that has ever been right.
 
 **A second loaf at one penny, a hand-basket mended at three pence, a bed at two pence, a tallow candle at two pence, a quart of small beer at two pence, a loaf at one penny, a boy's wages for a day at four pence, a fire at three pence, a second quart of small beer at two pence, and seven days of the same at four pence a day: one, three, two, two, two, one, four, three, two, twenty-eight is forty-eight pence.** A mark is forty-eight pence, and that is a mark exactly, and it is the whole of what a week of a boy who carries glass between two places and cannot read his own book costs anybody.
 

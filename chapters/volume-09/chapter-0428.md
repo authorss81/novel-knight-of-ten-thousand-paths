@@ -1,10 +1,10 @@
 # Chapter 0428
 
-**The ninth, tenth, eleventh and twelfth days of Harvestmonth, YR 318, a Thursday, a Friday, a Saturday and a Sunday, and two of the four are market days, and the four places are an office over a shop, a gate in a field, a yard, and a single arch over a beck nine miles off the kilns, and the four are not in a line with each other and about nine hundred sheets a month go out of the first of them into nine counties while a mason of about sixty-eight stands about nine feet off the fourth of them and is not sent for.**
+**The ninth, tenth, eleventh and twelfth days of Harvestmonth, YR 318, a Saturday, a Sunday, a Monday and a Tuesday, and one of the four is a market day, and the four places are an office over a shop, a gate in a field, a yard, and a single arch over a beck nine miles off the kilns, and the four are not in a line with each other and about nine hundred sheets a month go out of the first of them into nine counties while a mason of about sixty-eight stands about nine feet off the fourth of them and is not sent for.**
 
 ## One
 
-**On the Thursday a man of about thirty-four with a sheet asked him for a person.**
+**On the Saturday a man of about thirty-four with a sheet asked him for a person.**
 
 The form was on the counter with the three lines on it and a second form behind it with a head on it that the first form did not have, and the head took a trade, and the trade was how a man is found.
 
@@ -16,7 +16,7 @@ Aren did not do it. He did not say he would not and he did not say why, and he s
 
 ## Two
 
-**On the Friday a man of about forty-four who farms a field asked him to say that a figure was right.**
+**On the Sunday a man of about forty-four who farms a field asked him to say that a figure was right.**
 
 He had come into Merefen with eleven dead sheep off the salt bank and he was in a yard in a street four hundred yards long and he had about two hours before the cart went.
 
@@ -28,7 +28,7 @@ Aren did not do it. He did not tell him the figure was wrong, because it was not
 
 ## Three
 
-**On the Saturday a man of about thirty-three with a barrow asked him to read a sheet out of a coat.**
+**On the Monday a man of about thirty-three with a barrow asked him to read a sheet out of a coat.**
 
 He did it in a yard about two miles from the bar he stands at on four days in seven, and he had the sheet in his hand and not out of the coat, which is a different thing, and he had carried it thirty-seven days and had a barrow-load of glass in the other hand.
 
@@ -44,13 +44,13 @@ Aren did not do it. He did not take it and he did not open it and he said that a
 
 ## Four
 
-**On the Sunday a mason of about sixty-eight asked him to carry one sentence to a man four miles off, and the sentence took him a day and a half to walk there and a day and a half to walk back and ten words to say.**
+**On the Tuesday a mason of about sixty-eight asked him to carry one sentence to a man four miles off, and the sentence took him a day and a half to walk there and a day and a half to walk back and ten words to say.**
 
 The arch is nine miles off the kilns at the end of an unclassified road and it is one span with no parapet on the ring and the beck is about eleven inches over the sill. **The top course of it is out of level by about a hand's width and it wants two men and a barrow and four days and a new stone, and the man four miles off only does drains, and the man standing nine feet off that arch has laid about nine hundred rings and has not been asked for one of them in about eleven years.**
 
 "**Will you ask him whether he would take it on.**"
 
-That is ten words and it is the whole of what a mason of about sixty-eight said to him on the Sunday, and it is the first time in about forty years that he has asked anybody for anything at all, and he is not sending anybody and nobody has sent anybody.
+That is ten words and it is the whole of what a mason of about sixty-eight said to him on the Tuesday, and it is the first time in about forty years that he has asked anybody for anything at all, and he is not sending anybody and nobody has sent anybody.
 
 Aren did not do it. He said he would, and he did not, and the mason of about sixty-eight went down to the beck and put a hand on the ring and said nothing else about it, and about nine feet of dressed top course on the north approach is a hand's width out of level and will be a hand's width out of level next spring.
 

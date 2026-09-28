@@ -1,10 +1,10 @@
 # Chapter 0426
 
-**The sixth day of Harvestmonth, YR 318, a Monday and not a market day, and the fourth hour and the seventh hour and the twelfth hour, at a house at the end of a lane in a field about two hundred yards off a made road, where the lintel over the door is a dressed stone about four feet long with nothing cut on it and a barrow has gone through that door about four thousand times, and the nine-mile road has its far end at the gate of that field and its near end in a market town of about two thousand people on the salt, and neither end of it is on any sheet.**
+**The sixth day of Harvestmonth, YR 318, a Wednesday and not a market day, and the fourth hour and the seventh hour and the twelfth hour, at a house at the end of a lane in a field about two hundred yards off a made road, where the lintel over the door is a dressed stone about four feet long with nothing cut on it and a barrow has gone through that door about four thousand times, and the nine-mile road has its far end at the gate of that field and its near end in a market town of about two thousand people on the salt, and neither end of it is on any sheet.**
 
 ## One
 
-He got there at about the fourth hour on the Monday, having walked the nine miles on the Sunday and slept in a barn with about nine other men in it, and the barn was four miles short of the field and the four miles were done between the fourth hour and the eighth hour of a morning, and getting up is about four seconds longer than sitting down and he did it about nine times.
+He got there at about the fourth hour on the Wednesday, having walked the nine miles on the Tuesday and slept in a barn with about nine other men in it, and the barn was four miles short of the field and the four miles were done between the fourth hour and the eighth hour of a morning, and getting up is about four seconds longer than sitting down and he did it about nine times.
 
 **The man of about thirty-four with a sheet was at the gate at the fourth hour. He was two hours early and he was waiting for the farrier to come out of Merefen and the farrier had not come, and he had a form rolled inside his coat and he was not working and he was not going to say anything to anybody about it.**
 
@@ -38,7 +38,7 @@ Then Aren asked him why, and the man of about thirty-three with a barrow said th
 
 ## Three
 
-**And here is what he learned, standing in that gateway at about the fifth hour on the Monday, and it is a discovery and not a defeat, and it is worth exactly as much as a ditch.**
+**And here is what he learned, standing in that gateway at about the fifth hour on the Wednesday, and it is a discovery and not a defeat, and it is worth exactly as much as a ditch.**
 
 The man of about thirty-three with a barrow has been on that road about nine years and has never been down the far half of it because a quarter of a mile of it is soft and takes a loaded barrow down about two inches, and a boy of about eleven with a pail has been on the shoulder of that ditch at every hour of the daylight every day for about a year, and the carts have gone round that quarter of a mile about two hundred times a week.
 
@@ -60,6 +60,6 @@ Aren put the same question to the man of about forty-four that a clerk of about 
 
 **The cost of the two days is a column and it is a rate and a wage and two days of a leg, and only one of the three is a figure.**
 
-**A bed at two pence, a loaf at one penny, a quart of small beer at two pence, a horse's feed at nine pence, a sheet of paper at one penny, a tallow candle at two pence, a fire at three pence, a room at six pence, a second loaf at one penny, cheese at two pence, and a farrier at one shilling and four pence, which is sixteen pence: two, one, two, nine, one, two, three, six, one, two, sixteen is forty-five pence.** A mark is forty-eight pence and forty-five pence is under one, and the sixteen of it is a rate a farrier set about nine years ago and the nine and the six and the three are a room and a fire and a bed on a Sunday in a barn with about nine other men in it.
+**A bed at two pence, a loaf at one penny, a quart of small beer at two pence, a horse's feed at nine pence, a sheet of paper at one penny, a tallow candle at two pence, a fire at three pence, a room at six pence, a second loaf at one penny, cheese at two pence, and a farrier at one shilling and four pence, which is sixteen pence: two, one, two, nine, one, two, three, six, one, two, sixteen is forty-five pence.** A mark is forty-eight pence and forty-five pence is under one, and the sixteen of it is a rate a farrier set about nine years ago and the nine and the six and the three are a room and a fire and a bed on a Tuesday in a barn with about nine other men in it.
 
 **And a lintel with nothing cut on it, and a hand on it at about the fourth hour, and three sentences that are not a voice and are not a warning and are not a reason, and a man who knows a road for nine years and has not been down the far half of it because of a ditch, and about two hundred carts a week that go round that quarter of a mile and always have, and not one of them knows there is a name for the road, and not one of them is going to find out, and the two hundred will keep going round it in the same four hundred yards for about two hundred years, and the name is on nine hundred sheets a month and a name is not a road and a road is not a name and about two inches is all that is between them.**
