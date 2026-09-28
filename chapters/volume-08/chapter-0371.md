@@ -16,7 +16,7 @@ The other four are the offer and the writing in them is the writing of somebody 
 
 ---
 
-**And two people in that lane have said since that the whole of what the nine lines add up to is four months and a person and a road that is already there, and that a piece of paper with three things on it that two winters of a community of about nine hundred people have agreed to is a more careful thing than a Crown instrument with nine things on it and a ruled space for a signature, and that neither of the two was in that room.**
+**And two people in that lane have said since that the whole of what the nine lines add up to is four months and a person and a road that is already there, and that a piece of paper with three things on it that two winters of a community of about nine hundred people have agreed to is a more careful thing than a Crown instrument with six columns and five heads on it and a ruled space for a signature, and that neither of the two was in that room.**
 
 Nobody in that room said a word about the seventh line for about a minute.
 
