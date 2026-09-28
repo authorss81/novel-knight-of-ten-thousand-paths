@@ -1,6 +1,6 @@
 # Chapter 0417
 
-**The ninth day of Rainmonth, YR 318, a Thursday and a market day, and the third hour and the sixth hour and the twelfth hour, in a fold of ground about thirty miles south of a fen town, where there is a byre and a stream and a boundary of two miles with nine stones in it, and about two hundred people live in the fold and a market comes into it on Thursdays, and about two hundred of the two hundred are in it today, and a man of about forty-one walked that boundary alone on the first of Longlight nine days ago with a boy of about nine in the fold with him, and about two hundred people in that fold know the boy did not walk it and not one of the two hundred knows why.**
+**The ninth day of Rainmonth, YR 318, a Thursday and a market day, and the third hour and the sixth hour and the twelfth hour, in a fold of ground about thirty miles south of a fen town, where there is a byre and a stream and a boundary of two miles with nine stones in it, and about two hundred people live in the fold and a market comes into it on Thursdays, and about two hundred of the two hundred are in it today, and a man of about forty-one walked that boundary alone on the first of Longlight thirty-eight days ago with a boy of about nine in the fold with him, and about two hundred people in that fold will know by the end of the year that the boy did not walk it and not one of the two hundred will know why.**
 
 ## One
 
@@ -8,17 +8,17 @@ He came into the fold on a Thursday because a Thursday is the day about two hund
 
 **The man of about forty-one was mending a hurdle at the second rail of the byre fence and the boy of about nine was taking a stone out of a wet hole with both hands and putting it back at a lean, and neither of them had been told anybody was coming and the man of about forty-one was not surprised and did not put the hurdle down.**
 
-They had talked about it at the third hour of a Friday in Greenmonth, on a lane, in about nine minutes, and the man of about forty-one had said that he had had nine years to say a thing to that boy and had got to the end of the nine years about twice, and about two hundred people in that fold do not know that either of those sentences has been said, and nothing was ended on a lane nine days ago and nothing was ended in the nine minutes before that and nothing is going to be ended in a field in Rainmonth.
+They had talked about it at the third hour of a Monday in Greenmonth, on a lane, in about nine minutes, and the man of about forty-one had said that he had had nine years to say a thing to that boy and had got to the end of the nine years about twice, and about two hundred people in that fold do not know that either of those sentences has been said, and nothing was ended on that lane in Greenmonth and nothing was ended in the nine minutes before it and nothing is going to be ended in a field in Rainmonth.
 
 ## Two
 
-He said it in the fourth hour, in the middle of a job, about four hundred yards down the boundary from the near stone, with the stream about nine feet wide on the right and a boy of nine about thirty feet off with a stone in his hands, and it took about nine seconds and it is nine words and it is the whole of what he had to say.
+He said it in the fourth hour, in the middle of a job, about four hundred yards down the boundary from the near stone, with the stream about nine feet wide on the right and a boy of nine about thirty feet off with a stone in his hands, and it took nine seconds and it is nine words and it is the whole of what he had to say.
 
 “**You do not have to. I have, thirty times.**”
 
 **And he did not say it twice and he did not say it again for about two hours, and the boy of nine put the stone back in the hole and leaned it and wiped his hands on his legs and came about eleven feet nearer and stood there, and neither of them said anything for about two hours, and about two hundred people in that fold had their market in the middle of it and about nine of them came past a hedge and saw two men about eleven feet apart not talking, and about four of the nine thought it was nothing.**
 
-Then the boy asked one question, and it was the only one he asked that day, and it is the question a fold of two hundred people has never had to ask.
+Then the boy asked one question, and it was the first of two he asked that day, and it is the question a fold of two hundred people has never had to ask.
 
 “**Then who walks it.**”
 
@@ -52,6 +52,6 @@ The cost of the year is a column and it is the boundary's and it is got up in a 
 
 ## Five
 
-**And a man of about thirty-two with a limp stood in a fold of ground thirty miles south for about nine hours and did not ask a single question about the boundary, and the reason he did not ask is that the man of about forty-one had already asked the only question anybody can ask about a boundary and had answered it out loud in a lane in Greenmonth, and a man who has answered a thing that plainly is not asked it again by a stranger in a field, and the price of that restraint is that he will go away from this fold with nothing new except nine seconds of it in a lane that he was not in.**
+**And a man of about thirty-two with a limp stood in a fold of ground thirty miles south for about nine hours and did not ask a single question about the boundary, and the reason he did not ask is that the man of about forty-one had already asked the only question anybody can ask about a boundary and had answered it out loud in a lane in Greenmonth, and a man who has answered a thing that plainly does not get asked it again by a stranger in a field, and the price of that restraint is that he goes away from this fold with nothing new except nine seconds of it in a lane he stood in and said nothing about.**
 
-**And a boy of nine in new boots walked about forty yards of that boundary on his own that afternoon with nobody, and got as far as the second stone and turned back, and the man of about forty-one did not follow him and did not stop him and was mending a hurdle about nine hundred yards off and did not look up twice in about forty minutes, and about two hundred people in that fold will know by the end of the year that the boy of nine did not walk the boundary, and not one of the two hundred knows why, and there is no form in this kingdom on which a person puts down that a man walked two miles alone with his own son in the fold with him and told the boy in nine words that he did not have to, and that the boy asked the only question, and that the answer was nobody.**
+**And a boy of nine in new boots walked about forty yards of that boundary on his own that afternoon with nobody, and got as far as the second stone and turned back, and the man of about forty-one did not follow him and did not stop him and was mending a hurdle about nine hundred yards off and did not look up twice in about forty minutes, and about two hundred people in that fold will know by the end of the year that the boy of nine did not walk the boundary, and not one of the two hundred knows why, and there is no form in this kingdom on which a person puts down that a man walked two miles of boundary with a boy of nine in the fold and no second person out, and told that boy in nine words that he did not have to, and that the boy asked the only question, and that the answer was nobody.**

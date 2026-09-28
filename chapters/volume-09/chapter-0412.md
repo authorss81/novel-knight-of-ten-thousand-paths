@@ -6,7 +6,7 @@
 
 The room has a chair on a platform and a hat on a shelf and a book in which what was agreed is written, and the room has had both for about a hundred and forty years, and the room uses them for a pound, a common oven, a set of nets, the repair of a water trough, and a list of other things that is a list of about nine over four generations.
 
-**The way the room works is that anybody may put a name in the hat, and anybody may come and look at the names in the hat before the names are read, and about nine people out of about nine hundred put a name in every year, and each of the nine has the thing for a month, and when the nine are done they are done again the next year with different names, and the chair has gone round about twenty times in a hundred and forty years and it has never once had anybody's name against it for longer than a month.**
+**The way the room works is that anybody may put a name in the hat, and anybody may come and look at the names in the hat before the names are read, and about nine people out of about nine hundred put a name in every year, and each of the nine has the thing for a month, and when the nine are done they are done again the next year with different names, and the chair has gone round about nine times a year and about a hundred and forty times in a hundred and forty years, and it has never once had anybody's name against it for longer than a month.**
 
 That is the whole of the arrangement and it is a good arrangement and about nine people in nine counties have at some point said so in those words.
 
@@ -26,7 +26,7 @@ Then the room did what rooms do, and it turned the thing over to the chair, and 
 
 ## Three
 
-The fifth of the eight is four words long and it is the one nobody can do on purpose.
+The fifth of the eight is five words long and it is the one nobody can do on purpose.
 
 Say it in a room.
 
@@ -42,11 +42,11 @@ The hat had nine names in it on the third of a month and it had nine names in it
 
 **And then a woman of about twenty-nine who was in the room and had not said anything for two hours said, in the ordinary way, that the man of about thirty-eight had been asked about the chair in a kitchen in a town about nine miles off four days ago and had said that he would not take it, and that he had not said why, and that the room had not heard that from anybody and she had heard it from a man who had been in a kitchen, and that a name in a hat and a man who has already said no are not the same thing and only one of them can be read from the back of the room.**
 
-Nobody asked her where she had heard it, and nobody asked her twice, and the woman of about sixty-three took the name out of the hat with a piece of chalk and put a line through it and wrote the other eight in, and the eight went round, and about nine hundred people in that township did not know that any of it had happened, and the man of about thirty-eight seven miles off was mucking out a byre and did not know that his name had been struck out of a hat in a room he has not been in since he was nineteen, and will not know until somebody tells him, and nobody in that room is going to.
+Nobody asked her where she had heard it, and nobody asked her twice, and about nine hundred people in that township did not know that any of it had happened, and the man of about thirty-eight seven miles off was mucking out a byre and did not know that his name was in a hat in a room he has not been in since he was nineteen, and had already said no to a chair in a kitchen nine miles off, and will know neither of those two things until somebody tells him, and nobody in that room is going to.
 
 ## Four
 
-A woman of about forty-nine said the thing that nobody had said, and she said it to the man of about thirty-four with the net and not to the man with the stick, and it is the fourth time in about nine days that a man of thirty-two with a limp has been told something in a room by a person who had not been asked to tell him anything, and he did not answer it.
+A woman of about forty-nine said the thing that nobody had said, and she said it to the man of about thirty-four with the net and not to the man with the stick, and it is the second time in about five days that a man of thirty-two with a limp has been told something in a room by a person who had not been asked to tell him anything, and he did not answer it.
 
 **“The man in the chair is not the person it is for,**” she said. “**And you cannot put him there by drawing him out of a hat, and if you can, then you have made a room into a bench, and this room has been a room for a hundred and forty years.**”
 
@@ -58,7 +58,7 @@ Nobody improved on it. A man of about thirty-four said that the room could be as
 
 ## Five
 
-The cost of the night is a column and it was got up in a room that does not keep a column, which is a thing about four hundred years and one water trough and about nine counties.
+The cost of the night is a column and it was got up in a room that does not keep a column, which is a thing about a hundred and forty years and one water trough and about nine counties.
 
 **A room at six pence for the night, a lamp at two pence, a sheet of paper at one penny, a pound of wood at three pence, a loaf at one penny, cheese at two pence, four quarts of small beer at four pence, and a tallow candle at three pence: six, two, one, three, one, two, four, three is twenty-two pence.** A mark is forty-eight pence and twenty-two pence is a little under half of one, and the woman of about sixty-three who keeps the book took the whole of it out of a box on the shelf and would not put it in the book, and said that the book is for what was agreed and not for what it cost, and that the trough has been in the book since her husband's time and the lamp has never been in the book once.
 

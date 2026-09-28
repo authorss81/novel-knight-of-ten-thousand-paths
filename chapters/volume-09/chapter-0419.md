@@ -14,7 +14,7 @@ A mason of about sixty-eight was in the room. He had come because he was told th
 
 ## Two
 
-The column was written at about the fifth hour and it took him about four minutes and it has four lines and four heads and he wrote the four heads and then he stopped for about a minute and a half and then he wrote them.
+The column was written at about the fifth hour and it took him about four minutes and it has four lines and four heads and he wrote the four heads and then he stopped for about a minute and a half and then he wrote the four lines under them.
 
 **What the thing is. Where it is. How often it happens. And a fourth head, which is who holds it.**
 
@@ -44,7 +44,7 @@ And she said that in the ordinary way, and she was not talking about the column,
 
 ## Four
 
-**And then he did the only thing he did all day, and it is printed here because it is the decision and not because it is a good one.**
+**And then he did the only thing he did all day, and it is a decision and not a good one.**
 
 He wiped the four names out with the flat of his hand and then wiped the dust off the board after them, which took longer. **He did not wipe the four heads out. He left four lines with about four feet of chalk on them and four heads, and under the fourth head there was about nine inches of clean board, and he said that he was not going to be the person who decides which of four things is the fourth, and that a column with a head on it and nothing under it is a column that anybody can put a name in later, and that this is the worst of the four possibilities and he chose it in about four seconds in a room over a cooper's shop because the other three were worse.**
 
@@ -52,8 +52,8 @@ Then the four went back to the four people who hold them, in the order they were
 
 ## Five
 
-The cost of the day is a column and the biggest single item in it is a cart that went about thirty miles and came about thirty miles to bring a man who did not work, and that is the whole of what the day cost.
+The cost of the day is a column and the biggest single item in it is a cart that went about nine miles and came about nine miles to bring a man who did not work, and that is the whole of what the day cost.
 
 **A cart at four shillings a day, which is forty-eight pence, a room at six pence, a sheet of paper at one penny, and a loaf at one penny: forty-eight, six, one, one is fifty-six pence.** A mark is forty-eight pence and fifty-six pence is one mark and eight pence, and the cart was out of a yard about nine miles off at about the second hour and back at about the ninth hour, and a mason of about sixty-eight was in it both ways, and about four shillings and sixpence a day is the rate he named in a field beside that beck, on the fifth of a month in Greenmonth, about seventy-three days ago, and he is a man who is about forty miles off that arch, and he did not do a day's work and the cart cost four times what his day would have cost and the day is not the point.
 
-**And four words and nine figures and a clean space where a fourth head had been are on a board in a room that is let by the day, and about nine of them are about a road, and a man of about thirty with a bar of soap has nine of them on the back of his own hand in a market town of about two thousand people on the salt and nothing over it, and about nine people in nine counties have a name they can be asked about, and a road is not a place and has nobody in it and cannot be entered in a column at all, and that is the only reason the ninth line is still empty, and it is still empty on a Saturday in Rainmonth fifty-six days after about forty people heard it in a market about two hundred miles from a room with a door on a lane.**
+**And four lines and four heads and about nine inches of clean board under the fourth of them and a ninth line ruled and nothing on it are on a board in a room that is let by the day, and a man of about thirty with a bar of soap has the ninth word on the back of his own hand in a market town of about two thousand people on the salt and nothing over it, and about nine people in nine counties have a name they can be asked about, and a road is not a place and has nobody in it and cannot be entered in a column at all, and that is the only reason the ninth line is still empty, and it is still empty on a Saturday in Rainmonth fifty-six days after about forty people heard it in a market about two hundred miles from a room with a door on a lane.**

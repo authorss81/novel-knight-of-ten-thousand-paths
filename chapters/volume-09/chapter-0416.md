@@ -18,7 +18,7 @@ He had it in his coat in a hand nobody in that room recognised, nine words, no l
 
 ## Two
 
-The mason of about sixty-eight was at the arch at about the fourth hour because he goes there, and he goes there in a wet year and a dry one and he has not been under it since the year it went up and he is sixty-eight and there is not a second time.
+The mason of about sixty-eight was at the arch at about the fourth hour because he goes there, and he goes there in a wet year and a dry one, and he had been under it that morning and would go back in the spring, and he is sixty-eight and there is not a second time for a top course of that length.
 
 A drain arch in a wall at a house in the next village is a different job from the arch over the beck, and it is a small one, and it is the only kind of work in this district there is at the moment, and a mason of about sixty-eight who is the nearest man alive who can lay a ring came to stand about nine feet off it for about an hour and a half.
 
@@ -40,7 +40,7 @@ And the mason of about sixty-eight did not know that it was the first of eight, 
 
 He said the rest of it to the mortar, not to anybody, and it took about four minutes.
 
-**“A drain is a job with a far side and the far side is a man in a house with a garden in it, and I go to the door and I ask him whether he knows what I am doing and whether he minds, and he says yes or no, and I do it either way, and I have done that four hundred times and about four hundred men have said yes.**”
+**“A drain is a job with a far side and the far side is a man in a house with a garden in it, and I go to the door and I ask him whether he knows what I am doing and whether he minds, and he says yes or no, and I do it either way, and I have done that four hundred times and a man on the other side has said yes every time of it.**”
 
 **“And the arch is nine miles off and the far side of that is a field and a beck and about nine hundred yards of bank that a man of about forty-four has farmed since before I was thirty, and I have said the words to about nine men in forty years and not one of them has come back to tell me anything, and I have not stopped asking, and the reason I have not stopped asking is that I do not know what a wall is until I have asked the man on the other side of it whether he minds.**”
 
@@ -52,11 +52,11 @@ Nobody improved on that and nobody agreed with it and the mason of about fifty-o
 
 He did not write it down. He has a book and it has eleven lines on a page in it with no words in them, and he wrote nothing in it about a mason of about sixty-eight and a drain arch in a wall, and the nine words of the letter are not in his coat, because about thirty days ago a woman of twenty-nine put them in a drawer in a room with a door on a lane along with about four hundred other returns, and that is what a room over a weigh-house does with a thing that has nine words on it and no letter and no seal and a place in a county on the back, and he has them in his head and cannot be asked out of it and would not want to be.
 
-**And the answer is in this kingdom and is four hundred years old and is spoken by one man about four times a year to about four men, and it is nine miles from a room that has had a copy of the question in a drawer for about thirty days, and nobody in nine counties is going to carry it from the field to the drawer, and that is not a failure of a plan, because there is no plan, and there is a man of thirty-two with a limp who has heard the answer and knows the question and does not know what to do with either, and he is not going to say one word about having not known what to do with either, and about four hundred people in nine counties did not hear either thing and are not going to.**
+**And the answer is in this kingdom and is four hundred years old and is spoken by one man about ten times a year to about nine men, and it is nine miles from a room that has had a copy of the question in a drawer for about thirty days, and nobody in nine counties is going to carry it from the field to the drawer, and that is not a failure of a plan, because there is no plan, and there is a man of thirty-two with a limp who has heard the answer and knows the question and has nothing he can do with either this month, and about four hundred people in nine counties did not hear either thing and are not going to.**
 
 ## Five
 
-The cost of the two days is a column and there are two things in it that are a wage and three that are not, and one of the two men on that job is not in it and does not know that he is not in it.
+The cost of the two days is a column and there is one line in it that is a wage and three that are not, and one of the two men on that job is not in it and does not know that he is not in it.
 
 **A mason of about fifty-one at four shillings and sixpence a day for two days is fifty-four pence twice, which is a hundred and eight pence. Nine sacks of quicklime at two pence is eighteen pence. Three loads of sand at one penny is three pence. A barrow of stone at six pence. A hundred and eight and eighteen and three and six is a hundred and thirty-five pence, and a mark is forty-eight pence and that is two marks and thirty-nine pence, and the boy of about fourteen is in the hundred and eight and not on top of it, and that is the arrangement and has been the arrangement since either of them could remember.**
 

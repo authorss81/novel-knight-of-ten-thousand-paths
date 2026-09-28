@@ -10,7 +10,7 @@ The bench is nine men and it is not a court and it does not have a chair, and it
 
 The man who keeps the minutes is a man of about fifty-eight, and he has kept them a year, and he is not the clerk of anything and has never been, and the minutes go round.
 
-**That is the whole of the rotation and it is about nineteen years old and it works, and it is a rotation because a clerk of that bench is a year of a man's life and not an office, and about four men in that county have been the clerk of it and about two of them did not want to be and neither of the two said so in the book because the book is for what was agreed.**
+**That is the whole of the rotation and it is about nineteen years old and it works, and it is a rotation because a clerk of that bench is a year of a man's life and not an office, and about eighteen men in that county have been the clerk of it before him and about eleven of them did not want to be and not one of the eleven said so in the book because the book is for what was agreed.**
 
 **And the man of about fifty-eight, who is on his second year and has four months left of it, said the thing about himself at about the third hour without being asked, and he said it in forty-seven words, and nobody in that room improved on it and a boy of about nine was asleep against the rail.**
 
@@ -28,7 +28,7 @@ Then the bench was asked nothing, and the reason the bench was asked nothing is 
 
 **“An officer in it makes it not bench work.”**
 
-And that is nine words and it is correct and it is nineteen years of a rule, and the sheet came off the rail and went into the hand of the man of about thirty-four and the bench was asked nothing at all and nine men went back to a thing about a watercourse.
+And it is correct and it is nineteen years of a rule, and the sheet came off the rail and went into the hand of the man of about thirty-four and the bench was asked nothing at all.
 
 ## Three
 
@@ -44,7 +44,7 @@ Nobody improved on either of those and nobody wrote anything down, and the sheet
 
 **And he said that the thing the sheet was asking the county for was a place and a figure and a trade, and that this county can put a place and a figure and a trade on about nine hundred sheets a month and does, and that a road has none of the three, and that a road with a figure and a trade on it would be a thing that could be asked after, and that he did not want it asked after because of about nine people who have no way of being asked after, and that he had been turning it over for about four days and that this was the first time he had said it out loud and that he was not going to say it a second time to anybody at all.**
 
-**And the man of about fifty-eight wrote one line in the book, and the one line is that a person stood in the nine feet and said a thing, and the thing itself was not written, and the sheet went off the rail face down and into the man's coat for the second time that day, and about nine men went back to a watercourse, and about two hundred people in that town know that two men from the Crown's own road were in that room on a Saturday, and about none of the two hundred know what either of them said in it, and the Crown's own series in a town of about two thousand has no column for that either, and it is not going to get one from a Saturday.**
+**And the man of about fifty-eight wrote one line in the book, and the one line is that a person stood in the nine feet and said a thing, and the thing itself was not written, and the sheet went off the rail face down and into the man's coat for the second time that day, and the bench went back to what it had been doing, and about two hundred people in that town know that two men from the Crown's own road were in that room on a Saturday, and about none of the two hundred know what either of them said in it, and the Crown's own series in a town of about two thousand has no column for that either, and it is not going to get one from a Saturday.**
 
 **And the count on the page under the fourth step of an outside stair in another building in that county stands where it has stood for about nineteen years, and a day-book two hundred miles off has nine entries in it of a thing nobody asked, and neither of those two numbers was added to the other anywhere in this kingdom and neither of them is added to a figure of persons.**
 
