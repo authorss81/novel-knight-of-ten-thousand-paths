@@ -2,7 +2,7 @@
 
 **The eighth day of Fallowmonth, YR 317, a Thursday, and a market day, and the second hour and the fifth hour and the eighth hour, in a town of about two thousand people on the salt and in nine places inside forty miles of it, where a man of about thirty-one with a canvas bag set a bar of oak and iron in two brackets beside a made road and did not ask the council of that town anything, and the council of that town did not know until the ninth day, and about two thousand people in that town knew before the council did.**
 
-The nine of them are not the Crown's nine. **The Crown's nine are crossings and they are on a printed schedule with a price on it that goes into effect in about four days, and the man of thirty-one had that schedule in his bag and looked at it twice that week and it says nothing whatever about any of the nine places he had been to.** The nine of his are anchors, and an anchor on that flat country is a fixed thing a road bears on. A post in a sill at a footbridge. A stone with shoe-iron in it at a ford. A kerb at the head of a towpath. A sill at a wicket. A step down to a landing. A bar-socket in a lane. A hard point where a salt pan track leaves good ground. A pier at a weir. And the head of a cart track that runs out of a field.
+The nine of them are not the Crown's nine. **The Crown's nine are crossings and they are on a printed schedule with a price on it that goes into effect in about four days, and the man of thirty-one had that schedule in his bag and looked at it twice that week and it says nothing whatever about any of the nine places he had been to.** The nine of his are anchors, and an anchor on that flat country is a fixed thing a road bears on. A post in a sill at a footbridge. A stone with shoe-iron in it at a ford. A kerb at the head of a towpath. A sill at a wicket. A step down to a landing. A bar-socket in a lane. A hard point where a salt pan track leaves good ground. A pier at a weir. The head of a cart track that runs out of a field.
 
 **And two people in that town have worked out since that a man who is given nine places to go to is given nine places and not nine names, and that nine places is a thing a man can carry in his head for nine days and nine names is a thing that would have to be written down, and that nobody in that district has ever asked him which of the nine is which.**
 
@@ -58,11 +58,11 @@ He did not put a hand on it. **He stood at the bottom of a two-yard path with a 
 
 **And it was not cruelty and it was not a plan either, and a man of about thirty-one with a canvas bag said so himself at the seventh hour, standing at a bar with a chain on it, to nobody in particular and to about two people who were there.**
 
-“**I have set four of these,**” he said. “**Four in nine days, and this is the third and the fourth was on the Tuesday, and I am paid by the bar and not by the day, and there are nine of them, and the weather is going. And I will tell you the thing about them that nobody has told you. A bar is a bar. I am putting nine of them on nine places and the nine places are where the ground is bad and where a road has ever been moved, and nobody in this district has ever asked me to do it and nobody has ever told me not to, and I have not asked anybody which nine they are.**”
+“**I have set two of these,**” he said. “**Two in three days, and this is the third, and the first was on the Tuesday, and I am paid by the bar and not by the day, and there are nine of them, and the weather is going. And I will tell you the thing about them that nobody has told you. A bar is a bar. I am putting nine of them on nine places and the nine places are where the ground is bad and where a road has ever been moved, and nobody in this district has ever asked me to do it and nobody has ever told me not to, and I have not asked anybody which nine they are.**”
 
-“**Which nine are they,**” the man of about thirty-one said, before anybody else could. “**Which nine places out of a county.**”
+“**Which nine are they,**” the man of about thirty-two said, from the bottom of the path. “**Which nine places out of a county.**”
 
-“**That is what I have been asking since the first of Fallowmonth,**” he said, “**and there is no answer, and I have got a list of nine places in a bag and about four hundred places in this district, and somebody chose the nine out of the four hundred and did not write down how.**”
+“**That is what I have been asking since the first of Fallowmonth,**” the man of about thirty-one said, “**and there is no answer, and I have got a list of nine places in a bag and about four hundred places in this district, and somebody chose the nine out of the four hundred and did not write down how.**”
 
 ---
 

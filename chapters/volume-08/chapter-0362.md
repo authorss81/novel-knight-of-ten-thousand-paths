@@ -46,7 +46,7 @@ And that was the whole of what he said about it, and he said it once. **Two peop
 
 “**What is the first one.**”
 
-“**We are not going in,**” she said. “**Nobody has told us to go in. Nobody has come and said come in. A sheet is not a bar, and a term of ninety days is not ninety days of your life, and a place that is shut by a piece of paper is a place that eight hundred people will sit down in and wait for a man to come, and nine hundred of them have been waiting nine days for somebody to come already and know what the water is.**”
+“**We are not going in,**” she said. “**Nobody has told us to go in. Nobody has come and said come in. A sheet is not a bar, and a term of ninety days is not ninety days of your life, and a place that is shut by a piece of paper is a place that eight hundred people will sit down in and wait for a man to come, and all eight hundred of them have been waiting nine days for somebody to come already and know what the water is.**”
 
 ---
 
@@ -62,7 +62,7 @@ He did not say that. **He said one other thing, and he said it standing up, and 
 
 “**It is a sheet. You have had it in your hand.**”
 
-“**You have had it in your hand and eight hundred people in this field have not,**” he said, “**and there is nobody here who can read it, and nine hundred of them have been awake for four nights, and the first person in this kingdom who says out loud what is on that page is either going to be you or it is going to be somebody in that town at the eighth hour tomorrow. If it is you then eight hundred people hear it from a man who is stood in the field with them. If it is them then eight hundred people hear it at the end of four days, having spent the four days on somebody else's version of it.**”
+“**You have had it in your hand and eight hundred people in this field have not,**” he said, “**and there is nobody here who can read it, and every one of them has been awake for four nights, and the first person in this kingdom who says out loud what is on that page is either going to be you or it is going to be somebody in that town at the eighth hour tomorrow. If it is you then eight hundred people hear it from a man who is stood in the field with them. If it is them then eight hundred people hear it at the end of four days, having spent the four days on somebody else's version of it.**”
 
 **And the man of thirty-one did not want to, and read it out.**
 
@@ -74,4 +74,4 @@ He read all of it. He read the number and the date and the place and the term of
 
 **And about four people in that field have said since that a man of thirty-one read a Crown instrument out loud at the top of a bank in the first week of a shut season, and that he read it in the order it was on the page and not in the order it hurts, and that a sheet read out loud to the people it is about is a different thing from the same sheet on a table, and that the whole of the difference is about two hundred people, and that nobody in that field has been told which of the two hundred they are.**
 
-**And nine hundred of the eight hundred were still in that field at the seventh hour, and the field was shut, and nothing else about it had changed, and the two hundred who were not speaking to the four hundred went on not speaking, and the man of about thirty-one put his sheet into his canvas bag and said that he had eight more of them to do over nine miles of road and that the weather was going, and a man of thirty-two with a limp went down that bank in about four seconds and stood at the bottom of it for a while and did not go back to Marl.**
+**And eight hundred people were still in that field at the seventh hour, and the field was shut, and nothing else about it had changed, and the two hundred who were not speaking to the four hundred went on not speaking, and the man of about thirty-one put his sheet into his canvas bag and said that he had eight more of them to do over nine miles of road and that the weather was going, and a man of thirty-two with a limp went down that bank in about four seconds and stood at the bottom of it for a while and did not go back to Marl.**

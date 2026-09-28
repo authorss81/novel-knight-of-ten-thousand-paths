@@ -1,6 +1,6 @@
 # Chapter 0366
 
-**The fourth day of Embermonth, YR 317, a Tuesday, and not a market day, and the third hour and the sixth hour and the eighth hour, in a town of about two thousand people on the salt, where a man of about thirty-one who is called Ottmar Vell and has been setting bars on nine places for a month came into a room over a shop in a lane and put a canvas bag on a table and took a page out of it, and about two thousand people in that town do not know his name and about nine hundred people in a field four miles off do not know it either, and neither of those two facts is in any register and there is no form on which a man's name goes against a bar.**
+**The fourth day of Embermonth, YR 317, a Tuesday, and not a market day, and the third hour and the sixth hour and the eighth hour, in a town of about two thousand people on the salt, where a man of about thirty-one who is called Ottmar Vell and has been setting bars on nine places for a month came into a room over a shop in a lane and put a canvas bag on a table and took a page out of it, and about two thousand people in that town do not know his name and about eight hundred people in a field four miles off do not know it either, and neither of those two facts is in any register and there is no form on which a man's name goes against a bar.**
 
 Nothing trades on a Tuesday. **The bar four miles south of that town is up, as it is on four days in seven, and a man of about thirty-three with a barrow and a woman of about thirty-eight with a basket go round a quarter of a mile of made road to get past a bar that a man with a canvas bag set on the eighth of Fallowmonth, and about two hundred people in four villages go round it, and the woman of about forty-one at the toll bar down there does not know any of that and would not want to.**
 
@@ -10,13 +10,13 @@ He put the bag down and took out a second thing, which was four sheets about nin
 
 ---
 
-**And a man of about thirty-one said his want out loud, once, to a man with a limp who had not asked him for it, and about two people in that lane have worked out since that a man of thirty-one told a man with a limp the whole of his want in nineteen words that foot at nineteen, and that not one of the nineteen words was about the Crown or about a sheet or about an order, and that the only noun in the nineteen is a list.**
+**And a man of about thirty-one said his want out loud, once, to a man with a limp who had not asked him for it, and about two people in that lane have worked out since that a man of thirty-one told a man with a limp the whole of his want in nineteen words, and that not one of the nineteen words was about the Crown or about a sheet or about an order, and that of the nouns in the nineteen only one is a thing he has asked for and it is a list.**
 
 “**I have nine before the weather turns and there is no list that says which are the right ones.**”
 
 **And he said it in that order because that is the order it was in, and a man who has been in a lane for a month and has not been asked anything by anybody has a want with no explanation attached to it and no grievance in it and no speech in it.**
 
-**And the money of it is three pence a bar. Three pence and three pence is six pence, and six pence and three pence is nine pence, and nine pence and three pence is a shilling, and a shilling is the whole of six bars, and nine of them is twenty-seven pence, and he said the twenty-seven without being asked, and about two hundred people in four counties have been told that figure and about nine have paid it.** **A man who has said his wages out loud in a room where nobody had asked has a bar count of nine and a day count of none, and the six days it took him to do six are not on any sheet and are not in the twenty-seven and are not anywhere.**
+**And the money of it is three pence a bar. Three pence and three pence is six pence, and six pence and three pence is nine pence, and nine pence and three pence is a shilling, and a shilling is the whole of four bars, and six of them is eighteen pence, and nine of them is twenty-seven pence, and he said the twenty-seven without being asked, and about two hundred people in four counties have been told that figure and about nine have paid it.** **A man who has said his wages out loud in a room where nobody had asked has a bar count of nine and a day count of none, and the six days it took him to do six are not on any sheet and are not in the twenty-seven and are not anywhere.**
 
 “**And what is the day for,**” the man of about thirty-two said.
 
@@ -28,7 +28,7 @@ He put the bag down and took out a second thing, which was four sheets about nin
 
 He is not a member of anything. **He has no company, no guild, no master, and no sheet, and he is not on a roll in a building about two hundred miles off, and the only record of him in any of the four counties is four small crosses in a pocket book that he wrote himself.** He did not explain the office he works for and he was not asked to and he would not have.
 
-**And the field four miles off has heard of eight of the nine, and about nine hundred of the eight hundred people in it have heard of two, and the two are the one at the head of a towpath that about two hundred people in four villages go round in a quarter of a mile and the one at the head of a cart track that nobody in that field has asked about.**
+**And the field four miles off has heard of eight of the nine, and about six hundred of the eight hundred people in it have heard of two, and the two are the one at the head of a towpath that about two hundred people in four villages go round in a quarter of a mile and the one at the head of a cart track that nobody in that field has asked about.**
 
 **And the lane did not trade on a Tuesday either, and the two of them were in a room over a shop that sold nothing that day, and what was in the room was a table, four sheets, a page, a bag, and a man of about thirty-one who had not eaten since the fourth hour, and about four people in that lane have worked out since that a man who has been walking nine miles of road for a month eats at the same table at the same hour and that the reason he had not eaten was that a man with a limp had put a finger on a sheet and had not said anything for four seconds, and that four seconds is a long time to be hungry in.**
 
@@ -50,7 +50,7 @@ Beside four of the nine lines he had put a mark. **A mark is a small cross and a
 
 **And about four people in that lane have said since that a man of thirty-one marked four of nine places on a page of his own and did not know where the nine came from until a week later, and that the four he marked are the four that are on the Crown's schedule of nine crossings and a price, and that the other five are not on that schedule and have never been on it.**
 
-**And nobody in that lane has ever seen that schedule, and nobody in that lane has ever heard of a list of nine that a woman about nine days off has kept for nineteen years, and the woman is not in the schedule and the schedule is not in her book, and no character in this block has said one word to the other.**
+**And nobody in that lane has ever seen that schedule, and nobody in that lane has ever heard of a list of nine that a woman of about fifty keeps and has kept for nineteen years, and that woman is not in the schedule and the schedule is not in her book, and nobody in that lane has ever put the two together.**
 
 Ottmar Vell spread the four old sheets flat on the table and put his own page on top of them, and he did it in about four seconds and he had clearly done it before.
 
