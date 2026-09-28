@@ -20,7 +20,7 @@ She stopped there for a while and the room let her.
 
 **And here is what she did not say, and it is worth having exactly why, and the reason is not modesty.**
 
-She did not say where the road is. She did not say how many of the eight the other seven are, and the nine miles is the one figure in what she said that a person could get up and check, and none of the nine has a chain or a chain's man or any reason to walk nine miles to find out. She did not say how many people are on the far side of the gate, and when the man of about fifty-eight with the slate said, in the ordinary way, that a figure would be useful, the woman of about seventeen said that a figure is the one thing that is not wanted, and gave the reason in eight words, and the reason was correct.
+She did not say where the road is. She did not say which of the eight the other seven of the nine are, and the nine miles is the one figure in what she said that a person could get up and check, and none of the nine has a chain or a chain's man or any reason to walk nine miles to find out. She did not say how many people are on the far side of the gate, and when the woman of about fifty-eight with the slate said, in the ordinary way, that a figure would be useful, the woman of about seventeen said that a figure is the one thing that is not wanted, and gave the reason in eight words, and the reason was correct.
 
 "**A figure is how you get sent to.**"
 
@@ -38,9 +38,9 @@ He put his hand flat on the bench.
 
 "**I do not know what is on the far side and neither does she, and a man of about twenty-two with a handcart who turns up at a gate that has been shut for about four hundred years is a man who has been somewhere he cannot say he has not been, and a road with a man on it is a road somebody can write down.**"
 
-**And that is sixty-seven words and the woman of about fifty with the board wrote the number of them on the back of her left hand and did not tell anybody then and has not told anybody since, and the ninth word and this one are in the same mouth in the same week and the mouth does not keep either of them.**
+**And that last thing he said is sixty-seven words, and the whole of what he said at the eighth hour is a hundred and sixty-eight, and the woman of about fifty with the board wrote the number of them on the back of her left hand and did not tell anybody then and has not told anybody since, and the ninth word and this one are in the same mouth in the same week and the mouth does not keep either of them.**
 
-Nobody sent anybody. Nothing was opened. The gate at the end of nine miles of a road that has not been a road for about four hundred years is exactly where it was on the twenty-fifth of Embermonth and it will be exactly where it is on the twenty-fifth of a month in the year after this one, and about nine people in nine counties know there is a gate at the end of it and the number of people who know it is nine because there are nine of them in a room and one of them is the tenth and does not count.
+Nobody sent anybody. Nothing was opened. The gate at the end of nine miles of a road that has not been a road for about four hundred years is exactly where it was on the twenty-fifth of Embermonth and it will be exactly where it is on the twenty-fifth of a month in the year after this one, and nine people in nine counties know there is a gate at the end of it, which is nine because there are nine of them in a room, and the tenth of that room heard it an hour ago and is not one of the nine.
 
 ## Four
 

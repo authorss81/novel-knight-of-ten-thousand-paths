@@ -4,7 +4,7 @@
 
 ## One
 
-**The man of about nineteen came nine miles from a bar four miles west of a market town of about two thousand people on the salt, and he is nineteen, and he has been standing at one end of nine feet of oak for about three hundred and forty days, and he came on foot because there is no cart that goes to that bar and the bus does not go past the top of the made road.**
+**The man of about nineteen came nine miles from a bar four miles west of a market town of about two thousand people on the salt, and he is nineteen, and he has been standing at one end of nine feet of oak for about three hundred and thirty-four days, and he came on foot because there is no cart that goes to that bar and the bus does not go past the top of the made road.**
 
 He came at about the second hour and sat on the bench under the platform, at the end, where the man with the handcart sits, and the man with the handcart was not there yet and came in at about the third hour and sat on the floor with his back against the wall, which is a different thing and everybody in the room understood that it was a different thing.
 
@@ -32,7 +32,7 @@ Nobody looked at the mason of about sixty-eight, who was the one who did not kno
 
 "**A gate is a place, and a place is the first of the three heads on a form, and you know that. If I am in a room with you in it then whatever I found out is something two counties off can get hold of, and they will not get it off me, they will get it off you, and you are the man in nine counties who is on nothing, and that is the only reason nobody can get anything off you at all.**"
 
-**And that is a hundred and nineteen words for both of the things she said, and the man of about thirty-two with a limp was not in that room to be counted and the woman of about fifty did not write it down because her hand was full, and the number of it is not printed anywhere and will not be.**
+**And that is a hundred and nineteen words for both of the things she said, and both of them were said in that room and both of them are printed here, and the woman of about fifty did not write the number down because her hand was full, and nothing about that number is on any board in nine counties and nothing is going to be.**
 
 ## Four
 
@@ -54,7 +54,7 @@ He said, "**I will be gone on Wednesday,**" and he said it at about the seventh 
 
 **Nobody argued with him. Nobody defended him. A man of about thirty-four with a net, who had put the whole of it into that room in a sentence in a month in Longlight, opened his mouth about twice and shut it, and the second time he shut it before anybody saw, and nobody saw.**
 
-The two who had asked looked at each other, which is the only thing either of them did, and a man of about fifty-eight with a slate said that the deal was the deal and that the woman at the kilns had a draw on Thursday and wanted it in a room that did not argue, and the woman of about forty-four said she was in it for the draw and no further and had been since the first day.
+The two who had asked looked at each other, which is the only thing either of them did, and a woman of about fifty-eight with a slate said that the deal was the deal and that the woman at the kilns had a draw on Thursday and wanted it in a room that did not argue, and the woman of about forty-four said she was in it for the draw and no further and had been since the first day.
 
 **And that is the whole of the leaving, and nobody admired it and nobody was sorry for him in front of anybody, and two of nine people in a room said a thing that was correct and eight of nine people let it stand, and there is no form in this kingdom on which a man is entered as somebody who was asked to go.**
 
@@ -64,4 +64,4 @@ The cost of that Monday is a column and it is not a column of anything he lost, 
 
 **Three rooms at six pence a room, two stoves at two, two pounds of wood at three, two lamps at two, three loaves at one, three quarts of small beer at two, two tallow candles at two, a sheet of paper at one, a quill and ink at seven, two carts' fares at four, and two beds at two.** Six, six, six, two, two, three, three, two, two, one, one, one, two, two, two, two, two, one, seven, four, four, two, two is sixty-five pence. **A mark is forty-eight pence and sixty-five pence is a mark and seventeen over**, and the argument he did not make is not in it and could not be, and the room he will not be in on Wednesday is not in it and will not be, and the eleven people in eleven places in nine counties are not in it and are not going to be.
 
-**And nine people in a room of eleven paces by nineteen said two correct things, and a man of thirty-two with a limp said six words, and there is a book about a hundred and forty years old on a shelf behind the door that has nothing to do with any of it, and a boy of nineteen went nine miles home to a bar that was up that day and comes up on four days in seven, and a woman of seventeen went nine miles to a basket of glass, and the man of about thirty-four with a net did not sleep that night and told nobody and has not told anybody.**
+**And nine people in a room of eleven paces by nineteen said two correct things, and a man of thirty-two with a limp said six words, and there is a book about a hundred and forty years old on a shelf behind the door that has nothing to do with any of it, and a boy of nineteen went nine miles home to a bar that was up that day and it comes up on four days in seven, and a woman of seventeen went nine miles to a basket of glass, and the man of about thirty-four with a net did not sleep that night and told nobody and has not told anybody.**

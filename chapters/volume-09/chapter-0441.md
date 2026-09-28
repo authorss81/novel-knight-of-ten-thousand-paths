@@ -6,7 +6,7 @@
 
 **Eight of the nine had said no to something before they came, and the ninth said no in the room before he sat down, and the eight said theirs again in the room as they got to it, and the nine are not one refusal said nine times, and there is not one thing in that room that all nine of them have refused.**
 
-He was the tenth and he had told four of the nine himself, and he had not told the other five anything at all, and the other five had come because a room in that township has said a thing out loud on purpose once a month for about two months now and a man of about thirty-four with a net had said in it that anybody who wanted to hear it could come and hear it.
+He was the tenth and he had told four of the nine himself, and he had not told the other five anything at all, and the other five had come because a room in that township has said a thing out loud on purpose once a month and has said it once before this, and a man of about thirty-four with a net had said in it that anybody who wanted to hear it could come and hear it.
 
 **Nobody in that room had ever seen the other eight.** That is the whole of what had happened, and it had happened because a man of thirty-four with a net said one sentence into the air in a room that does not keep minutes of what it says, and the sentence went about nine counties at the speed a sentence goes, which is at the speed of about nine people who each told one other person.
 
@@ -66,7 +66,7 @@ The boundary is two miles and nine stones in a fold thirty miles south and there
 
 The day-book is two hundred miles off in a room over a weigh-house with a door on a lane, and it has nine entries in it of a thing nobody asked, and it has not been opened on any day anybody keeps, and a tenth is not a gift.
 
-**And the board is four feet long and it is in a kitchen nine miles on from the kilns and it has about three hundred and seventy figures on it and no head on it, and it has been there thirty-one years, and three hands have written on it, and four of the figures at the foot of it are in one hand and a woman who cannot read matched that hand in about nine minutes on the tenth of a month in Greenmonth and has not said so and is not going to.**
+**And the board is four feet long and it is in a kitchen nine miles on from the kilns and it has about three hundred and seventy figures on it and no head on it, and it has been there thirty-one years, and three hands have written on it, and four of the figures at the foot of it are in one hand and a woman who cannot read matched that hand in about nine minutes on the nineteenth of a month in Fallowmonth and has not said so and is not going to.**
 
 None of the six was touched and none of the six was asked for and the room did not take one of them and did not give one of them up, and the man of about thirty-two with a limp, who was the tenth and who had told four of them himself, sat on a stool by the door for about seven hours and said eleven words in all, and the eleven words were "**I am not going to say anything about any of it**", and he said them at about the seventh hour and nobody argued with him and nobody agreed with him either.
 

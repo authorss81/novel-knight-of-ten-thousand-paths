@@ -6,7 +6,7 @@
 
 **Nine people are in a room and they have nothing to do, and that is the whole of the eighteenth of Wolfmonth, and it is the first time in about a month that any of the nine has said a sentence in that room that was not about a thing somebody had asked for.**
 
-There is nobody's name against the chair this month. There is no name in that hat for any of the nine. There is no book, because the book is about a hundred and forty years old and is on a shelf behind the door and is in a room four miles off with a woman of about sixty-three who has not been in this room since the day before a man of about thirty-four with a net put a whole sentence into it in a month in Longlight, and nobody has told her what has happened in here in about a month and nobody is going to.
+There is nobody's name against the chair this month. There is no name in that hat for any of the nine. There is no book, because the book is about a hundred and forty years old and is on a shelf behind the door and its keeper is a woman of about sixty-three who is four miles off and who has not been in this room since the day before a man of about thirty-four with a net put a whole sentence into it in a month in Longlight, and nobody has told her what has happened in here in about a month and nobody is going to.
 
 **And the nine have not agreed anything since the eighteenth of a month in Embermonth, which was a Friday, and the reason they came on that Sunday is that they said on that Friday that they would come, and nobody wrote it down, and a thing said in a room of nine is kept by the eight who heard it and by nobody else.**
 
@@ -16,7 +16,7 @@ A man of about thirty-four with a net came in at about the second hour and put a
 
 **And the room did what the room does, because a room that stops doing what it does is a room with a purpose in it, and this one has not had a purpose in it since about nine years before a woman of about sixty-three decided against the bolt.**
 
-The list on the shelf has been looked at. There is a water trough out at a place about half a mile off and about nine men are going to it on the Monday, and the second is nets at a stream, and the third is a door frame at a farm, and there are four names in the hat for a month in Hearthmonth and one of the four is a woman of about thirty-eight who has put a name in twice and has never stood in the chair, and the room knows that and has not done anything about it and is not going to.
+The list on the shelf has been looked at. There is a water trough out at a place about half a mile off and about nine men are going to it on the Monday, and the second is nets at a stream, and the third is a door frame at a farm, and there are four names in the hat and each of the four has the thing for a month, and one of the four is a woman of about thirty-eight who has put a name in twice and has never stood in the chair, and the room knows that and has not done anything about it and is not going to.
 
 **The man of about thirty-four with a net is one of the nine and he keeps that list, and he put it on the bench and read out the four and then took it off the bench and put it back, and the nine of them did not discuss it, and he did not ask them to, and a thing a room does not discuss is a thing the room is doing and not a thing nine people have taken over.**
 

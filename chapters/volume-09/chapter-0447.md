@@ -20,7 +20,7 @@ A press stands open in the corner and it has stood open since a day she will not
 
 That is nine words and it has no letter with it and no seal on it and a place in that county written on the back of it in a hand that is not a clerk's hand, and it came off a road about two days off a coast, and it was put in that drawer on the fourteenth of a month in Longlight, which was a Sunday, and the cart went out on the Saturday and the Sunday's went in the bag on the Monday and that is the ordinary way.
 
-**Twenty-three weeks exactly, and no day over, and no half-day, and she has it by the Saturday count on the wall that a man who keeps a weigh-house has had there since before she came, and she checked it twice on the Saturday and once on the Sunday and it has not moved.**
+**It has been there a hundred and forty-seven days, and a hundred and forty-seven days is twenty-one weeks exactly, and no day over, and no half-day, and she has it by the Saturday count on the wall that a man who keeps a weigh-house has had there since before she came, and she checked it twice on the Saturday and once on the Sunday and it has not moved.**
 
 **And here is the whole of what a keeper of records can do with nine words in a drawer, and it is worth having exactly why, and the reason is that she does not know what the first of the eight is.**
 
@@ -30,7 +30,7 @@ She has four years and a half of returns in that room. She has a day-book on the
 
 ## Three
 
-**And the answer is nine miles from that door and she does not know it is nine miles away, and that is the whole of the twenty-three weeks.**
+**And the answer is nine miles from that door and she does not know it is nine miles away, and that is the whole of the twenty-one weeks.**
 
 The answer is a mason of about sixty-eight who stands under an arch over a beck about nine miles off a yard of four lime kilns and asks the far side of it, out loud, in the tone of a man asking a wall, to somebody who has nothing to do with him. He has asked it about four hundred times. He asked it the last time of all on the seventh of a month in Rainmonth, out loud, to a stranger who had asked him a question about a job, and the stranger did not carry the answer anywhere and told nobody and is not going to.
 
@@ -64,4 +64,4 @@ The cost of that Sunday is a column and it is not his and it is hers and it is t
 
 **Two pounds of wood at three pence, two fires at three, five loaves at a penny, two pounds of cheese at two, three quarts of small beer at two, three tallow candles at two, four sheets of paper at a penny, two quills and ink at seven, a broom at five, a ream of paper at eight, a wheel iron at eight, a bucket of tar at eight, three carts' fares at four, and a tin of nails at five.** Three, three, three, three, one, one, one, one, one, two, two, two, two, two, two, two, two, one, one, one, one, seven, seven, five, eight, eight, eight, four, four, four and five is ninety-seven pence. **A mark is forty-eight pence and ninety-seven pence is two marks and a penny over**, and about nine hundred sheets a month is not in it and is added to nothing, and about a hundred and four sheets on a fixed Saturday is not in it either, and a drawer with about four hundred returns in it is not a column and is not going to become one.
 
-**And nine words have been in that drawer for twenty-three weeks exactly and no day over, and there are about nine hundred people on a road about two days off a coast who will get a piece of paper with four lines on it and no name at the foot, and about nine miles from that door a man of about sixty-eight put his hand on the ring of an arch over a beck and asked the far side of it in nine words to nobody, and that is the first of the eight, and she has been the keeper of records for four years and a half and she does not know what the first of the eight is, and she has written four lines about a room instead.**
+**And nine words have been in that drawer for a hundred and forty-seven days, which is twenty-one weeks exactly and no day over, and there are about nine hundred people on a road about two days off a coast who will get a piece of paper with four lines on it and no name at the foot, and about nine miles from that door a man of about sixty-eight put his hand on the ring of an arch over a beck and asked the far side of it, out loud, to nobody, and that is the first of the eight, and it is four words long, and she has been the keeper of records for four years and a half and she does not know what the first of the eight is, and she has written four lines about a room instead.**
