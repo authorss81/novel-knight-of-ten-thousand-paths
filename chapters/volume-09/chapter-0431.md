@@ -6,7 +6,7 @@
 
 He came in at the top of the first hour with his stick in his left hand and a week's bread in his coat and the yard was half gone already, which is the ordinary way of clearing a yard and is done with a barrow and a great deal of shouting and no particular order at all.
 
-**About eleven men were at it. Not one of the eleven was on anybody's strength and not one of the eleven had a sheet, and every one of them had been at that yard for about nine years and knew what a cleared yard had to look like by the fourth of September and not before.**
+**About eleven men were at it. Not one of the eleven was on anybody's strength and not one of the eleven had a sheet, and every one of them had been clearing yards for about nine years and knew what a cleared yard has to look like by the first week of the month the court sits in and not a week before.**
 
 The twelfth man was standing by the wall on the east side with a rolled thing under his arm, and he was the only one of the twelve who was not working, and he had not come through the gate. He had come in by a door in the house and he was not early and he was not late, and he had been in that yard about nine minutes.
 
@@ -18,7 +18,7 @@ The twelfth man was standing by the wall on the east side with a rolled thing un
 
 "**You may.**"
 
-**And that is seven words and it is the whole of what the man of about thirty-four with a sheet said to a stranger on the morning of the second of Fallowmonth, and the stranger was right, and neither of them was the reason anything happened in that yard that day.**
+**And the whole of what the two of them said to each other in that first minute is sixteen words, of which the man with the sheet said eleven and the stranger said five, and the stranger was right, and neither of them was the reason anything happened in that yard that day.**
 
 ## Two
 
@@ -38,9 +38,9 @@ There is a name on it. **A man who can read stood in front of it and read it, an
 
 **And here is what he found out in about forty minutes standing in that yard, and it is the whole of the finding, and it took him two days of walking to find it out and about forty minutes to have it.**
 
-The yard belongs to the house of assizes and the house of assizes has a clerk, and the clerk keeps a schedule of what is in the yard. There are nine things on that schedule and a tenth thing that is only a name and a place where a thing used to be.
+The yard belongs to the house of assizes and the house of assizes has a clerk, and the clerk keeps a schedule of what is in the yard. There are nine things on that schedule and every one of the nine is a thing the court is answerable for, and there is no line on that schedule for a thing that belongs to nobody.
 
-**The two-room building is not on it. It has never been on it. It is not on it because the schedule is a list of what the court is responsible for, and the court is not responsible for a building that belongs to a company that wound up about nine years ago, and a building that belongs to nobody is not a thing a court puts on a schedule, and if the court had put it on the schedule then the court would owe it a keeper, and no clerk in nine counties has ever wanted that.**
+**The two-room building is not on it. It has never been on it. It is not on it because the schedule is a list of what the court is answerable for, and the court is not answerable for a building that belonged to a company that wound up about nine years ago, and a woman went on keeping it for about seven years after that, on her own, out of a room that had a fire in it, until she died in a winter, and a building that belongs to nobody is not a thing a court puts on a schedule, and if the court had put it on the schedule then the court would owe it a keeper, and no clerk in nine counties has ever wanted that.**
 
 So the finding is this, and it is a finding and not a defeat.
 
@@ -62,11 +62,11 @@ At about the sixth hour the man with the sheet asked him a question, and it was 
 
 "**I did not say you were.**"
 
-**And that is six words, and it is the whole of what he said about the man of thirty-two with a limp on the morning of the second of Fallowmonth, and he said it to a man who had no business in that yard and had come into it off a made road with a week's bread in his coat, and he said it without any weight on it at all, and then he turned round and went to a wall and looked at a slate and did not write on it.**
+**And that is fifteen words, and he said every one of them to a man who had no business in that yard and had come into it off a made road with a week's bread in his coat, and he said them without any weight on any of them, and then he turned round and went to a wall and looked at a slate and did not write on it.**
 
 The eleven men finished the middle of the yard at about the seventh hour and stood about. A crowbar came off a wall bracket. **The man of about thirty-eight with a crowbar was not on the strength of anything that has a name in it and he is a man who has been on the strength of a county's own road since he was about seventeen, and he is not a villain and there is nothing in that yard for a villain to want.**
 
-He put the bar under the door and lifted, and the door came up off the sill in about a second and a half and the two of them were nine pounds of oak and about four feet and it is not in the book of things that are hard.
+He put the bar under the door and lifted, and the door came up off the sill in about a second and a half and the two of them were nine pounds of oak and about four feet and it is not in any list of what is hard to move.
 
 "**That is the whole of it,**" the man of about thirty-eight with a crowbar said. "**There is nothing on that door.**"
 

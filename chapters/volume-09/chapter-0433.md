@@ -6,7 +6,7 @@
 
 She was told nine times in four days and she can give the four days exactly, and she can give it exactly because there is a tally cut into the jamb of the kiln door and every draw is cut into it, and a woman who has cut a mark in a door for nineteen years can count the days between two marks without stopping to think about it.
 
-**A man of about forty with a cart of lime said it on the third, at the gate, in the ordinary way, because he had been two days off and a thing that happens in a yard is a thing you say at a gate. A woman of about thirty-four who had come for lime said it on the fourth, on her own doorstep, to the woman of about forty-four, because a woman standing on a doorstep with a bucket in her hand is a woman saying a thing. A man of about fifty who buys stone and stone is in his trade said it on the fifth, in a yard, in the middle of an argument about a price.**
+**A man of about forty with a cart of lime said it on the third, at the gate, in the ordinary way, because he had been two days off and a thing that happens in a yard is a thing you say at a gate. A woman of about thirty-four who had come for lime said it on the fourth, on her own doorstep, to the woman of about forty-four, because a woman standing on a doorstep with a bucket in her hand is a woman saying a thing. A man of about fifty who buys stone and stone is in his trade said it on the fifth, in a yard, in the middle of an argument about a price, and the fifth was a Thursday and a market morning and he had bought his stone on it.**
 
 And then six more, and the six were not six more facts. **Three of them said the same as the first and two of them said it wrong and one of them added a thing that was not in it, and the one who added a thing was a man who had heard it from a boy and the boy had heard it from a woman at a well.**
 
@@ -32,7 +32,7 @@ She said the thing she said about it at about the sixth hour on the Saturday, to
 
 **And the finding of that Saturday is not about the yard and it is not about the door, and it took four days of counting marks in a door jamb to establish.**
 
-A yard of four kilns is a place where about forty people are out of a country of about four hundred, and about nine people come through the gate of it in a week, and there is a market on the Saturday in a field at the low end of the yard, and a thing said at that gate on a Tuesday is said on the Wednesday at the second house down, and on the Thursday at a well, and on the Friday in a market, and on the Saturday it is in about nine mouths.
+A yard of four kilns is a place where about forty people are out of a country of about four hundred, and about nine people come through the gate of it in a week, and there is a market on the Saturday in a field at the low end of the yard, and a thing said at that gate on a Tuesday is said on the Wednesday at the second house down, and on the Thursday at a well, and on the Friday in a yard at the back of the mill, and on the Saturday it is in about nine mouths.
 
 **That is the whole of the machinery. It is not machinery. It is about nine people in a lane telling each other what a stranger in a coat said at a gate, and there is no clerk in it and no sheet in it and no band and no cord, and about four hundred people live in that country and about nine hundred sheets a month go out of a room over a shop in a fen town into nine counties, and the two of those are the same size and neither of them was designed.**
 

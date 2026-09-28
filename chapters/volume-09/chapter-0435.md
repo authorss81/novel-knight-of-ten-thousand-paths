@@ -8,7 +8,7 @@ The man who carts lime is about twenty-nine and he came into that yard on the Mo
 
 "**There is a yard behind the assizes with two rooms in it and no lock on the door.**"
 
-The man of about sixty-eight did not answer him, and the man of about twenty-nine told him the rest of it anyway, because a man who has been somewhere unusual in the last four days and has not told anybody yet will tell a person who is not listening.
+The man of about sixty-eight did not answer him, and the man of about twenty-nine told him the rest of it anyway, because a man who has been somewhere unusual in the last fortnight and has not told anybody yet will tell a person who is not listening.
 
 "**The door had dropped on the sill and the man with the bar had it up in a second and the sill stone is loose and he had to put it back and he was in a hurry about it.**"
 
@@ -28,7 +28,7 @@ And the man of about sixty-eight did not answer that either.
 
 "**Dressed on four sides and about a hand thick and it came out of the wall easier than it went in, and the man with the bar got his fingers under it and it came up in his hands like a board.**"
 
-**And that is eight words, and it is the whole of what the man of about twenty-nine said about the stone, and a man of about twenty-nine who carts lime can tell you how a stone comes out of a wall the way he can tell you how a sack comes off a cart, and he does not know that he has told a mason anything at all.**
+**And that is forty-two words, and it is the whole of what the man of about twenty-nine said about the stone, and a man of about twenty-nine who carts lime can tell you how a stone comes out of a wall the way he can tell you how a sack comes off a cart, and he does not know that he has told a mason anything at all.**
 
 A dressed stone about four feet long and about a hand thick, with the bottom of it dressed too, and about four hundred years on it, is a **sill**. **A sill is a stone that is dressed on four sides because it is going to be seen from below, and the only reason a man dresses a stone he is going to put under a door is that the stone came off something else that was better than that door and somebody wanted the bottom of it to look right while the work was being done and nobody has looked at it since.**
 
@@ -36,7 +36,7 @@ A dressed stone about four feet long and about a hand thick, with the bottom of 
 
 ## Three
 
-**And the finding of the sixteenth of Fallowmonth is about four feet of the underside of a door, and nobody asked him for it and nobody got it out of him, and it is the oldest thing in this that anybody has looked at in about four hundred years.**
+**And the finding of the sixteenth of Fallowmonth is about four feet of the underside of a door, and nobody asked him for it and nobody got it out of him, and it is the oldest thing in nine counties that anybody has looked at in about four hundred years.**
 
 He knows nine ways of cutting a mark in the bed of a stone and eight of the nine are cut by masons, and a mason's mark is a signature. **A man cuts a letter or a number or a combination of the two into the bed of a stone while the stone is in the wall and before the joint is grouted, and it says that he was there, and it is not a count of anything and it does not go on a list and it is the only kind of writing in nine counties that has never once been copied out by anybody.**
 
@@ -56,7 +56,7 @@ And then the whole of it arrived, and it arrived the way these things arrive, in
 
 He did not say the rest. **He has been told twice by a clerk not to talk and he cannot stop, and on the sixteenth of Fallowmonth he stopped, and the stopping was not about the clerk.**
 
-Then in the second hour of the next morning he went down to the beck and got under his own arch on his hands and knees in about nine inches of water and put his hand on the bed of the ninth voussoir from the left, and the mark there is his, cut in a letter and a number in about the fourth year of his working, and he has not been under that arch in about eleven years because there is no work there and there is nothing under it to look at.
+Then in the second hour of the next morning he went down to the beck and got under his own arch on his hands and knees in about eleven inches of water and put his hand on the bed of the ninth voussoir from the left, and the mark there is his, cut in a letter and a number in about the fourth year of his working, and he has not been under that arch in about eleven years because there is no work there and there is nothing under it to look at.
 
 **And he put his own hand on his own mark and then he put his hand on his own arch and did not say one word about either of them to anybody, and about nine feet of the top course on the north approach is a hand's width out of level, and he knows what that is and knows what it wants, and he did not say that either.**
 
@@ -64,6 +64,6 @@ Then in the second hour of the next morning he went down to the beck and got und
 
 The cost of that Monday and the morning of the Tuesday is a column and it is a day and a half and the day and a half was mostly walking.
 
-**a room, a horse's feed, a quart of small beer, a loaf on the road, a fire, a loaf, a quill and ink, a tallow candle, a bed, a sheet of paper, a handcart for nine miles, a man of about twenty hired for a day: six, nine, two, one, three, one, seven, two, two, one, eight, four is forty-six pence.** A mark is forty-eight pence and forty-six pence is two pence under one, and it is the only column in about a month that came in under a mark and spent a day and a half getting to a man who did not ask him anything.
+**a room, a horse's feed, a quart of small beer, a loaf on the road, a fire, a loaf, a quill and ink, a tallow candle, a bed, a sheet of paper, a handcart for nine miles, a man of about twenty hired for a day: six, nine, two, one, three, one, seven, two, two, one, eight, four is forty-six pence.** A mark is forty-eight pence and forty-six pence is two pence under one, and it came in under a mark and spent a day and a half getting to a man who did not ask him anything.
 
 **And a figure cut with the flat of a cold chisel in the bed of a re-used sill stone is on the underside of a door in a yard in a town of about nine hundred people, and it has no head on it and it is about four hundred years old, and a man with a crowbar lifted the stone and put it back and looked at the top of it, and about nine ways of cutting a mark in a stone are known to one man in nine counties and eight of the nine are signatures and the ninth is a count, and he did not tell anybody.**
