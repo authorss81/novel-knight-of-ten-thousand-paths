@@ -6,7 +6,7 @@
 
 **Eight of the nine had said no to something before they came, and the ninth said no in the room before he sat down, and the eight said theirs again in the room as they got to it, and the nine are not one refusal said nine times, and there is not one thing in that room that all nine of them have refused.**
 
-He was the tenth and he had told four of the nine himself, and he had not told the other five anything at all, and the other five had come because a room in that township has said a thing out loud on purpose once a month and has said it once before this, and a man of about thirty-four with a net had said in it that anybody who wanted to hear it could come and hear it.
+He was the tenth and he had told four of the nine himself, and he had not told the other five anything at all, and the other five had come because a room in that township had said a thing out loud on purpose once before this, and a man of about thirty-four with a net had said in it that anybody who wanted to hear it could come and hear it.
 
 **Nobody in that room had ever seen the other eight.** That is the whole of what had happened, and it had happened because a man of thirty-four with a net said one sentence into the air in a room that does not keep minutes of what it says, and the sentence went about nine counties at the speed a sentence goes, which is at the speed of about nine people who each told one other person.
 
