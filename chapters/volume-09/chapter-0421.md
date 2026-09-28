@@ -10,27 +10,27 @@ The office is over a shop and it has a counter and a rail and a stove and about 
 
 The man of about thirty-four with a sheet came in at the second hour and put the sheet on the counter and then put a second thing beside it. The second thing was a slip of paper about two inches by one with a name written on it in a hand nobody in that room had seen, and there was no head on the slip and no letter and no seal, and on the back of it there was a place in the county and a street and nothing else.
 
-"**I want this entered.**"
+“**I want this entered.**”
 
 The clerk of about nineteen read the slip and read it a second time, and the second time was slower.
 
 ## Two
 
-"**What is it.**"
+“**What is it.**”
 
-"**It is a road.**"
+“**It is a road.**”
 
-"**Where does it go.**"
+“**Where does it go.**”
 
-"**It goes nowhere the county trades. It is nine miles.**"
+“**It goes nowhere the county trades. It is nine miles.**”
 
 The clerk put his finger on the three heads and did not move it for about four seconds, and he did not look up while he did it, and a clerk of about nineteen doing that in a room over a shop is doing the ordinary thing and not a thing.
 
-"**A place, a figure and a trade, and a road is not one of the three,**" he said.
+“**A place, a figure and a trade, and a road is not one of the three,**” he said.
 
-"**Then I will find the three,**" the man of about thirty-four with a sheet said.
+“**Then I will find the three,**” the man of about thirty-four with a sheet said.
 
-"**You will,**" the clerk said, and he turned the form round so that the three heads were the right way up for a man standing in nine feet of floor, and he put a quill on the counter beside it, and **nobody in that room said one word to him about finding them, and there was no line on the form that a word could have gone on, and the clerk was nineteen and the form was older than the building.**
+“**You will,**” the clerk said, and he turned the form round so that the three heads were the right way up for a man standing in nine feet of floor, and he put a quill on the counter beside it, and **nobody in that room said one word to him about finding them, and there was no line on the form that a word could have gone on, and the clerk was nineteen and the form was older than the building.**
 
 **That is the whole of what happened in that room on that morning, and it is worth having exactly. A man of about thirty-four said a true thing to a room in the nine feet in front of a rail on a Saturday in the previous month, and he said he would not say it a second time to anybody at all, and he did not say it again, and the room did not stop him, and the room was not wrong to let him go on.**
 
@@ -44,15 +44,15 @@ He had come in off the salt road with a load of glass and had been standing at t
 
 He said the name out loud at about the fourth hour, in the ordinary way, to the clerk, because the clerk asked him which road he had come in by.
 
-"**Which road did you come in by.**"
+“**Which road did you come in by.**”
 
-"**Coldharbour road,**" the man of about thirty-three with a barrow said, "**and then the made one, and it is about nine miles, and there is a bar on the made one and I came up to it.**"
+“**Coldharbour road,**” the man of about thirty-three with a barrow said, “**and then the made one, and it is about nine miles, and there is a bar on the made one and I came up to it.**”
 
 **And the man of about thirty-four with a sheet had a slip of paper two inches by one on the counter in front of him with that name on it, and he had not written it, and he had been given it, and it had come to that office off a cart out of a room with a door on a lane two hundred miles off on the fixed day, and the name on it had come out of a man's mouth in a market about a month before that with about forty people in earshot, and the man of about thirty-three with a barrow did not know what any of it was worth and has not worked it out and is not going to.**
 
-"**You will not want to write that,**" the clerk of about nineteen said, and he said it to the man of about thirty-four and not to the man with the barrow, and it is the only thing a clerk of about nineteen said on that morning that was not a question about a form.
+“**You will not want to write that,**” the clerk of about nineteen said, and he said it to the man of about thirty-four and not to the man with the barrow, and it is the only thing a clerk of about nineteen said on that morning that was not a question about a form.
 
-"**I am not writing it,**" the man of about thirty-four with a sheet said. "**I am writing a place and a figure and a trade.**"
+“**I am not writing it,**” the man of about thirty-four with a sheet said. “**I am writing a place and a figure and a trade.**”
 
 **And he was right. That is the finding and it is a finding and not an error, and it took one morning and about four seconds, and nobody in that room has ever been shown anything that would make it a different finding, and about nine hundred sheets a month go out of that room and about a hundred and four of them go out on a fixed Saturday in a band with a cord round it and the cord is because a band is a hundred and eight.**
 

@@ -22,21 +22,21 @@ Nobody asked him a question. A woman of about fifty with a board said his name, 
 
 He said it back.
 
-"**Coldharbour,**" he said.
+“**Coldharbour,**” he said.
 
-"**Again.**"
+“**Again.**”
 
-"**Coldharbour.**"
+“**Coldharbour.**”
 
-"**Once more.**"
+“**Once more.**”
 
-"**Coldharbour.**"
+“**Coldharbour.**”
 
 **And that is the whole of what the ninth of the nine came to, and it took about four seconds, and he did not sing it and nobody asked him to and there is no tune in that room and there has never been a tune in that room, and the two parts and the beat of a bar coming down on a rim are about nine miles west of that room and are not in it and were never going to be in a township of about nine hundred people on a Saturday.**
 
 Then he said the thing that made it work, and he said it to the room and not to the man of thirty-four with the net, and nobody had asked him for it.
 
-"**I am not keeping it,**" he said. "**I said it three times because I was asked three times. A man who is keeping a thing gets asked once and then writes it down, and I have not got anywhere to write it and I would not know what to put at the top.**"
+“**I am not keeping it,**” he said. “**I said it three times because I was asked three times. A man who is keeping a thing gets asked once and then writes it down, and I have not got anywhere to write it and I would not know what to put at the top.**”
 
 **And that is fifty-one words and a person of about seventeen in that room wrote the number of them on the back of her hand and did not tell anybody, and a person of about seventeen can read figures and not words, and she did not tell anybody because there was nobody to tell.**
 
@@ -50,11 +50,11 @@ The man of about thirty-four with a net said the word, once, and then stopped an
 
 The mason of about sixty-eight looked at him.
 
-"**No,**" he said.
+“**No,**” he said.
 
-"**You have not heard what I was going to ask.**"
+“**You have not heard what I was going to ask.**”
 
-"**I know what you were going to ask,**" the mason said. "**And I said on Monday that I am not going to be asked in a room, and I have not said anything else since Monday, and a word is not a stone and I do not know why I would say one and not the other.**"
+“**I know what you were going to ask,**” the mason said. “**And I said on Monday that I am not going to be asked in a room, and I have not said anything else since Monday, and a word is not a stone and I do not know why I would say one and not the other.**”
 
 Nobody said the word again in that room for the rest of the day.
 

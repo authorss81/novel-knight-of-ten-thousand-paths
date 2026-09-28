@@ -52,7 +52,7 @@ And then the second half of it, and this is the half that is his and not anybody
 
 He said it out loud in the doorway, to nobody, in the tone of a boy saying a number he has got, and it is twenty-two words and nobody heard it.
 
-"**Nine of about forty is about three hundred and sixty and I have got it in my book and it is mine.**"
+“**Nine of about forty is about three hundred and sixty and I have got it in my book and it is mine.**”
 
 **And then he wrote it in the book, at the end, in his own hand, on a page of figures with no head on it, and the book has about four hundred entries in it and it is four years old and about nine marks in it are in a hand that is not his and a mark is a mark and he has never asked anybody what a mark is and he is not going to.**
 

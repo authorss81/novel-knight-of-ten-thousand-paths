@@ -42,7 +42,7 @@ Two counts, three lots each, six figures and not one of the six the same twice, 
 
 A man of about thirty-four with a sheet said, to the man with the crowbar, at about the seventh hour, and it is twenty-seven words and it is the whole of what he said about what the book was for.
 
-"**It wants a place and it wants a figure and it wants a trade, and I am not going to write which of the three it is.**"
+“**It wants a place and it wants a figure and it wants a trade, and I am not going to write which of the three it is.**”
 
 And the man of about thirty-eight with a crowbar said nothing back, and went and put the bar on his shoulder, and the four of them tied the satchel.
 

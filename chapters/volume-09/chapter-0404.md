@@ -30,7 +30,7 @@ The plan was made at about the third hour and it took eleven minutes and it is a
 
 “**That is four, and two of them are people who will say no to a sheet of paper, and the third is a man who cannot read.**”
 
-“**I know.**
+“**I know.**”
 
 “**Then the eight are not chosen yet,**” she said, “**and that is the correct number of places to have, and I want to say the rest of it and then I want to be wrong in a room and not in a column.**”
 

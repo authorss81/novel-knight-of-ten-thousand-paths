@@ -6,13 +6,13 @@
 
 The man who carts lime is about twenty-nine and he came into that yard on the Monday at about the fourth hour with two loads and he was not told anything by anybody, he was told it by a boy at a well on the Friday, and he told it to a man of about sixty-eight who was standing in the yard doing nothing in particular, which is what a man of about sixty-eight does in a yard.
 
-"**There is a yard behind the assizes with two rooms in it and no lock on the door.**"
+“**There is a yard behind the assizes with two rooms in it and no lock on the door.**”
 
 The man of about sixty-eight did not answer him, and the man of about twenty-nine told him the rest of it anyway, because a man who has been somewhere unusual in the last fortnight and has not told anybody yet will tell a person who is not listening.
 
-"**The door had dropped on the sill and the man with the bar had it up in a second and the sill stone is loose and he had to put it back and he was in a hurry about it.**"
+“**The door had dropped on the sill and the man with the bar had it up in a second and the sill stone is loose and he had to put it back and he was in a hurry about it.**”
 
-Then he said the part he had been carrying. **"And it is not one of ours. The stone in that sill is dressed on four sides and it has been off another building, and the bottom of it has got a mark on it that I have never seen the like of and I would have stopped to look at it if I had not been in a hurry."**
+Then he said the part he had been carrying. **“And it is not one of ours. The stone in that sill is dressed on four sides and it has been off another building, and the bottom of it has got a mark on it that I have never seen the like of and I would have stopped to look at it if I had not been in a hurry.”**
 
 And the man of about sixty-eight did not answer that either.
 
@@ -20,13 +20,13 @@ And the man of about sixty-eight did not answer that either.
 
 **And then he asked one question, and it is a mason's question, and it took him about four seconds to get to it and he did not get to it in the first four seconds.**
 
-"**How long is it.**"
+“**How long is it.**”
 
-"**About four feet.**"
+“**About four feet.**”
 
-"**About four feet and dressed on four sides.**"
+“**About four feet and dressed on four sides.**”
 
-"**Dressed on four sides and about a hand thick and it came out of the wall easier than it went in, and the man with the bar got his fingers under it and it came up in his hands like a board.**"
+“**Dressed on four sides and about a hand thick and it came out of the wall easier than it went in, and the man with the bar got his fingers under it and it came up in his hands like a board.**”
 
 **And that is forty-two words, and it is the whole of what the man of about twenty-nine said about the stone, and a man of about twenty-nine who carts lime can tell you how a stone comes out of a wall the way he can tell you how a sack comes off a cart, and he does not know that he has told a mason anything at all.**
 

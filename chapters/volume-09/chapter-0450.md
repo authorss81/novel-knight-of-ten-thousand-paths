@@ -26,7 +26,7 @@ The decision is this. **That there is no ninth meeting, and no tenth, and that i
 
 The man of about twenty-two with a handcart said the reason and it was the reason he had given on the eighteenth of Embermonth and nobody in that room had improved on it since and nobody was going to.
 
-"**Nine of us have met,**" he said. "**A man with a form can find that in about four years, and if he cannot find the room he can find the nine, and we have each got about nine days of the year in which somebody who has a form would be stood in front of us about a street we walk on. And there is not one thing in nine counties that we cannot do without meeting again.**"
+“**Nine of us have met,**” he said. “**A man with a form can find that in about four years, and if he cannot find the room he can find the nine, and we have each got about nine days of the year in which somebody who has a form would be stood in front of us about a street we walk on. And there is not one thing in nine counties that we cannot do without meeting again.**”
 
 Nobody improved on it. A woman of about fifty-eight with a slate said that she had come eight times for nothing and that she was the one it cost most, and that she was not going to be thanked and did not want to be, and that a figure of men in a yard in a town of about nine hundred people is going to stop being chalked on a slate in about nine years when there is nobody left to chalk it, and there is nothing anybody can do about that on a Sunday in Wolfmonth.
 
@@ -38,21 +38,21 @@ The woman of about forty-four at a kiln said that she was right and that it was 
 
 **And a woman of about seventeen asked the man of about twenty-two with a handcart for the ninth thing at about the seventh hour, in front of eight people, and he said it, and that is the last time it is said in that room and he will say it again if he is asked anywhere else.**
 
-"**What is the ninth.**"
+“**What is the ninth.**”
 
 He said it once and did not wait to be asked for it again, which is a different thing from the nineteenth of Embermonth, and both of them knew it was.
 
-"**Coldharbour.**"
+“**Coldharbour.**”
 
 **And it is the name of a road nine miles long that is on no map because a road is not a place and has nobody in it, and about forty people heard it sung in a market in a month in Greenmonth and about nine of them heard it properly, and it has been said out loud in four counties since, and a man of about thirty has it on the back of his own hand under a bar of soap and nothing over it, and none of that can be put back and none of it was anybody's fault and nobody in that room said one word about it.**
 
-"**I am not keeping it,**" he said. "**I said it three times on one morning in Embermonth because I was asked three times, and this is the first time I have said it since, and I have not written it down and I have not got anywhere to write it, and if you ask me on a road in ten years I will say it again.**"
+“**I am not keeping it,**” he said. “**I said it three times on one morning in Embermonth because I was asked three times, and this is the first time I have said it since, and I have not written it down and I have not got anywhere to write it, and if you ask me on a road in ten years I will say it again.**”
 
 **Two people were asked on that Sunday and one of them said the word and one of them did not.**
 
 The man of about nineteen at a bar was asked second and he said no.
 
-"**I have been asked one question in four months and believed, and being asked in a room in front of eight people is a different kind of being asked.**"
+“**I have been asked one question in four months and believed, and being asked in a room in front of eight people is a different kind of being asked.**”
 
 **That is twenty-nine words and it is the same answer he gave on the nineteenth of Embermonth and he is nineteen, and the man of about twenty-two with a handcart looked at the floor while it was said and did not take it as a thing about himself, because it was not.** The mason of about sixty-eight was in that room and was not asked and did not volunteer, and the woman of about thirty-seven with a plate on a bracket over her door in a roadhouse eleven miles on was not in that room and has not been told and there is no form on which she could be, and the person who did not say the word on that Sunday has not said it to anybody since and is not going to.
 

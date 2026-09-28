@@ -16,11 +16,11 @@ The farm gate is on the made road and the lane comes off the made road two hundr
 
 The man who farms it is about forty-four and he was at the gate at about the fourth hour and he was not surprised and did not put down the bucket he was carrying, and the man of about thirty-four asked him, in the ordinary way, what the place was called.
 
-"**It was a harbour once and it is my field now and both of those are true,**" he said, and it is seventeen words and it is the answer of a man who is not lying and is not being careful either.
+“**It was a harbour once and it is my field now and both of those are true,**” he said, and it is seventeen words and it is the answer of a man who is not lying and is not being careful either.
 
-"**There is a road of the same name half a mile up that lane.**"
+“**There is a road of the same name half a mile up that lane.**”
 
-"**There is,**" the man of about forty-four said. "**My grandfather took glass up it. There is a sign on it that somebody painted out and I have never seen the sign and I have never asked what it said, and I would not take it down again if I could see it.**"
+“**There is,**” the man of about forty-four said. “**My grandfather took glass up it. There is a sign on it that somebody painted out and I have never seen the sign and I have never asked what it said, and I would not take it down again if I could see it.**”
 
 **And he said all of that at a gate with a bucket in his hand and he went on with the bucket, and he is a man of about forty-four who farms about forty acres and has a ditch at the bottom of it that used to take a boat, and he has never in his life entered anything anywhere and never will.**
 

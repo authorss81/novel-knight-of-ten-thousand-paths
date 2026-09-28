@@ -18,7 +18,7 @@ The woman of about seventeen came in at about the second hour as well and stood 
 
 The man of about nineteen spoke at about the sixth hour, after the other seven were in and after about nine minutes of nothing, and he did not stand up.
 
-"**I want him to go,**" he said. "**I have thought about it four days and I am not going to be nicer about it than that. I do not know what he has done and I do not want to know. There is a receipt in the inside of my coat with a place on it and a figure of men on it and a trade on it, and I cannot read it, and I have carried it since the second of a month in Fallowmonth. If I am in a room with a man in it who knows nine places in nine counties then I am not a man at the end of a bar, I am the bar that the man was at the end of.**"
+“**I want him to go,**” he said. “**I have thought about it four days and I am not going to be nicer about it than that. I do not know what he has done and I do not want to know. There is a receipt in the inside of my coat with a place on it and a figure of men on it and a trade on it, and I cannot read it, and I have carried it since the second of a month in Fallowmonth. If I am in a room with a man in it who knows nine places in nine counties then I am not a man at the end of a bar, I am the bar that the man was at the end of.**”
 
 **And that is a hundred and twenty-six words and it is the whole of what he said, and the woman of about fifty with the board wrote the number of them on the back of her left hand where there was already one number on it, and did not tell anybody, and has not told anybody since, and the two numbers on that hand are not the same number.**
 
@@ -26,11 +26,11 @@ The man of about nineteen spoke at about the sixth hour, after the other seven w
 
 The woman of about seventeen spoke about ten minutes later and she stood up to do it, which is what she did on the twenty-fifth of Embermonth, and nobody told her to.
 
-"**I asked for a thing on Friday and I got it and I am not going to say what it was, and seven people in this room do not know and one does.**"
+“**I asked for a thing on Friday and I got it and I am not going to say what it was, and seven people in this room do not know and one does.**”
 
 Nobody looked at the mason of about sixty-eight, who was the one who did not know. She had looked at him when she said it, once, and then she looked at the man of about thirty-two with a limp, who was on a stool by the door.
 
-"**A gate is a place, and a place is the first of the three heads on a form, and you know that. If I am in a room with you in it then whatever I found out is something two counties off can get hold of, and they will not get it off me, they will get it off you, and you are the man in nine counties who is on nothing, and that is the only reason nobody can get anything off you at all.**"
+“**A gate is a place, and a place is the first of the three heads on a form, and you know that. If I am in a room with you in it then whatever I found out is something two counties off can get hold of, and they will not get it off me, they will get it off you, and you are the man in nine counties who is on nothing, and that is the only reason nobody can get anything off you at all.**”
 
 **And that is a hundred and nineteen words for both of the things she said, and both of them were said in that room and both of them are printed here, and the woman of about fifty did not write the number down because her hand was full, and nothing about that number is on any board in nine counties and nothing is going to be.**
 
@@ -50,7 +50,7 @@ He was going to say that he had told four of the nine himself, and that he had c
 
 He did not say any of it.
 
-He said, "**I will be gone on Wednesday,**" and he said it at about the seventh hour, and then he sat on the stool and did not say anything else for about an hour, and the room let him, and that is the last time nine people in nine counties let a man be quiet on purpose and be thanked for it.
+He said, “**I will be gone on Wednesday,**” and he said it at about the seventh hour, and then he sat on the stool and did not say anything else for about an hour, and the room let him, and that is the last time nine people in nine counties let a man be quiet on purpose and be thanked for it.
 
 **Nobody argued with him. Nobody defended him. A man of about thirty-four with a net, who had put the whole of it into that room in a sentence in a month in Longlight, opened his mouth about twice and shut it, and the second time he shut it before anybody saw, and nobody saw.**
 

@@ -24,11 +24,11 @@ About nine hundred sheets a month go out of a room over a shop into nine countie
 
 The man of about thirty-three with a barrow put a load of glass down in a yard in a town of about two thousand people on the salt at about the seventh hour, and a man of about fifty-three who takes loads the other way up that road came through the yard and said, in the ordinary way, that he had been to the field on Tuesday.
 
-"**I have been to the field,**" the man of about fifty-three said. "**They have put a number on it.**"
+“**I have been to the field,**” the man of about fifty-three said. “**They have put a number on it.**”
 
 Then he asked the man of about thirty-three with a barrow whether he knew the place, and he said he did, and he said he came up that road about nine years, and he said the name without being asked for it because it is the road he comes up.
 
-"**Then you will get work,**" the man of about fifty-three said. "**A place with a figure on it gets carts put on it. That is how it is done. I have seen it twice.**"
+“**Then you will get work,**” the man of about fifty-three said. “**A place with a figure on it gets carts put on it. That is how it is done. I have seen it twice.**”
 
 **And the man who asked was not an officer and was not on the strength of anything and was a man of about fifty-three who takes loads up a made road and has taken loads up that road for about thirty years, and there is no form in this kingdom on which such a man is anybody's business, and he had read the three off a sheet that a clerk of about twenty-three read out in a room over a saddler's about nine miles off, and he was not told where it came from and did not ask.**
 

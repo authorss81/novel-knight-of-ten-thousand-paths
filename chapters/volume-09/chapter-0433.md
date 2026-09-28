@@ -24,7 +24,7 @@ That is it. **Nobody said a name and nobody said a number and nobody said why, a
 
 She said the thing she said about it at about the sixth hour on the Saturday, to a man of thirty-two with a limp who had come into that yard at about the second hour with a stick in his left hand and had not asked for anything, and she said it once and she did not say it again.
 
-"**I have not been to that yard and I have not sent anybody and I do not want to know whose it is.**"
+“**I have not been to that yard and I have not sent anybody and I do not want to know whose it is.**”
 
 **And that is twenty-three words, and it is the whole of what she said about it, and she was not defending herself, because nobody had said she had done it, and she was not refusing an offer, because no offer had been made, and she was putting a thing in the right place and the right place was in front of a man who was not going to write it down.**
 

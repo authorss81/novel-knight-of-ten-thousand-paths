@@ -24,15 +24,15 @@ About nine carts come up that made road in about four hours on a Wednesday, and 
 
 ## Three
 
-The man of about thirty-three with a barrow came up that road at about the sixth hour on the Wednesday and pulled up nine feet short of the lever, which is nine feet further than he has come in about four months and the same nine feet as the last two times he came this way, and he had a fold of paper in the inside pocket of a coat that is not his, thirty-eight days old and still folded, and he had not opened it.
+The man of about thirty-three with a barrow came up that road at about the sixth hour on the Wednesday and pulled up nine feet short of the lever, which is nine feet further than he has come in about four months and the same nine feet as the last two times he came this way, and he had a fold of paper in the inside pocket of a coat that is not his, thirty-nine days old and still folded, and he had not opened it.
 
 **And this time he asked, and it is the first time anybody has asked him anything at that bar since a man of about thirty-three with a barrow put a sheet on the end of it on a Friday in Greenmonth and told him he had been told not to say what it was.**
 
-"**What is on the sheet on that bench.**"
+“**What is on the sheet on that bench.**”
 
 And the man of about nineteen looked at him and did not answer for about four seconds, and the four seconds are not him deciding whether to lie, and a man of thirty-three with a barrow watching his face in those four seconds could not have told the difference and was watching it.
 
-"**I do not know and I cannot read and nobody has ever asked me either.**"
+“**I do not know and I cannot read and nobody has ever asked me either.**”
 
 That is fifteen words and it is the whole of what a man of about nineteen said to a man of about thirty-three with a barrow at a bar on a Wednesday, and it was believed, and about two hundred people in a town of about two thousand people on the salt would have believed it.
 
@@ -40,7 +40,7 @@ That is fifteen words and it is the whole of what a man of about nineteen said t
 
 ## Four
 
-He did not ask anything else. **He has been carrying a sheet for thirty-eight days and has not opened it, and he has now found out that there is a second one on a bench in a shed nine feet by seven under a stone, and he is not going back into that shed to lift the stone, and he has not been inside that door since a Friday in Greenmonth, and there are two pieces of paper in that county with nine figures on them and no head on them and a date at the bottom and not one person in four counties can read either of them.**
+He did not ask anything else. **He has been carrying a sheet for thirty-nine days and has not opened it, and he has now found out that there is a second one on a bench in a shed nine feet by seven under a stone, and he is not going back into that shed to lift the stone, and he has not been inside that door since a Friday in Greenmonth, and there are two pieces of paper in that county with nine figures on them and no head on them and a date at the bottom and not one person in four counties can read either of them.**
 
 The sheet on that bench has been under that stone since the fourteenth of a month in Greenmonth, which is about eighty-nine days, and it has lifted twice off the bench in that time and the stone is the reason it is on the bench and not on the floor of that shed.
 

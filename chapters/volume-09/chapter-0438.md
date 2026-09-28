@@ -10,7 +10,7 @@ On the second of Fallowmonth he wrote his receipt, and then he wrote it out agai
 
 **So he went round that yard at dusk on the second and gave a copy to every person in it who had come in from off the road, and there were four of them, and he did not ask any of the four whether they could read, and not one of the four had come into that yard from off the same road as anybody else.**
 
-A woman of about thirty-seven who keeps a roadhouse eleven miles on from that yard on the made road, and who hangs a plate out on a bracket over her door when there is a hot dinner and takes it in at dusk, got one. "**She has had it twenty-three days and it is in the till box under a pound of silver and she has shown it to four people this month and not one of them can read it and neither can I.**" That is forty words and it is the whole of what she said about it, and she said it to a man with a stick who had a plate put in front of him first, and she would have said it to anybody.
+A woman of about thirty-seven who keeps a roadhouse eleven miles on from that yard on the made road, and who hangs a plate out on a bracket over her door when there is a hot dinner and takes it in at dusk, got one. “**She has had it twenty-three days and it is in the till box under a pound of silver and she has shown it to four people this month and not one of them can read it and neither can I.**” That is forty words and it is the whole of what she said about it, and she said it to a man with a stick who had a plate put in front of him first, and she would have said it to anybody.
 
 ## Two
 

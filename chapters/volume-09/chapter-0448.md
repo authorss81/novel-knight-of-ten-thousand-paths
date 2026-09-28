@@ -46,7 +46,7 @@ Two counties off, a man of about fifty-one finished a drain arch in a wall in a 
 
 **And then the man of about thirty-three with a barrow said the thing he had walked four miles to say, and he said it in nine words, and it is the only sentence anybody in that street said that morning that cost either of them anything.**
 
-"**Your four months came out the twenty-fourth of Thawmonth.**"
+“**Your four months came out the twenty-fourth of Thawmonth.**”
 
 **The twenty-fourth of a month in Thawmonth was two hundred and thirty-one days back, and two hundred and thirty-one is thirty-three weeks exactly, and about eight people in that town of about two thousand have worked that out, and about four of the eight are wrong by a day, and not one of the eight had ever said one word about it, and the man who said it does not know whether he is one of the four who are right or one of the four who are wrong, and there is nothing in that town and nothing in that county that would ever settle it, and he found that out about four seconds after he had said it and has not mentioned it since.**
 

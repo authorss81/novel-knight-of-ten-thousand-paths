@@ -8,7 +8,7 @@
 
 The form was on the counter with the three lines on it and a second form behind it with a head on it that the first form did not have, and the head took a trade, and the trade was how a man is found.
 
-"**It wants somebody's trade against it,**" the man of about thirty-four with a sheet said. "**Not yours particularly. Anybody's. If there is a trade against that place then a man in this county can go and stand on it and see whether it is what the sheet says.**"
+“**It wants somebody's trade against it,**” the man of about thirty-four with a sheet said. “**Not yours particularly. Anybody's. If there is a trade against that place then a man in this county can go and stand on it and see whether it is what the sheet says.**”
 
 **And that is a good argument and it is in his interest and the whole of it is in his interest, and it had not occurred to the man of about thirty-four that a trade against a place is also a thing that makes a place the kind of place a man can be sent to.**
 
@@ -20,7 +20,7 @@ Aren did not do it. He did not say he would not and he did not say why, and he s
 
 He had come into Merefen with eleven dead sheep off the salt bank and he was in a yard in a street four hundred yards long and he had about two hours before the cart went.
 
-"**They have put four hundred and seventy on it,**" he said. "**If that stands they will make the lane up and the carts will stop going round the quarter and they will go up my gate instead, and I have been four years with a barrow in the soft at the bottom of my own field.**"
+“**They have put four hundred and seventy on it,**” he said. “**If that stands they will make the lane up and the carts will stop going round the quarter and they will go up my gate instead, and I have been four years with a barrow in the soft at the bottom of my own field.**”
 
 He was not lying. **The count was honest, the nine were honest, the man of about thirty-four was honest, and about thirty-four people live in that lane, and all four of those are true and the man of about forty-four is asking a stranger to put his own need in front of all four of them.**
 
@@ -32,11 +32,11 @@ Aren did not do it. He did not tell him the figure was wrong, because it was not
 
 He did it in a yard about two miles from the bar he stands at on four days in seven, and he had the sheet in his hand and not out of the coat, which is a different thing, and he had carried it thirty-seven days and had a barrow-load of glass in the other hand.
 
-"**You can read.**"
+“**You can read.**”
 
-"**I can.**"
+“**I can.**”
 
-"**Then read that.**"
+“**Then read that.**”
 
 **And the man of about thirty-three with a barrow has been told not to say what a thing is, and has decided some while ago that not looking is the same as not saying, and has been right about that for thirty-seven days, and he was not asking about the sheet and he was asking whether a man with a stick would do a thing for him that nobody will do for him and cannot be asked to do twice.**
 
@@ -48,7 +48,7 @@ Aren did not do it. He did not take it and he did not open it and he said that a
 
 The arch is nine miles off the kilns at the end of an unclassified road and it is one span with no parapet on the ring and the beck is about eleven inches over the sill. **The top course of it is out of level by about a hand's width and it wants two men and a barrow and four days and a new stone, and the man four miles off only does drains, and the man standing nine feet off that arch has laid about nine hundred rings and has not been asked for one of them in about eleven years.**
 
-"**Will you ask him whether he would take it on.**"
+“**Will you ask him whether he would take it on.**”
 
 That is ten words and it is the whole of what a mason of about sixty-eight said to him on the Tuesday, and it is the first time in about forty years that he has asked anybody for anything at all, and he is not sending anybody and nobody has sent anybody.
 

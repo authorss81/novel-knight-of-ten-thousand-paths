@@ -30,7 +30,7 @@ He said nothing for a moment. The bar came up about a second later on the lever 
 
 “**I do not know,**” the man of about thirty-three said. “**I was told to leave it and I was told the same by a woman who is not the one who wrote it, and I have got a barrow and a load of glass in it and I am doing this on the way to somebody else.**”
 
-Then he said the thing that made him stop coming up that road, and he said it in about nine words and he did not know that he had said anything.
+Then he said the thing that made him stop coming up that road, and he said it in fifty-nine words and he did not know that he had said anything.
 
 “**I am not to say,**” he said. “**And there is a ditch four hundred yards west of that bar that takes a loaded barrow down about two inches, and I came up here three times last winter and I did not come a fourth, and I have never told anybody that, and I have not got a word for it either.**”
 
@@ -46,7 +46,7 @@ The man of about nineteen looked at it for a while.
 
 “**That is nine numbers.**”
 
-““**They are numbers,**” he said, “**and I cannot read them. I can count to a hundred and I can do a sum of two things and I cannot read, and those are three separate things and only the last one of them is the one that is the matter here.**”
+“**They are numbers,**” he said, “**and I cannot read them. I can count to a hundred and I can do a sum of two things and I cannot read, and those are three separate things and only the last one of them is the one that is the matter here.**”
 
 **And there is a thing about a man of about nineteen who has been on no roll in four counties for one hundred and seventy days, and it is not that he is stupid, and the man of about thirty-three with a barrow worked it out inside about four seconds and it is worth having exactly.**
 

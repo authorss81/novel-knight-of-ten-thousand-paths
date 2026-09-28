@@ -28,7 +28,7 @@ And nobody said a word about the four men of the second of Fallowmonth and nobod
 
 The left handcart had about nine packets on it and a dressed stone on top and it wanted to go about thirty feet to the gate and the ground is flagged and the flagged yard of a house of assizes is not level, and the man of about thirty-eight with a crowbar put his shoulder under the handle of it and got it four feet and then stopped.
 
-"**You could take that end and it would save a trip.**"
+“**You could take that end and it would save a trip.**”
 
 That is eleven words and it is the ordinary thing to say to a man standing in a yard with nothing in his hands at the eighth hour, and it was said to a stranger, and no man in that yard knew anything else about the man he said it to except that he had been in the yard twice in a fortnight and had a stick and had not been in anybody's way.
 

@@ -22,7 +22,7 @@ He read the three heads.
 
 **He read the three heads the way a man reads a sign on a road he has been down a thousand times, and the third one is a trade, and there was a word on the third line already, or there was a clerk about to put one there, and a man of about thirty-eight with a crowbar said twelve words.**
 
-"**A trade on a field is a licence and not a description.**"
+“**A trade on a field is a licence and not a description.**”
 
 And it is twelve words, and it is the whole of what he had to say about it, and he said it to the counter and not to anybody, and then he took his docket and went out, and the door of that office is on a street four hundred yards long and a market was in it.
 

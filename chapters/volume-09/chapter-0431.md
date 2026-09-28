@@ -10,13 +10,13 @@ He came in at the top of the first hour with his stick in his left hand and a we
 
 The twelfth man was standing by the wall on the east side with a rolled thing under his arm, and he was the only one of the twelve who was not working, and he had not come through the gate. He had come in by a door in the house and he was not early and he was not late, and he had been in that yard about nine minutes.
 
-"**Are you the clerk.**"
+“**Are you the clerk.**”
 
-"**I am not.**"
+“**I am not.**”
 
-"**Then I will wait for the clerk.**"
+“**Then I will wait for the clerk.**”
 
-"**You may.**"
+“**You may.**”
 
 **And the whole of what the two of them said to each other in that first minute is sixteen words, of which the man with the sheet said eleven and the stranger said five, and the stranger was right, and neither of them was the reason anything happened in that yard that day.**
 
@@ -52,15 +52,15 @@ He wrote nothing down. **He had a notebook in the coat with the three dates on i
 
 At about the sixth hour the man with the sheet asked him a question, and it was the ordinary question, and it was asked the way a man asks it when he has a form behind him in his own head and has not got the form out.
 
-"**Is this yours.**"
+“**Is this yours.**”
 
-"**No.**"
+“**No.**”
 
-"**Then I will not trouble you.**"
+“**Then I will not trouble you.**”
 
-"**I am not here about it.**"
+“**I am not here about it.**”
 
-"**I did not say you were.**"
+“**I did not say you were.**”
 
 **And that is twenty-two words, and he said his share of every one of them to a man who had no business in that yard and had come into it off a made road with a week's bread in his coat, and he said them without any weight on any of them, and then he turned round and went to a wall and looked at a slate and did not write on it.**
 
@@ -68,7 +68,7 @@ The eleven men finished the middle of the yard at about the seventh hour and sto
 
 He put the bar under the door and lifted, and the door came up off the sill in about a second and a half and the two of them were nine pounds of oak and about four feet and it is not in any list of what is hard to move.
 
-"**That is the whole of it,**" the man of about thirty-eight with a crowbar said. "**There is nothing on that door.**"
+“**That is the whole of it,**” the man of about thirty-eight with a crowbar said. “**There is nothing on that door.**”
 
 **And the crowbar went back on its bracket inside of two minutes, and about nine feet in front of a wall with a slate in it, in a town of about nine hundred people, in a yard that was half clear for a circuit, a man of thirty-four with a sheet did not have to break anything at all, and the second that door was off its sill the whole of that building belonged to a piece of paper in a coat, and a piece of paper does not say how much.**
 

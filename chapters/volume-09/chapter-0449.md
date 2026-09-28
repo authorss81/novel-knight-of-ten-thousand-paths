@@ -28,7 +28,7 @@ The list on the shelf has been looked at. There is a water trough out at a place
 
 The man of about thirty-four with a net said it at about the fifth hour, and he said it as a fact about the room and not as a thing that wanted doing, and it took about nine seconds.
 
-"**A receipt is a record. A record is a thing with a place on it and a number of men on it and a trade on it, in that order, and that is the shape nine counties have spent a year arguing against. There is one of them under a door in a town of about nine hundred people. It is true. It cannot be given back. It says at the foot of it who took it.**"
+“**A receipt is a record. A record is a thing with a place on it and a number of men on it and a trade on it, in that order, and that is the shape nine counties have spent a year arguing against. There is one of them under a door in a town of about nine hundred people. It is true. It cannot be given back. It says at the foot of it who took it.**”
 
 **Nobody agreed with him. Nobody disagreed with him either. A man of about forty-one with a boundary said that a thing you cannot give back is not a thing anybody can be asked to give, and a woman of about fifty-eight with a slate said that a figure with no head on it cannot be refused and cannot be handed back for the same reason, and the man of about twenty-two with a handcart said that a receipt is a thing you carry to a door and a thing you do not carry to a door is not a receipt, it is a piece of paper with a hand on it, and the mason of about sixty-eight said nothing, and the woman of about seventeen said nothing, and the man of about nineteen said nothing.**
 

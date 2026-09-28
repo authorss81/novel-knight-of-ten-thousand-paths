@@ -12,7 +12,7 @@ He was the tenth and he had told four of the nine himself, and he had not told t
 
 The man of about twenty-two with a handcart was the last one in and he came in at about the sixth hour and stood in the doorway with his hand on the frame.
 
-"**I am not the ninth of nine,**" he said. "**I am hired by the hour and I carry what I am given and I go where I am told. The day that thing is mine I have to put it somewhere and I have not got a shelf.**"
+“**I am not the ninth of nine,**” he said. “**I am hired by the hour and I carry what I am given and I go where I am told. The day that thing is mine I have to put it somewhere and I have not got a shelf.**”
 
 He said that to the room and not to anybody in it, and then he sat down on the bench under the platform, at the end, where a man sits who is not going to be asked anything.
 
@@ -22,11 +22,11 @@ He said that to the room and not to anybody in it, and then he sat down on the b
 
 The woman of about forty-four came from a yard of four kilns two days west of the fen town and she had lime on her hands and she had walked the last nine miles, and she was the first thing said in that room after the man with the handcart had finished.
 
-"**There are four kilns in that yard and about forty hands in it,**" she said. "**And there is nobody in that yard you can send for. If it is me then the next thing is a form, and the form has a head on it, and the head will say kiln. A kiln is not a person, and then I am not a person either, and I have four families who are drawing on Thursday.**"
+“**There are four kilns in that yard and about forty hands in it,**” she said. “**And there is nobody in that yard you can send for. If it is me then the next thing is a form, and the form has a head on it, and the head will say kiln. A kiln is not a person, and then I am not a person either, and I have four families who are drawing on Thursday.**”
 
 The man of about forty-one did not turn round. He had come nine miles from a fold of about two hundred people and he had a boot with mud on it and he had not sat down.
 
-"**Then it has no address,**" he said. "**And that is mine, because I am the one you would use for an address. I walk two miles and nine stones and I have walked them since I was nine years old and nobody has ever asked me where they are, and I am not going to be asked in a room, and if I am asked I will not say, and if you want me to be a thing that can be asked about then you have got the wrong man and I have told you so in front of eight people.**"
+“**Then it has no address,**” he said. “**And that is mine, because I am the one you would use for an address. I walk two miles and nine stones and I have walked them since I was nine years old and nobody has ever asked me where they are, and I am not going to be asked in a room, and if I am asked I will not say, and if you want me to be a thing that can be asked about then you have got the wrong man and I have told you so in front of eight people.**”
 
 **Two of the nine, and both of them right, and the room did not have a way of putting the two of them together, and nobody tried, and that is what the rest of the day was.**
 
@@ -38,17 +38,17 @@ A man of about thirty-four with a net asked him a question about the arch, in th
 
 The mason of about sixty-eight looked at the floor for a while.
 
-"**No,**" he said.
+“**No,**” he said.
 
 The man of about thirty-four with a net waited, because a man who says no in a room has not always finished.
 
-"**I am not saying I will not tell you,**" the mason said. "**I am saying that I am not going to be asked in a room, and I have been asked in a kitchen four hundred times by strangers and I have said the same answer about four hundred times, and I am sixty-eight and I have been out of work eleven years, and being asked in front of eight people is a different kind of being asked and I do not want the other kind.**"
+“**I am not saying I will not tell you,**” the mason said. “**I am saying that I am not going to be asked in a room, and I have been asked in a kitchen four hundred times by strangers and I have said the same answer about four hundred times, and I am sixty-eight and I have been out of work eleven years, and being asked in front of eight people is a different kind of being asked and I do not want the other kind.**”
 
 Nobody asked him anything else. **A man of about thirty-four with a net said that he had asked because he wanted to know, and the mason said he knew he had, and that was the end of it, and neither of them was the reason anything happened in that room that day.**
 
 The man of about thirty-three with a barrow was the one who had come furthest, and he came up about thirty miles and he had a barrow-load of glass put down in the passage at the bottom of the stairs because there was nowhere else for it, and it was still there at dusk.
 
-"**I have got a thing in a coat,**" he said, unasked, before anybody had got to him, in the tone of a man handing in a thing he has been carrying. "**It is not mine and it has been in that coat a hundred days and I have not opened it and I am not going to open it here, and I am not going to hand it to a room, and I have never in my life handed anything to a room.**"
+“**I have got a thing in a coat,**” he said, unasked, before anybody had got to him, in the tone of a man handing in a thing he has been carrying. “**It is not mine and it has been in that coat a hundred days and I have not opened it and I am not going to open it here, and I am not going to hand it to a room, and I have never in my life handed anything to a room.**”
 
 The woman of about fifty with the board looked at the floor when he said it and did not look at him, and the man of about thirty-three with a barrow noticed that she had not looked at him and said nothing further about it, and that was a thing that went on between those two and it was not said out loud and it was not about the paper.
 
@@ -68,7 +68,7 @@ The day-book is two hundred miles off in a room over a weigh-house with a door o
 
 **And the board is four feet long and it is in a kitchen nine miles on from the kilns and it has about three hundred and seventy figures on it and no head on it, and it has been there thirty-one years, and three hands have written on it, and four of the figures at the foot of it are in one hand and a woman who cannot read matched that hand in about nine minutes on the nineteenth of a month in Fallowmonth and has not said so and is not going to.**
 
-None of the six was touched and none of the six was asked for and the room did not take one of them and did not give one of them up, and the man of about thirty-two with a limp, who was the tenth and who had told four of them himself, sat on a stool by the door for about seven hours and said eleven words in all, and the eleven words were "**I am not going to say anything about any of it**", and he said them at about the seventh hour and nobody argued with him and nobody agreed with him either.
+None of the six was touched and none of the six was asked for and the room did not take one of them and did not give one of them up, and the man of about thirty-two with a limp, who was the tenth and who had told four of them himself, sat on a stool by the door for about seven hours and said eleven words in all, and the eleven words were “**I am not going to say anything about any of it**”, and he said them at about the seventh hour and nobody argued with him and nobody agreed with him either.
 
 ## Five
 

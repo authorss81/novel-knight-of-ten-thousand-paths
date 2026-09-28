@@ -6,21 +6,21 @@
 
 He asked the question at the third stone, and he asked it the way a man asks a thing in the ordinary way, standing on the wrong side of a hedge with his stick in his hand.
 
-"**Did anybody come up that drove on the second or the third of this month.**"
+“**Did anybody come up that drove on the second or the third of this month.**”
 
 The man of about forty-one stood with his hand on the stone and said nothing for long enough that a crow would have gone over, and the silence is not him deciding whether to tell the truth. **He is a man who has been asked about a drove about four times in thirty years and the answer takes him a moment because it is not his to give in the ordinary way. A drove is not his. A boundary is his, and the difference between those two is the whole of his life and he has never had to explain it to a stranger with a stick.**
 
-"**A cart went up it on the Monday and did not come back down it,**" he said. "**And a man went up it on foot on the Tuesday and did not come back down it either, and I did not see his face because I was at the sixth stone by then and the sixth stone is four hundred yards off the line of it.**"
+“**A cart went up it on the Monday and did not come back down it,**” he said. “**And a man went up it on foot on the Tuesday and did not come back down it either, and I did not see his face because I was at the sixth stone by then and the sixth stone is four hundred yards off the line of it.**”
 
-"**You did not see his face.**"
+“**You did not see his face.**”
 
-"**I have not seen his face in thirty years and there are about two hundred people inside this boundary and I could not tell you the face of one of them and I could tell you the day and the hour and which stone was on the path side of which.**"
+“**I have not seen his face in thirty years and there are about two hundred people inside this boundary and I could not tell you the face of one of them and I could tell you the day and the hour and which stone was on the path side of which.**”
 
 ## Two
 
 **And then he said the sentence, and it is twenty-one words, and it is the whole of what he said about the taking, and he said it to a man who had not asked him a question about the taking.**
 
-"**I can tell you what came over and I cannot tell you what anybody did on the far side of it.**"
+“**I can tell you what came over and I cannot tell you what anybody did on the far side of it.**”
 
 And he was right and it is the answer a boundary gives and no other answer in nine counties is as good and none of the others knows that it is giving it.
 

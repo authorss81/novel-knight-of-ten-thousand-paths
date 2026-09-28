@@ -20,21 +20,21 @@ Nothing of it is in the notebook. **The notebook is eleven lines on a page and t
 
 The man of about thirty-three with a barrow was at the gate with a hand-basket of glass and had been there about a quarter of an hour, and he is a man who has been up that lane about nine years and has been to that field about nine times, and he was not asked anything by the man of about thirty-four and had not been asked anything by the man of about forty-four either.
 
-"**What is at the end of that road.**"
+“**What is at the end of that road.**”
 
 The man of about thirty-three with a barrow thought about it for about four seconds, and he was not being difficult, and he had been asked a plain question by a stranger standing in a gateway.
 
-"**I do not know.**"
+“**I do not know.**”
 
-"**You come up it.**"
+“**You come up it.**”
 
-"**I come up it and it is nine miles and I have never once been down the far half of it,**" the man of about thirty-three with a barrow said. "**I have been to that gate and I have been to the second stile and I have never been past the second stile and there is nothing in it to stop me.**"
+“**I come up it and it is nine miles and I have never once been down the far half of it,**” the man of about thirty-three with a barrow said. “**I have been to that gate and I have been to the second stile and I have never been past the second stile and there is nothing in it to stop me.**”
 
 **And that is the whole of what the man of about thirty-three with a barrow knows about a road he has been up for about nine years, and it is true, and it is not carelessness, and the reason is that a man who goes past a thing four hundred times does not look at it, and the reason he does not look at it is that he is thinking about a barrow.**
 
 Then Aren asked him why, and the man of about thirty-three with a barrow said the only thing he had, and it is nine words, and it is about a ditch, and it is the truest thing anybody said in that lane in about nine years.
 
-"**The ditch takes my barrow down about two inches.**"
+“**The ditch takes my barrow down about two inches.**”
 
 ## Three
 
@@ -52,7 +52,7 @@ The man of about forty-four came out of the byre and gave Aren a plate and did n
 
 Aren put the same question to the man of about forty-four that a clerk of about nineteen asks, and he put it in the ordinary way, and the man of about forty-four said the thing he had said a fortnight before and did not say it differently because a second person had come.
 
-"**It was a harbour once and it is my field now and both of those are true.**"
+“**It was a harbour once and it is my field now and both of those are true.**”
 
 **And he said it seventeen words, and the second time it was still seventeen, and about four people in that lane have now heard him say it, and about four hundred and seventy people in four counties have a figure against it, and about a hundred and four sheets a month go out of a room in a fen town with a name and a number and a trade on them, and the man who farms it has not been told any of it and is not going to be, and that is not the county being careless, because there is no line on that form that says a man is told.**
 

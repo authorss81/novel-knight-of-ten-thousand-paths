@@ -20,7 +20,7 @@ A man of about thirty-four with a sheet came into that room late in the day on t
 
 **He said seven words, and it is the whole of what he said.**
 
-"**Keep this and do not lose it.**"
+“**Keep this and do not lose it.**”
 
 And she cannot read, and she said so, and he said that did not matter, and he went out. **That is the ordinary way and it is not a kindness. A receipt that is left with a woman who cannot read it is still a receipt, and a receipt that is read is a conversation, and a man in a hurry on a market morning does not stop for a conversation in a kitchen nine miles off a made road.**
 
@@ -32,7 +32,7 @@ The man of thirty-two with a limp came in at about the seventh hour and had a pl
 
 **Then she put the piece of paper down on the table beside the plate, and she did not ask him to read it either, and she said one thing about it, and it is twenty-four words.**
 
-"**He put four of them on there and he was not asked to and he was not thanked and they are still on it.**"
+“**He put four of them on there and he was not asked to and he was not thanked and they are still on it.**”
 
 And then she went behind the fire and got the board down off the wall and set it against the table with the back of it towards the room, which is what you do with a board of four feet in a kitchen, and she put her finger on the last four figures, and she put her finger on the top figure on the paper.
 

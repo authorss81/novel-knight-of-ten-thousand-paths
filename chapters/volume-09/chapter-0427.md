@@ -18,13 +18,13 @@ Ivo Serrat came in at about the second hour with a hand-basket of glass, and the
 
 He stood at the counter for about a minute and a half and did not touch the slip and did not pick it up. He looked at it the way a man looks at a row of hooks.
 
-"**There is a four, a seven and a nought,**" he said. "**And there is a nine under it, and the nine is not like my nine.**"
+“**There is a four, a seven and a nought,**” he said. “**And there is a nine under it, and the nine is not like my nine.**”
 
 **And that is the whole of what the arithmetic in that room was, and it was nine minutes long, and a man of thirty-two with a limp who was at a table by the fire did not understand one word of it and did not interrupt it once.**
 
-"**That seven is not yours,**" the woman of about fifty said, from behind the plate.
+“**That seven is not yours,**” the woman of about fifty said, from behind the plate.
 
-"**It is mine,**" Ivo Serrat said. "**I do it with the bar across the top. I have done it four years. I have got about four hundred of them in a book I made myself and every seven in that book is made that way and anybody who has seen two of them would know it.**"
+“**It is mine,**” Ivo Serrat said. “**I do it with the bar across the top. I have done it four years. I have got about four hundred of them in a book I made myself and every seven in that book is made that way and anybody who has seen two of them would know it.**”
 
 **And the seven in four hundred and seventy is his, and it got there in the ordinary way and there is no man anywhere who could say how.**
 
@@ -36,7 +36,7 @@ The man of about thirty-four with a sheet did the sum on the back of one of the 
 
 **And that is where the seven words came out, and they are the only seven words he said in that room and he did not know they were seven.**
 
-"**I have got that mark nine times.**"
+“**I have got that mark nine times.**”
 
 **He said it about the ninth hour, with the plate empty and the book out of the inside of his coat and shut, because the book is always shut and it is never opened in that room, and he has never shown it to anybody in four years, and nobody in that room asked to see it, and nobody is going to.**
 
@@ -52,7 +52,7 @@ He counted the book. He had never counted it. He counted the entries at about th
 
 **And then he counted the nine.** Nine entries in about four hundred, and the intervals between them, counted in days, are all the same number, and the number is a number of days, and the sum of nine equal intervals is nine times that number.
 
-"**A road is the only thing you can count in days,**" Ivo Serrat said. "**A field is not. A field you can count in acres and you can count in seasons. You can only count a road in days, and you only get to count one if somebody made it to be gone in a day, and somebody counted it, and they did it about four hundred times.**"
+“**A road is the only thing you can count in days,**” Ivo Serrat said. “**A field is not. A field you can count in acres and you can count in seasons. You can only count a road in days, and you only get to count one if somebody made it to be gone in a day, and somebody counted it, and they did it about four hundred times.**”
 
 **And that is the identification, and it is an arithmetic, and it identifies a thing that is on no sheet in nine counties: a road that is nine miles and is a day's walk and is a thing that was gone in a day on purpose, four hundred times, by people who were going somewhere. It is not a road to a field. It is a road that was built to be used and shut and left, and about four hundred years ago it stopped, and nobody in nine counties knows the day it stopped, and it is not in his book and it is not going to be found out from him.**
 

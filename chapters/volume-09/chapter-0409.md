@@ -16,7 +16,7 @@ The clerk is about sixty. He came at about the fourth hour with a bag, and he ha
 
 **The second is a figure.** What was cut into the stone and when.
 
-**And he is not going to keep a third, and he said so at about the seventh hour in fifty-nine words, and he is a functionary in a field and about sixty and has been for nineteen years, and the fifty-nine words are the best thing anybody said to a man with a stick in about nine days.**
+**And he is not going to keep a third, and he said so at about the seventh hour in seventy-one words, and he is a functionary in a field and about sixty and has been for nineteen years, and the seventy-one words are the best thing anybody said to a man with a stick in about nine days.**
 
 “**I have got the walk and I have got the year,**” he said, “**and if I wrote down the names to go with them then in about nine years there would be a man in a town two hundred miles off who could tell me that a field of about nine acres had nine people in it on a Monday in Longlight, and he could not tell me one thing about the hedge.**”
 

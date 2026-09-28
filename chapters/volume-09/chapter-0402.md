@@ -47,7 +47,7 @@ Feed the stranger first. The woman of about fifty at the salt warehouse said tha
 
 “**What is the figure,**” the man of about twenty said, with the pen.
 
-“**I am not going to tell you,**” she said, and then she said why, and the why was about nine words and it is worth having exactly. “**If I have a figure and you have a figure, then there is a number of me, and I am a woman who puts a pot on.**”
+“**I am not going to tell you,**” she said, and then she said why, and the why was twenty-seven words and it is worth having exactly. “**If I have a figure and you have a figure, then there is a number of me, and I am a woman who puts a pot on.**”
 
 “**It is eleven,**” said a man of about thirty-four who had said nothing for two hours.
 

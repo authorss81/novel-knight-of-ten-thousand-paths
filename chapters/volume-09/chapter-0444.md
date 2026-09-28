@@ -8,11 +8,11 @@
 
 The woman of about seventeen said it anyway, at about the sixth hour, standing up, in the way a person says a thing they have had in their mouth for four years and have never said.
 
-"**There is a road nine miles long and it is about nine miles west of this room,**" she said. "**And there is a gate at the end of it, and there has been a gate at the end of it for about four hundred years, and the road has not been a road anybody uses for about four hundred years, and there are people on the far side of that gate.**"
+“**There is a road nine miles long and it is about nine miles west of this room,**” she said. “**And there is a gate at the end of it, and there has been a gate at the end of it for about four hundred years, and the road has not been a road anybody uses for about four hundred years, and there are people on the far side of that gate.**”
 
 She stopped there for a while and the room let her.
 
-"**A woman is on the other side of that gate and she is my mother, and I came to this side when I was nine, and I have not been down the far half of that road since I was nine, and I have not seen her since I was nine, and I am seventeen.**"
+“**A woman is on the other side of that gate and she is my mother, and I came to this side when I was nine, and I have not been down the far half of that road since I was nine, and I have not seen her since I was nine, and I am seventeen.**”
 
 **And that is the whole of what she said, and nobody asked her how she knew, and the man of about thirty-four with a net had his mouth open and did not use it, and the reason he did not use it is that he had asked a question on the Saturday and had been given an answer and the answer had been no, and a room that has been given a no holds on to it for a while.**
 
@@ -22,7 +22,7 @@ She stopped there for a while and the room let her.
 
 She did not say where the road is. She did not say which of the eight the other seven of the nine are, and the nine miles is the one figure in what she said that a person could get up and check, and none of the nine has a chain or a chain's man or any reason to walk nine miles to find out. She did not say how many people are on the far side of the gate, and when the woman of about fifty-eight with the slate said, in the ordinary way, that a figure would be useful, the woman of about seventeen said that a figure is the one thing that is not wanted, and gave the reason in eight words, and the reason was correct.
 
-"**A figure is how you get sent to.**"
+“**A figure is how you get sent to.**”
 
 She did not say how she knew that there was a gate at the end of nine miles of a road that has not been a road for four hundred years, and nobody asked, and that is the ninth thing that book of about four hundred entries has never been shown for.
 
@@ -32,11 +32,11 @@ She did not say how she knew that there was a gate at the end of nine miles of a
 
 The man of about twenty-two with a handcart was the one who said the thing that made the next meeting happen, and he said it at about the eighth hour and he said it to the woman of about seventeen and not to the room.
 
-"**I carry things to doors,**" he said. "**That is what I am for. I have carried glass, lime, a barrow of sand and a dressed stone four feet long about four hundred times in four years and every single one of them went to a door with somebody standing at it. And if there is a gate nine miles off with somebody on the other side of it, then I am the one person in this room who could go and stand at it, and I am not going to, and you are not going to ask me to, and here is why.**"
+“**I carry things to doors,**” he said. “**That is what I am for. I have carried glass, lime, a barrow of sand and a dressed stone four feet long about four hundred times in four years and every single one of them went to a door with somebody standing at it. And if there is a gate nine miles off with somebody on the other side of it, then I am the one person in this room who could go and stand at it, and I am not going to, and you are not going to ask me to, and here is why.**”
 
 He put his hand flat on the bench.
 
-"**I do not know what is on the far side and neither does she, and a man of about twenty-two with a handcart who turns up at a gate that has been shut for about four hundred years is a man who has been somewhere he cannot say he has not been, and a road with a man on it is a road somebody can write down.**"
+“**I do not know what is on the far side and neither does she, and a man of about twenty-two with a handcart who turns up at a gate that has been shut for about four hundred years is a man who has been somewhere he cannot say he has not been, and a road with a man on it is a road somebody can write down.**”
 
 **And that last thing he said is sixty-seven words, and the whole of what he said at the eighth hour is a hundred and sixty-eight, and the woman of about fifty with the board wrote the number of them on the back of her left hand and did not tell anybody then and has not told anybody since, and a name that is not a practice went into that mouth on the nineteenth of this month and that speech came out of it on the twenty-fifth, which is six days, and the mouth does not keep either of them.**
 
