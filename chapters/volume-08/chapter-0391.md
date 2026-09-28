@@ -1,6 +1,6 @@
 # Chapter 0391
 
-**The twenty-sixth day of Goatmonth, YR 317, a Thursday and a market day four hundred miles from here, and the second hour and the fourth hour and the seventh hour, in a room that holds nine, in a place of about nine dwellings on a river and a flat country of nine miles by four, where a woman of about forty came back on the fourteenth hour of a walk of eleven days and put a roll on a table, and no month and no weekday was said in that room, and about nine hundred people on that river do not know yet what she has come back to say.**
+**The twenty-sixth day of Goatmonth, YR 317, a Thursday and a market day four hundred miles from here, and the second hour and the fourth hour and the seventh hour, in a room that holds nine, in a place of about nine hundred people on a river and a flat country of nine miles by four, where a woman of about forty came back on the fourteenth hour of a walk of eleven days and put a roll on a table, and no month and no weekday was said in that room, and about nine hundred people on that river do not know yet what she has come back to say.**
 
 She had been off this place for five months and eleven days of them walking. The room holds nine and there were eleven in it, and the woman of about twenty-six had a child of about four asleep against her shoulder in a way that was going to end before the fourth hour, and nobody moved for her, and the man of about thirty-four said the first thing.
 

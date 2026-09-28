@@ -1,6 +1,6 @@
 # Chapter 0385
 
-**The twenty-third day of Hearthmonth, YR 317, a Saturday, and a market day, and the second hour and the fourth hour and the seventh hour, in a yard four hundred yards up that county's own road and at a lane a mile off the west end of that market, in a town of about four thousand people on a river, where nine men had been on a lane a mile off that market for fourteen days and had not been paid for any of them, and about four thousand people in that town do not know that.**
+**The twenty-third day of Hearthmonth, YR 317, a Saturday, and a market day, and the second hour and the fourth hour and the seventh hour, in a yard four hundred yards up that county's own road and at a lane a mile off the west end of that market, in a town of about four thousand people on a river, where nine men had been on a lane a mile off that market for nine days and had not been paid for any of them, and about four thousand people in that town do not know that.**
 
 **The market took four hundred yards of clay and stone and about two thousand people that morning. Forty men were on a reach four hundred yards down a lane off the north end and its fourth bay had been pointed in Harvestmonth and had not been touched since, and the man of about fifty-five was in his hut with three bars standing in front of it, and nobody went past him all morning that does not go past him every other morning of the week, and a bench of nine sits on Saturdays and on nothing else in the week and did not sit.**
 
@@ -14,7 +14,7 @@ The sill went in on the nineteenth of that month. **Six feet of it, cut and fitt
 
 **And the bed of lime is three bushels for six feet of stone and it is mixed in a trough by a man with a shovel and stood overnight, and lime that has stood overnight is not the same as lime that has not, and about two people in that county have said since that the curing of the lime is the first of the two nine-day cures on that lane and that nobody puts a figure on either of them.**
 
-**A yard of nine men that is not paid on a Friday does four things and does them in that order. It takes two men off the job on the Monday. It takes the rest of the money out of the stone and puts it into the men. And it says so in the yard in nine seconds to the four who are in and to the five who are not, in a doorway, and about four people in that county have said since that a yard which does the third of those four things is a yard that has never lied to itself, and that a yard which has done the first two of them for a fortnight has a third fortnight in it and not a fourth.**
+**A yard of nine men that is not paid on a Friday does three things and does them in that order. It takes two men off the job on the Monday. It takes the rest of the money out of the stone and puts it into the men. And it says so in the yard in nine seconds to the four who are in and to the five who are not, in a doorway, and about four people in that county have said since that a yard which does the third of those three things is a yard that has never lied to itself, and that a yard which has done the first two of them for a fortnight has a third fortnight in it and not a fourth.**
 
 **And the yard is not being paid for it, and the whole of the not being paid is in one sentence said by the man of twenty-five in that yard at about the fourth hour of a market Saturday, and he said it once and nobody improved on it.**
 
@@ -30,7 +30,7 @@ The want had not changed. **It is the want it was in Harvestmonth, word for word
 
 The stone is paid for. **A sill at thirty-four pence and a course on each side at eleven pence a course and lime at three pence a bushel, and thirty-four and twenty-two is fifty-six pence, and fifty-six and six is sixty-two pence, and sixty-two pence is five shillings and twopence, and that money is in and it is the only money that is in.**
 
-The labour is not. **Eleven households on that lane and the two ends of it and a mill at the far end have between them put in what they could in fourteen days and it came to less than the drain cost, and a yard of nine men has been fourteen days out of pocket at the ordinary rate of a yard that pays its men on a Friday, and nobody has asked that yard to take less and nobody has offered it more, and a man of about thirty-two with a limp did not offer it more and could not and did not say that he could not.**
+The labour is not. **Eleven households on that lane and the two ends of it and a mill at the far end have between them put in what they could in fourteen days and it came to less than the drain cost, and a yard of nine men has been nine days out of pocket at the ordinary rate of a yard that pays its men on a Friday, and nobody has asked that yard to take less and nobody has offered it more, and a man of about thirty-two with a limp did not offer it more and could not and did not say that he could not.**
 
 What nine men eat in a day is the only figure about the job that anybody keeps, and the man of twenty-five keeps it and it is this.
 
@@ -44,7 +44,7 @@ What nine men eat in a day is the only figure about the job that anybody keeps, 
 
 **Eleven households on that lane put in what they could between the ninth of that month and the twenty-third of it, and a subscription on a lane is not a price and is not a rate and is a thing eleven households decide in a doorway over a fortnight, and none of the eleven has ever sat in a room and none of the eleven has ever been asked whether a crossing should be shut, and the one household that has been asked is a woman of about thirty-four and she has not been asked by anybody in an office.**
 
-**She has two carts and one of the two went into that drain to the axle on the ninth of that month and was out again in four hours, and the second cart has gone round for nineteen days, and a woman with two carts and one of them in a drain is the only person on that lane keeping a figure of what the shut is costing, and nobody has asked her for it and she has not offered it and she keeps it on the back of a bill.**
+**She has two carts and one of the two went into that drain to the axle on the ninth of that month and was out again in four hours, and the second cart has gone round for thirty-six days, and a woman with two carts and one of them in a drain is the only person on that lane keeping a figure of what the shut is costing, and nobody has asked her for it and she has not offered it and she keeps it on the back of a bill.**
 
 **And a man of about thirty-two with a limp did not go down to that lane again that day, and about four people in that county have worked out since that a man who has been in that yard three times in about two months and has not asked for a thing in it three times is the only person in that county nobody has had to answer anything.**
 

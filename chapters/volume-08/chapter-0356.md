@@ -44,7 +44,7 @@ Four pence a cart is the price at a bar on a made road where the bar goes down a
 
 “**For the season on a landing where the wicket is up four months and down eight,**” she said, “**and a landing takes four carts a week in the four months and none in the eight, and there is nobody on that landing but me between the second hour and the fourth, and the eight months are mine and the four months are nobody's because the tide is in.**”
 
-**And four people in that county have worked out since that a woman of forty-four said the whole of what a Crown price is worth at a landing in sixty-eight words standing up, and that it was true, and that the man with the sheet wrote none of it down, and that he had a sheet in his hand with about nine lines free on the back of it, and that the four lines he did write on the back of it were the word *keeper*, a landing, a season, and a figure, and that none of the sixty-eight words is on the sheet and all of them are in that room.**
+**And four people in that county have worked out since that a woman of forty-four said the whole of what a Crown price is worth at a landing in sixty-six words standing up, and that it was true, and that the man with the sheet wrote none of it down, and that he had a sheet in his hand with about nine lines free on the back of it, and that the four lines he did write on the back of it were the word *keeper*, a landing, a season, and a figure, and that none of the sixty-six words is on the sheet and all of them are in that room.**
 
 “**What does a man get for two shillings a cart,**” she said.
 

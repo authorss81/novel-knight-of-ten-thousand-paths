@@ -1,6 +1,6 @@
 # Chapter 0392
 
-**The twenty-eighth day of Goatmonth, YR 317, a Saturday and a market day, and the first hour and the fourth hour and the sixth hour, in a place of about nine dwellings on a river four hundred miles off, and in a yard four hundred yards up the county's own road in a town of about four thousand people on a river, and about four thousand people in that town do not know that a bar went up on a river four hundred miles off on the same morning, and that a man standing in that yard at the fourth hour was told about it and said nothing.**
+**The twenty-eighth day of Goatmonth, YR 317, a Saturday and a market day, and the first hour and the fourth hour and the sixth hour, in a place of about nine hundred people on a river four hundred miles off, and in a yard four hundred yards up the county's own road in a town of about four thousand people on a river, and about four thousand people in that town do not know that a bar went up on a river four hundred miles off on the same morning, and that a man standing in that yard at the fourth hour was told about it and said nothing.**
 
 ## One
 

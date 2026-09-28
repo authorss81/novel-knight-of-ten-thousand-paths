@@ -48,7 +48,7 @@ And about four people in that county have worked out since that a woman who take
 
 ---
 
-**And a man of thirty-two with a limp came up that made road on foot at about the eighth hour with his stick and about four seconds of trouble at the bar, and stood on his own side of it and did not put it down, and the woman of about forty-one looked at him for about two seconds and then said the thing that is the whole of this volume.**
+**And a man of thirty-two with a limp came up that made road on foot at about the eighth hour with his stick and about four seconds of trouble at the bar, and stood on his own side of it and did not put it down, and the woman of about forty-one looked at him for about two seconds and then said the thing that is the whole of it.**
 
 “**You cannot get up that bank,**” she said.
 

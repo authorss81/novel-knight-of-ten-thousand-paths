@@ -66,7 +66,7 @@ The man put the sheet up on the flat of the parapet, uncreased, with one hand, t
 
 ---
 
-**And the woman of about forty-one put her hands on the parapet of her own crossing and said the thing that is the whole of this volume, and she said it once that day, and she had said it nine years before to a man who was complaining about the price of salt, and nobody improved on it and nobody is going to.**
+**And the woman of about forty-one put her hands on the parapet of her own crossing and said the thing that is the whole of it, and she said it once that day, and she had said it nine years before to a man who was complaining about the price of salt, and nobody improved on it and nobody is going to.**
 
 “**A crossing is not a line. A line has two ends and two hands and a date, and the moment a crossing is a line on somebody's paper it is a toll, and a toll is the only kind of paper anybody obeys.**”
 

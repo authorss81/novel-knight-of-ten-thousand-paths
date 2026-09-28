@@ -38,7 +38,7 @@ A hundred nails at four pence, and a sheet of iron at nine pence, and two bushel
 
 **And the man of about thirty-one who was not on that yard made sure of the iron and the lime and counted the nails, and he was not appointed by anybody, and the only person who was in the whole of it who had been asked to do anything was the man of about thirty with a mallet, and he had been asked by a man of about thirty-three with a barrow on the morning of the twenty-fourth and not by anybody at all before that.**
 
-**And the man standing at the end of the bar at about the fifth hour on the twenty-seventh of that month was about nineteen years old and came from a yard four hundred miles up that fen county's own road and had been in that yard for about four years, and two thousand people in that town had walked past him four times that day and not one of them had asked him his name and he had not offered it to anybody.**
+**And the man standing at the end of the bar at about the fifth hour on the twenty-seventh of that month was about nineteen years old and came from a yard four hundred miles up that fen county's own road and had been in that yard for about four months, and two thousand people in that town had walked past him four times that day and not one of them had asked him his name and he had not offered it to anybody.**
 
 ---
 

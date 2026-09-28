@@ -16,7 +16,7 @@ A Sunday in that field is a Sunday. **The carts stand in two arcs and nobody is 
 
 ---
 
-**And a woman of about thirty-four of the four hundred, who is the woman a man with a limp later carried a dead man's coat across a field to, had been in the low arc for five weeks and had a cart with a handcart's handle on it, and a woman who has not spoken to a man of the two hundred for twenty-nine days carried a dead man's coat nine hundred yards across a field at the fourth hour on a Sunday and did not stop in front of him, and a thing a person does not do on purpose is a thing they have been doing for twenty-nine days.**
+**And a man of about thirty-four of the four hundred, who is the man a man with a limp later carried a dead man's coat across a field to, had been in the low arc for five weeks and had a cart with a handcart's handle on it, and a woman who has not spoken to a man of the two hundred for twenty-nine days carried a dead man's coat nine hundred yards across a field at the fourth hour on a Sunday and did not stop in front of him, and a thing a person does not do on purpose is a thing they have been doing for twenty-nine days.**
 
 **And the two hundred watched from the top of the bank and the four hundred watched from the low arc, and the nine hundred yards between them had a ditch in it with about two inches of brown water in it, and the coat went across the ditch and not round it, and nobody in that field has said why and about four people in it have worked out since that a ditch is two hundred steps in the dark and about nine hundred in the light, and that the woman did not have to cross it at all.**
 
