@@ -34,7 +34,7 @@ He said the number himself, at the fifth hour, standing at the off wheel with th
 
 ## Four
 
-**The woman of about thirty-four with a barrow was nine feet off and had a sheet of oiled paper wrapped round nine pounds of salt in the front of her barrow, and she asked him the one question that nine people on that sand heard and four of them have said since then was the only one anybody asked.**
+**The woman of about thirty-four with a barrow was nine feet off and had a sheet of oiled paper wrapped round nine pounds of salt in the front of her barrow, and she asked him the one question that nine people on that sand heard and four of them have said it was the only one anybody asked.**
 
 “**Who do you think paid it?**”
 
@@ -42,9 +42,9 @@ And the man of about fifty-three said that he had never asked, and that a man wh
 
 “**If the man at the ninth house had known,**” he said, “**he would have said nothing and paid a penny less, and that is how it works, and I am not complaining about it and I am not saying it is a discovery. I am saying that you are the only one on this sand who has asked me and can be asked at all.**”
 
-**And that is sixty-three words in two turns of one exchange, of which the first is six and the second is fifty-four printed in two spans of nine and forty-five, and both are printed, and a man of about fifty-three has said fifty-four words out loud to a woman with a barrow on a foreshore in about nineteen years and had not said the last forty-five of them about himself.**
+**And that is sixty-nine words in two turns of one exchange, of which the first is six and the second is sixty-three printed in two spans of nine and fifty-four, and both are printed, and a man of about fifty-three has said sixty-three words out loud to a woman with a barrow on a foreshore in about nineteen years and had not said the last forty-five of them about himself.**
 
-**And four of the nine said since then that it was the truest thing said on that sand in a year, and four of them said since then that it was a man of fifty-three managing what happened next, and the woman of about thirty-four with a barrow said that both of those were the same sentence said by two people who did not know each other, and she has said since then that she is the only one of the four who has said anything about it, and the woman of about fifty-one at the seaward end was not told and does not want to be told.**
+**And four of the nine said that it was the truest thing said on that sand in a year, and four of them said that it was a man of fifty-three managing what happened next, and the woman of about thirty-four with a barrow said that both of those were the same sentence said by two people who did not know each other, and she has said that she is the only one of the four who has said anything about it, and the woman of about fifty-one at the seaward end was not told and does not want to be told.**
 
 ## Five
 

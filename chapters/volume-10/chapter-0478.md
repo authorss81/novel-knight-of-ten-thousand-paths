@@ -22,7 +22,7 @@ She said that out loud to a man of about twenty-three who had not yet gone down 
 
 “**You will take it back down,**” she said, “**and it will go out on the fixed day in the band with the hundred and three others, and in a year it will come back with a different number against it, and the different number will be a figure too, and nobody will ever be able to say where the first one came from.**”
 
-**And that is a hundred and thirty-two words in three turns of one exchange, of which the first is sixty-four printed in two spans of six and fifty-eight, the second is seven, the third is printed in two spans of six and fifty-five, and the hundred and thirty-two is the whole of the three of them together, and the man of about twenty-three counted the hundred and thirty-two on his fingers on the steps and has said since then that he counted them because she made him wait and not because he cared, and the two of them have not agreed on which.**
+**And that is a hundred and thirty-two words in three turns of one exchange, of which the first is sixty-four printed in two spans of six and fifty-eight, the second is seven, and the third is printed in two spans of six and fifty-five and is the rest of the hundred and thirty-two, and the man of about twenty-three counted the hundred and thirty-two on his fingers on the steps and has said that he counted them because she made him wait and not because he cared, and the two of them have not agreed on which.**
 
 ## Three
 

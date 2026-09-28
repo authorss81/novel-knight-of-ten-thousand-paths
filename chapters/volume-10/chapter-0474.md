@@ -20,9 +20,9 @@ The man of about twenty-nine said the true thing about the word, and he said it 
 
 “**I came down that road with a request for a road that is there when I want it,**” he said. “**And nine people on a shore said no to it in about nine minutes on five grounds, and one of the five was that nobody on that shore would ever be answerable for it, and I have written all five down and I have told them on the way up, and the one that keeps coming back is the one about being answerable.**”
 
-“**And I have worked out since then why they were right, and it is not the reason they gave, and the reason they gave is a good one and I would have given it myself.**”
+“**And I have worked it out since, and it is not the reason they gave, and the reason they gave is a good one and I would have given it myself.**”
 
-**And that is eighty-one words in the first of two turns of one speech, printed in two spans of eighteen and sixty-three, and the second of the two turns is thirty-five words, and he counted the first of the two on the back of a sheet folded in four because he counts things, and did not write the number down, and the woman of about twenty-four heard the second half of it and has said since then that she was one of the nine who said no and that the reason it was not the reason they gave is not a thing to be settled on a made road.**
+**And that is eighty-one words in the first of two turns of one speech, printed in two spans of eighteen and sixty-three, and the second of the two turns is thirty-one words, and he counted the first of the two on the back of a sheet folded in four because he counts things, and did not write the number down, and the woman of about twenty-four heard the second half of it and has said that she was one of the nine who said no and that the reason it was not the reason they gave is not a thing to be settled on a made road.**
 
 ## Three
 
@@ -40,7 +40,7 @@ Then the woman of about twenty-four sang.
 
 “**And the crust comes off in one piece,**” she said, and then she sang the rest of it and the rest of it had a fifth line, and the fifth line is not from that coast and belongs to a kiln four days off and came up this road inside a wagon of shell.
 
-**Nobody at that shed could have said where the fifth line came from and nobody asked, and about four of the nine have said since then that it is the best line in it, and the woman of about twenty-four has said since then that it is not hers and that she would not take it back out now.**
+**Nobody at that shed could have said where the fifth line came from and nobody asked, and about four of the nine have said that it is the best line in it, and the woman of about twenty-four has said that it is not hers and that she would not take it back out now.**
 
 The man of about thirty-two with a limp sat on the trough for the whole of it and said nothing, and after about an hour he asked her one question, which was whether anybody on that sand had asked her what she wanted, and she said that nobody had and that she had not been on that sand long enough to be asked, and that the oldest person on it had not been asked one thing in forty-one years and had not complained about it.
 

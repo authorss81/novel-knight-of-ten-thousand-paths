@@ -22,25 +22,25 @@
 
 “**I have been driving four years,**” he said, “**and it was in a yard at a place I could not name, and there was a man there who said it and said it twice, and I have been angry about it for about a year because I could not get my mouth round it. As soon as I said it to the boy it came out straight.**”
 
-A woman of about fifty-eight with a slate was four feet off and heard all of it, and she wrote one word down on the slate and rubbed it out, and what she had written was *yard*, and she has said since then that a slate is a bad thing to write a name on because a slate is carried about and a slate gets left.
+A woman of about fifty-eight with a slate was four feet off and heard all of it, and she wrote one word down on the slate and rubbed it out, and what she had written was *yard*, and she has said that a slate is a bad thing to write a name on because a slate is carried about and a slate gets left.
 
-**And that is sixty-five words in one turn of one speech printed in two spans of six and fifty-nine, and the man of about nineteen behind the bar at the low end of that street heard both tellings and said nothing and has said since then that he was not asked, and that being in a room and being at a bar are the same amount of being asked.**
+**And that is sixty-five words in one turn of one speech printed in two spans of six and fifty-nine, and the man of about nineteen behind the bar at the low end of that street heard both tellings and said nothing and has said that he was not asked, and that being in a room and being at a bar are the same amount of being asked.**
 
 ## Three
 
-**By the seventh hour nine people had said it, and there is no roll of them and nobody made one, and here is what four of the other six did.**
+**By the seventh hour nine people had said it, and there is no roll of them and nobody made one, and here is what four of the nine did.**
 
 A woman of about thirty-four with a barrow who had come up the made road four days and knew nobody said it to a man selling nails and then said it again to the same man about nine minutes later, and the man selling nails said it back the second time and not the first.
 
-A boy of about eleven who was sent for a pail said it in a doorway, and the woman who sent him said it after him in the same doorway, and the boy has said since then that he does not know why he said it and that it came into his head whole.
+A boy of about eleven who was sent for a pail said it in a doorway, and the woman who sent him said it after him in the same doorway, and the boy has said that he does not know why he said it and that it came into his head whole.
 
 A carter of about fifty who had been standing in the same place since the fourth hour said it once, to nobody, and then stood there for another hour, and two people heard him and he knew they did.
 
-**And a man of about twenty-nine with eight folded sheets in a coat said it last of the nine, at about the seventh hour, to a man of about thirty-three with a barrow who had not heard it before, and he did not write it down afterwards, and the reason he did not write it down is that he writes down things he can act on and he has four of them in a fold in the inside of a coat and has never joined them up, and that is the whole of the reason, and it is not a regret, and it was not said out loud, and nobody has said one word about it since.**
+**And a man of about twenty-nine with eight folded sheets in a coat said it last of the nine, at about the seventh hour, to a man of about thirty-three with a barrow and a boy sitting up in it who had not heard it before, and he did not write it down afterwards, and the reason he did not write it down is that he writes down things he can act on and he has four of them in a fold in the inside of a coat and has never joined them up, and that is the whole of the reason, and it is not a regret, and it was not said out loud, and nobody has said one word about it since.**
 
 ## Four
 
-**And then Aren Kest was asked what a road is, at about the tenth hour, in the middle of a street four hundred yards long, by the woman of about twenty-seven with a basket, and he had been in that town nine days and had said about four sentences in it.**
+**And then Aren Kest was asked what a road is, at about the tenth hour, in the middle of a street four hundred yards long, by the woman of about twenty-seven with a basket, and he had been in that town five days at the start of Thawmonth and had been nineteen days out of it since, and it was his ninth day back in it, and he had said about four sentences in it.**
 
 “**A road is a way people go,**” he said, “**and that is the whole of what it is. It is not a place and it has nobody in it. A road is worth having because you do not have to know anybody to use one, and that is the reason a road is a problem for nine people standing in a street, and it is the same reason twice.**”
 
@@ -48,7 +48,7 @@ A carter of about fifty who had been standing in the same place since the fourth
 
 “**You do not!**” he said, “**and stop asking me for that, because it is the second time in about two months that somebody has asked a man of thirty-two with a limp to shut a road and I have never once been able to do it and I have stopped pretending I am going to try. You can only decide how much of it you are standing in the middle of, and that is not a thing anybody else gets to decide for you, and I found that out the hard way and it took me a year.**”
 
-**And that is a hundred and seventy-two words in three turns of one exchange, of which the first is sixty-seven printed in two spans of seven and sixty, the second is nine printed in two spans of one and eight, and the third is ninety-six printed in two spans of three and ninety-three, and the woman of about twenty-seven with a basket has said since then that it is the fourth thing a man of thirty-two with a limp has said to her in about two months and that it is the first one that was not about him, and four people standing in that street heard the whole of it and one of the four was the man of about nineteen at the bar and he has not said what he thought of it.**
+**And that is a hundred and seventy-two words in three turns of one exchange, of which the first is sixty-seven printed in two spans of seven and sixty, the second is nine printed in two spans of one and eight, and the third is ninety-six printed in two spans of three and ninety-three, and the woman of about twenty-seven with a basket has said that it is the fourth thing a man of thirty-two with a limp has said to her in about two months and that it is the first one that was not about him, and four people standing in that street heard the whole of it and one of the four was the man of about nineteen at the bar and he has not said what he thought of it.**
 
 ## Five
 

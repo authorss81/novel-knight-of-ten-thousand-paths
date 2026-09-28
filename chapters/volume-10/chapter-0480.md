@@ -20,7 +20,7 @@ He was the third to say it out loud and he said it to a man of about forty who w
 
 “**Then say it now,**” the man of about twenty-three said, “**and do not wait to be asked twice!**”
 
-**And that is eighty-two words in three turns of one exchange, of which the first is forty-eight printed in two spans of fourteen and thirty-four, the second is twenty-two printed in two spans of six and sixteen, and the third is twelve printed in two spans of four and eight, and the man of about forty has said since then that he had not wanted to be the man who says a thing like that in a month when everybody is short.**
+**And that is eighty-two words in three turns of one exchange, of which the first is forty-eight printed in two spans of fourteen and thirty-four, the second is twenty-two printed in two spans of six and sixteen, and the third is twelve printed in two spans of four and eight, and the man of about forty has said that he had not wanted to be the man who says a thing like that in a month when everybody is short.**
 
 The fourth of the four was a woman of sixty-three at the back of the fourth house, who said nothing at all and put a third armful of wood on a fire that has not been out since a month in a year she does not give.
 
@@ -46,7 +46,7 @@ Nobody made a list. There is no list and there is no room and there was no meeti
 
 **Aren Kest was on that sand from the seventh hour and was not asked for anything, and he carried one armful of wood up from the boat land to the fourth house and put it down, and a woman of about twenty-seven with a basket said thank you to him and not to anybody else, and he said that she was welcome, and that is the whole of what he did on that sand in three visits and he is not the reason four of eleven houses are standing in.**
 
-He did not say anything about a price and he did not say anything about a keeper and he did not ask the man of about fifty-three anything at all, and the man of about fifty-three did not tell him anything, and four people saw the two of them not do a thing and three of the four have said since then that they were waiting for one of them to start.
+He did not say anything about a price and he did not say anything about a keeper and he did not ask the man of about fifty-three anything at all, and the man of about fifty-three did not tell him anything, and four people saw the two of them not do a thing and three of the four have said that they were waiting for one of them to start.
 
 **And nine cart-loads of shell went off four boats into four pans on the ebb before the cart was sighted, and the man of about fifty-three counted every one of them and sent no boat back empty and told nobody why, and about four of the nine hundred people were carrying wood at the same time, and the tide came in at about the ninth hour and went over about two hundred paces of the seaward half and went back at about the fourth hour of the morning with the wind still against it.**
 

@@ -10,7 +10,7 @@ The man of about thirty-four came down on the ebb and stood at the stone and did
 
 He had a sheet of paper on a board and he wrote on it for about twenty minutes, and he did not look up more than four times, and four people were within nine feet of him the whole of the time and all four of them were doing something else at the same time.
 
-**He has been on that sand four times and he has not said why he comes when he comes, and nobody has asked him, and on this fifth time there was a second man, and the second man is the first person in about nineteen years to stand on that sand who was not there to buy, to sell, to carry, to boil, or to count a tide.**
+**He has been on that sand four times and he has not said why he comes when he comes, and nobody has asked him, and on this fifth time there was a second man, and one of the two of them is on that sand for the stone and the other one is the first person in about nineteen years to stand on that sand who is not there for the stone, and nobody has asked him that either.**
 
 ## Two
 
@@ -18,7 +18,7 @@ He had a sheet of paper on a board and he wrote on it for about twenty minutes, 
 
 He looked at the sand for about twenty minutes the way a man looks at a road he has not been on, and then he looked at the eleven houses, one at a time, from the landward end to the seaward end, and four people on that sand followed where he was looking without knowing they were doing it.
 
-**A man of about fifty-three with a wagon was at the seventh of the eleven and did not follow him, and has said since then that he did not follow him because he has never once in nineteen years looked at his own sand from the landward end.**
+**A man of about fifty-three with a wagon was at the seventh of the eleven and did not follow him, and has said that he did not follow him because he has never once in nineteen years looked at his own sand from the landward end.**
 
 Nobody said anything to either of them.
 
@@ -34,7 +34,7 @@ She gave it to him out of a jug with the handle broken off.
 
 He said thank you, and she said nothing, and he drank about half and gave the jug back and wiped the rim on his sleeve.
 
-**And that is forty-nine words in two turns of one exchange, of which the first is twenty-nine printed in two spans of six and twenty-three and the second is twenty printed in two spans of seven and thirteen, and four people heard it, and the man of about thirty-four did not ask the second man whether he wanted any and the second man did not ask and did not look over, and the woman of about twenty-seven has said since then that she noticed that, and that she has been thinking about it for nine days, and that she has not worked out what she noticed.**
+**And that is forty-nine words in two turns of one exchange, of which the first is twenty-nine printed in two spans of six and twenty-three and the second is twenty printed in two spans of seven and thirteen, and four people heard it, and the man of about thirty-four did not ask the second man whether he wanted any and the second man did not ask and did not look over, and the woman of about twenty-seven has not worked out what she noticed and has not said what it was.**
 
 ## Four
 

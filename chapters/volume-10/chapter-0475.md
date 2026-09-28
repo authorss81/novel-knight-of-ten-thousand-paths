@@ -32,7 +32,7 @@ And she said no, and she said it fast, and she said the rest of it after that.
 
 “**And that is the cost of what we said no to, and I am not turning about, and if you ask me in a year I will say the same, and the reason I am not turning about is that a man four days up that road is going to want to put a page on it and I have seen what a page does to a number.**”
 
-**And that is a hundred and eighty-nine words in two turns of one speech, of which the first is a hundred and twenty-one, printed in two spans of twenty-eight and ninety-three, and the second is sixty-eight, and a man of about thirty-eight who rows one of the four boats did not agree with her and did not disagree with her and has said since then that he was thinking about a boat and was not.**
+**And that is a hundred and eighty-nine words in two turns of one speech, of which the first is a hundred and twenty-one, printed in two spans of twenty-eight and ninety-three, and the second is sixty-eight, and a man of about thirty-eight who rows one of the four boats did not agree with her and did not disagree with her and has said that he was thinking about a boat and was not.**
 
 ## Four
 

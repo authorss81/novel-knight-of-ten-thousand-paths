@@ -30,9 +30,11 @@ He said that the ninth of the eleven had not bought salt or shell for nine weeks
 
 Aren Kest did not say that it was not his fault, and he did not say that he had been careful, and he did not say that a man who speaks once on a sand is not a keeper of anything.
 
-**What he said was that he had said a sentence about eleven paces of stone and a figure of men on a sheet of paper with a fourth head on it that nobody had filled in, and that it had been sixty-four words, and that he had counted them on the made road in about four days, and that he had not thought once in nine days that a sentence could do that, and that he had been wrong about that and would not be arguing.**
-
 “**I said it about a wall,**” he said. “**I said it four days up a made road and I said it to one man and it was four days up a made road. I did not say it to the ninth house and I did not know there was a ninth house.**”
+
+“**It was sixty-four words on a sheet with a fourth head on it that nobody has filled in, and I counted them on the made road in about four days, and I have not thought once in nine days that a sentence could do that, and I was wrong about that and I am not going to argue with you about it.**”
+
+**And that is a hundred and twelve words in two turns of one speech, of which the first is fifty printed in two spans of six and forty-four, and the second is sixty-two, and he said all of it standing up at the ninth of eleven houses in front of four people and did not say one word of it before he was asked.**
 
 ## Four
 
