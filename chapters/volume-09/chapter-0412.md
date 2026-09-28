@@ -52,7 +52,7 @@ A woman of about forty-nine said the thing that nobody had said, and she said it
 
 Nobody improved on it. A man of about thirty-four said that the room could be asked to say it in a month when the drove was not going, and the woman of about forty-nine said that he could, and that a thing said in a month when the drove was not going was a thing said into the air, and that a room which says things into the air is a room with a habit in it, and that this room has never once had a habit in it.
 
-**And the hat stayed on the shelf and the nine names stayed in the hat and the man of about thirty-eight seven miles off went on with his drove on the first of a month and will go on with it, and there is a month in every nine with nobody in that chair at all, and nobody in that township can tell you which month it will be.**
+**And the hat stayed on the shelf and the nine names stayed in the hat and the man of about thirty-eight seven miles off went on with his drove on the first of a month and will go on with it, and there are three months in every twelve with nobody in that chair at all, and nobody in that township can tell you which three they will be.**
 
 **And a man of about thirty-four with a net said one more thing at about the tenth hour, and it was the only thing anybody said in that room all night that was not about the chair, and what he said is that the room has just agreed to be the only room in nine counties that says a thing out loud on purpose, and that the room is going to find out inside about four years whether that was a good idea, and that it will not be able to find out from anybody, because there is no other room to compare with.**
 

@@ -10,7 +10,7 @@ The sheet was still on the bench-board.
 
 **Eight words in chalk and pen, no head on them, and a ninth line ruled in and nothing on it.** The chalk had gone at the top three because the top three had been nearest the edge and the pen had gone at the bottom because the bottom had been dusted. **There were about two feet of daylight between the words and no two of the eight were alike, and a man of about thirty-three with a barrow had said he would be back in a fortnight and it is not a fortnight yet.**
 
-The keeper of records was called Mara Vey and she is twenty-nine and four years and a half and she came down on the cart on the fixed day with about four hundred sheets in a banded bundle and she has been in this room for three of the five days she is here.
+The keeper of records was called Mara Vey and she is twenty-nine and four years and a half and she came down on the cart on the fixed day with about a hundred and four sheets in a banded bundle and she has been in this room for three of the five days she is here.
 
 **She is the only person in nine counties whose whole occupation is the second copy of something, and she has spent about four years and a half making them, and she is the person in this room who knows more about what a copy is than anybody in it by about nineteen years, and she is the reason the argument in that room happened.**
 

@@ -98,7 +98,7 @@ A single arch over a beck, standing, forty years old, **with a mason's punch-mar
 
 ### 5.4 The room over a weigh-house with a door on a lane, two hundred miles off
 
-Fourpence a year, a press standing open since day 504, a register at seven questions and no findings, a day-book at nine entries, about nine hundred sheets a month out into nine counties in two rounds a year, about four hundred and nine parish rolls a month.
+Fourpence a year, a press standing open since day 504, a register at seven questions and no findings, a day-book at nine entries, about nine hundred sheets a month out into nine counties, and about a hundred and four in one band on the fixed day, which is twice a month, and the two figures are counts of two different series and are not added, about four hundred and nine parish rolls a month.
 
 ### 5.5 The second community, four days south, a fold of ground and a byre
 
