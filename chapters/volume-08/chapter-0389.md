@@ -6,7 +6,7 @@ The market was full at the first hour and the tide was making. **Eleven boats go
 
 The room at the back of the salt warehouse has a table in it and a bench on each side of the table and a door that opens on the slip. **The woman of about thirty-four called the eleven households herself, one at a time, on foot, over two days, and she wrote the order of them on the back of a bill because she has no book, and the back of that bill is the only list of eleven anywhere on that coast, and nobody on that coast knows that a list exists and two hundred of the nine hundred would not know what to do with it.**
 
-The man of about thirty-four with a sheet was not in that room. **He had gone two days east with a form he had not filled in and a figure of eleven on it and nothing about four, and four people on that coast have worked out since that a Crown officer came, asked, and was not answered, and went away with the answer that a woman had not said yes, and that is the whole of what that office has about that coast, and that the office is two hundred miles off and eleven days of road from the yard the man had walked to, and nobody in that office has been to the coast.**
+The man of about thirty-four with a sheet was not in that room. **He had gone two days east with a form he had not filled in and a figure of eleven on it and nothing about four, and four people on that coast have worked out since that a Crown officer came, asked, and was not answered, and went away with the answer that a woman had not said yes, and that is the whole of what that office has about that coast, and the office is two hundred miles off the salt, and the yard the man had walked to is eleven days east of that slip, and nobody in that office has been to the coast.**
 
 ---
 
@@ -54,6 +54,6 @@ A man of about fifty-four who burns lime at a kiln two miles off that place had 
 
 She said the last thing at about the eighth hour and she said it to nobody in particular and it was the fourth thing and it was not an answer.
 
-“**Eleven days east there is a yard that has agreed to walk a load a week down this road in the four months my boats cannot run, and I did not ask them and they did not know I existed, and I am not going to tell you that I arranged it, and if you write that down I will know in about eleven days.**”
+“**Eleven days east there is a yard that has agreed to walk a load a week down this road in the four months my boats cannot run, and I did not ask them and they did not know I existed, and I am not going to tell you that I arranged it, and if you write that down I will know before you are home.**”
 
 **And about four people in that coast have said since that a woman of about thirty-four said a fourth thing after saying she would not say a fourth thing, and that the fourth thing was a warning and not an answer, and that nobody in that room wrote it down, and that about nine hundred people on that coast went to bed that night with nine of eleven boats promised to eight months and four of eleven boats promised to a rate nobody has set, and about four hundred people in a place eleven miles up a salt road went to bed with a bushel of salt at four pence and a bushel of salt at six and no way of having both, and the one that is a Crown price arrived first and is not going away.**

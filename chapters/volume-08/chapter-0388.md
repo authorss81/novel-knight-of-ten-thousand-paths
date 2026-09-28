@@ -1,8 +1,8 @@
 # Chapter 0388
 
-**The fifteenth day of Goatmonth, YR 317, a Sunday, and not a market day, and the third hour and the fifth hour and the sixth hour, in an upper room over a chandler's shop in a lane off the north end of that market, in a town of about two thousand people on the salt, where the shop under that room was shut and a woman of about forty who had come four hundred miles off a river and had been in that town for sixteen weeks was at a table with a man of about thirty-four with a sheet, and nobody in that town knows that a place with about nine hundred people in it has been findable for about five months.**
+**The fifteenth day of Goatmonth, YR 317, a Sunday, and not a market day, and the third hour and the fifth hour and the sixth hour, in a room over a shop in a lane off the north end of that market in a town of about two thousand people on the salt, and the shop under it was shut and had been shut since the middle of the morning, and a woman of about forty who had come four hundred miles off a river and had been in that town for sixteen weeks was at a table with a man of about thirty-four with a sheet, and nobody in that town knows that a place with about nine hundred people in it has been findable for about five months.**
 
-**A chandler's shop in a lane off the north end of that market is shut on a Sunday because the market takes the trade on a Saturday. There are two hundred people out of two thousand in that town on a Sunday and four of the two hundred are in that lane. The room has one table, two chairs and a window that does not shut, and the table belongs to the shop and the shop has let it stand under that window for eleven weeks and has not charged for it and has not mentioned it.**
+**Nobody sells candles on that lane on a Sunday, because the trade on them goes with the market and the market is shut. There are two hundred people out of two thousand in that town on a Sunday and four of the two hundred are in that lane. The room has one table, two chairs and a window that does not shut, and the table belongs to the shop and the shop has let it stand under that window for eleven weeks and has not charged for it and has not mentioned it.**
 
 **A round is a cart, and a cart goes out on a fixed day and comes back a fortnight later, and the men who load it do not unload it, and about four hundred and nine rolls go out of that building in a month into nine counties in two rounds, and a roll is a place and a figure and about four heads, and a place that has emptied is still a place on the roll and the figure stays where it was because nobody has a column that could move it.**
 
@@ -32,7 +32,7 @@ Nobody in that room said anything. **And nobody in that town knows that the plac
 
 ---
 
-**She has had four letters since the twenty-third of a month in Embermonth. A letter is a thing that takes eleven days in one direction and eleven in the other when the ground is hard and does not go at all when it is not, and four letters in sixteen weeks is four letters and a fortnight apart, and none of the four has asked her anything, and the two that were written nearest to the third week of a month in Fallowmonth were written by a woman who does not know what a return is and would not have used the word.**
+**She has had four letters since the twenty-third of a month in Embermonth. A letter is a thing that takes eleven days in one direction and eleven in the other when the ground is hard and does not go at all when it is not, and four letters in sixteen weeks is four letters and a month apart, and none of the four has asked her anything, and the two that were written nearest to the third week of a month in Fallowmonth were written by a woman who does not know what a return is and would not have used the word.**
 
 **And what the place says about being found is not said in that room, and is said by the one person in that room who is not allowed to say it and has said it once.**
 

@@ -16,7 +16,7 @@ He asked for it in the ordinary way and he asked it without a form.
 
 “**What are those for.**”
 
-And the man of about thirty-four with a sheet said nine sentences. **The nine sentences foot at nine and the speech as printed is a hundred and thirty-seven words with the attribution excluded, and the word *about* does not stand in front of either figure.**
+And the man of about thirty-four with a sheet said nine sentences. **The nine sentences foot at nine and the speech as printed is a hundred and thirty-eight words with the attribution excluded, and the word *about* does not stand in front of either figure.**
 
 “**They came into the building two hundred miles off in a tray with a strap over it on the sixteenth of that month. Nobody told the field they were going to. They have been read against a list of places that is kept open. The places with a figure in the second column are being held and the places without one are being let go. There is nothing on any of it that says which. The round comes round again next month and nobody rings it. The man who wrote them does not know and nobody is going to tell him. You have about a week before anybody thinks to ask me. I am telling you because you asked me and I have nine days of my own round in that bag and none of it is this.**”
 
