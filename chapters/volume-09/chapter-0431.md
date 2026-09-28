@@ -62,7 +62,7 @@ At about the sixth hour the man with the sheet asked him a question, and it was 
 
 "**I did not say you were.**"
 
-**And that is fifteen words, and he said every one of them to a man who had no business in that yard and had come into it off a made road with a week's bread in his coat, and he said them without any weight on any of them, and then he turned round and went to a wall and looked at a slate and did not write on it.**
+**And that is twenty-two words, and he said his share of every one of them to a man who had no business in that yard and had come into it off a made road with a week's bread in his coat, and he said them without any weight on any of them, and then he turned round and went to a wall and looked at a slate and did not write on it.**
 
 The eleven men finished the middle of the yard at about the seventh hour and stood about. A crowbar came off a wall bracket. **The man of about thirty-eight with a crowbar was not on the strength of anything that has a name in it and he is a man who has been on the strength of a county's own road since he was about seventeen, and he is not a villain and there is nothing in that yard for a villain to want.**
 
