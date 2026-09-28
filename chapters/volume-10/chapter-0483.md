@@ -1,6 +1,6 @@
 # Chapter 0483
 
-**The twenty-eighth day of Mudmonth, YR 319, a Saturday and a market day, and the second hour and the fifth hour and the eighth hour, at the ninth of eleven houses on a foreshore two miles and about nine hundred paces long where a river runs into the sea, and there is no month in anybody's mouth on that shore and no day of the week, and a salt wagon that has been off and on that sand for nineteen years has gone down on the ebb and is standing at the ninth of the eleven with the horses in the water, and the man in the doorway has come out onto the step, which he has not done in nine weeks.**
+**The twenty-eighth day of Mudmonth, YR 319, a Saturday and a market day, and the second hour and the fifth hour and the eighth hour, at the ninth of eleven houses on a foreshore two miles and about nine hundred paces long where a river runs into the sea, and there is no month in anybody's mouth on that shore and no day of the week, and the salt wagon of the man of about fifty-three, nineteen years off and on that sand, came down on the ebb and is standing at the ninth of the eleven with the horses in the water, and the man in the doorway has come out onto the step, which he has not done in nine weeks.**
 
 ## One
 

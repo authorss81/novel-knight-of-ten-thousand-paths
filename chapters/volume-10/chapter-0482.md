@@ -1,6 +1,6 @@
 # Chapter 0482
 
-**The twenty-sixth day of Mudmonth, YR 319, a Thursday and a market day, and the fourth hour and the seventh hour and the eleventh hour, in a market town of about two thousand people four days off a coast where a river runs into the sea, where a market runs on two days in seven and this is one of them, at the back of a street four hundred yards long, on the first floor over a chandler's shop, in a room with one window and a table and six chairs and no fire lit, where a piece of paper with three heads filled in and a fourth head empty is lying on the table with a seal beside it, and a man of about thirty-four with a sheet has come four days up a made road to look at it and has not touched it.**
+**The twenty-sixth day of Mudmonth, YR 319, a Thursday and a market day, and the fourth hour and the seventh hour and the eleventh hour, four days off a coast where a river runs into the sea, in a market town of about two thousand people where a market runs on two days in seven and this is one of them, at the back of a street four hundred yards long, on the first floor over a chandler's shop, in a room with one window and a table and six chairs and no fire lit, where a piece of paper with three heads filled in and a fourth head empty is lying on the table with a seal beside it, and a man of about thirty-four with a sheet has come four days up a made road to look at it and has not touched it.**
 
 ## One
 
