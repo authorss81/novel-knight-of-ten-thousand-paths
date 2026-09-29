@@ -12,7 +12,7 @@ The man of about fifty-eight put his thumb on the corner of the sheet and turned
 
 The man of about sixty-three said he had had the sheet since the middle of a month in the year before this one, in a chest of waste paper he buys off about nine houses in this town and two in the next, and that it had been in the chest folded twice, and that he had not unfolded it in about a year because it was in his way and it was somebody else's paper, and that on the day he came up that lane he had unfolded it because he had heard there was a room in this town that looked at sheets and he wanted to know whether it was worth the trouble.
 
-**The four heads on that sheet are the four heads.** A place, a figure of people, a trade, and a fourth head ruled and empty. Nobody in that room had said the four words out loud at all before the man of about thirty-four with a sheet did it, and he had come in at the fifth hour and had not sat down, and he read them once and then put his finger on the second of them and left it there for a while.
+**The four heads on that sheet are the four heads.** A place, a figure of people, a trade, and a fourth head ruled and empty. Nobody in that room had read the four words out loud off that sheet before the man of about thirty-four with a sheet did it, and he had come in at the fifth hour and had not sat down, and he read them once and then put his finger on the second of them and left it there for a while.
 
 Below the four heads there is a fifth line.
 
@@ -36,7 +36,7 @@ Nobody said anything for about as long as a man takes to say nine.
 
 “**That is not a county hand,**” the woman of about forty-four said. “**I have been copying for about nineteen years and I can put a county to about nine words out of ten and this is not one of the ten.**”
 
-**And Aren Kest, a man of thirty-two with a limp, was at the side table and had not said anything for about four minutes, and nobody asked him anything all day, and the only thing he said about the work in front of him was about the downstroke and was not about a form, and nobody in that room asked him for it, and the last time anybody in that room asked him for anything was four days before, on a Friday, and it was the man of about fifty-eight who asked it and it was about what the room was for.**
+**And Aren Kest, a man of thirty-two with a limp, was at the side table and had not said anything for about four minutes, and nobody asked him anything all day, and the only thing he said about the work in front of him was about the downstroke and was not about a form, and nobody in that room asked him for it, and the last time anybody in that room asked him for anything was on the Friday before, and it was the man of about fifty-eight who asked it and it was about what the room was for.**
 
 “**Ask nine people in this town to write a letter to somebody they have never met,**” Aren Kest said, “**and the downstroke on the second letter will go short in some of them and long in the rest, and I have watched nine men do it in about four counties and the short stroke belongs to the man who is thinking about the letter and the long one to the man who is not.**”
 

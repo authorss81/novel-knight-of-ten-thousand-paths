@@ -4,7 +4,7 @@
 
 ## One
 
-**The question went up the made road on the second day of Embermonth and it was put in writing and it was four sentences long and the last of the four was about nine miles long, and the answer came back on a Monday with the cart and it is one page and it is about four words long, and about nine people in that room understood in about four minutes that nothing had come back.**
+**The question went up the made road on the second day of Embermonth and it was put in writing and it was four sentences long and the last of the four was about nine miles long, and the answer came back on a Monday with the cart and it is one page and it is a hundred and six words, and about nine people in that room understood in about four minutes that nothing had come back.**
 
 There are four names at the top of a question in that room, written in a hand, and a sentence under them offering to send them to nine counties, and a man of about fifty-one in a grey coat who said out loud that the offering was worse than the thing he had offered before. **Aren Kest was in that room at the fifth hour and read the three sentences twice and was not asked one question and did not ask one, and about four of the nine people in that room have it that he read it twice on purpose and about five have said that he read it twice because he could not sleep, and nobody has asked him which of the two it was.**
 

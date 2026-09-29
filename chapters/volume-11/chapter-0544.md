@@ -4,7 +4,7 @@
 
 He had said it in Frostmonth and got nothing. He had said it again in Goatmonth and a woman answered it and the answer was wrong and the man of about thirty-four with a sheet said why it was wrong in three sentences and was right.
 
-The question is the same question. It has never been worded differently in three rooms in nine counties and it is on the page in the same words:
+The question is the same question. It has never been worded differently in three rooms in nine counties and it has been put the same way in all three rooms:
 
 “**Is a rule still a rule when one man changed it in a hand?**”
 

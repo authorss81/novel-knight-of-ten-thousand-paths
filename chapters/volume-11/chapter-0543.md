@@ -26,7 +26,7 @@ The man of about thirty-four with a sheet put the two sets side by side on the t
 
 The copyist of about twenty-six was at the side table with the straightedge and she said one thing, and it was not about the fourth head and it was not the second time she has said the other thing.
 
-“**I ruled the fourth line in that other county a sixteenth of an inch narrower and I have not told anybody in this county why and I am not going to, and I want it on the page that I have not told this room why and that some of you have worked it out between you and that the rest of you are not going to be told, and that is not a rule, it is a thing I did in a room in another county in Fallowmonth and nobody asked me to.**”
+“**I ruled the fourth line in that other county a sixteenth of an inch narrower and I have not told anybody in this county why and I am not going to, and I want it written down that I have not told this room why and that some of you have worked it out between you and that the rest of you are not going to be told, and that is not a rule, it is a thing I did in a room in another county in Fallowmonth and nobody asked me to.**”
 
 Nobody argued with her and nobody thanked her and nobody agreed with her out loud, and the man of about fifty-eight wrote it on a bare leaf with no head over it and said out loud that he was not going to cut a head over it either, and that a leaf with five things on it and no head is going to be the most useful object in that room and that nobody was to be allowed to say so.
 

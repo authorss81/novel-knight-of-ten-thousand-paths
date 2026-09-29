@@ -46,7 +46,7 @@ He put the satchel on the table, took out four returns, and set them in a row wi
 
 Aren Kest had come up the lane on the Tuesday because there is a press in that room and there is nothing in nine counties that will tell a man what a return says about a road once it has been folded twice, and he had read about four hundred and nine of them over two days and had not said so to anybody, and the woman of about thirty-one with a pen had brought him a cup at the fourth hour without asking whether he wanted one.
 
-**He and Mara Vey had not been in a room together since a Tuesday in Rainmonth in the year before this one and there is a thing between them that neither of them has said in either direction, and it is not said here, and it is said on the page once and not said again.**
+**He and Mara Vey had not been in a room together since a Tuesday in Rainmonth in the year before this one and there is a thing between them that neither of them has said in either direction, and it is not said here, and it is said once in that room and not said again.**
 
 “**You have read about four hundred of those returns,**” Gault Prentice said to him, at about the fifth hour. “**Then tell me what one of them is for.**”
 

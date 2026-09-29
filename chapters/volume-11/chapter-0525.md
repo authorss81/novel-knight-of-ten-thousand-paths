@@ -14,7 +14,7 @@ Nobody in that room said anything for about as long as a man takes to count nine
 
 “**Who is the one of you?**” the man of about fifty-eight said.
 
-“**There is no one of us,**” the man of about thirty-four with a sheet said, who had come in at about the second hour and had read the four lines twice before anybody else had read them once. “**It says *one of us*. That is a hand that is not one person. That is about nine people who have all read it and all four of them left the pen alone for a day and then one of them asked whether they should sign it and somebody said no, and the reason somebody said no is on the page, and the reason somebody said no is that a question with a name at the bottom of it is a letter and a question with no name at the bottom of it is a question, and the difference between those two things has been the whole of this room for four months.**”
+“**There is no one of us,**” the man of about thirty-four with a sheet said, who had come in at about the second hour and had read the four lines twice before anybody else had read them once. “**It says *one of us*. That is a hand that is not one person. That is about nine people who have all read it and all four of them left the pen alone for a day and then one of them asked whether they should sign it and somebody said no, and the reason somebody said no is this, and the reason somebody said no is that a question with a name at the bottom of it is a letter and a question with no name at the bottom of it is a question, and the difference between those two things has been the whole of this room for four months.**”
 
 Nobody argued with him and nobody thanked him.
 

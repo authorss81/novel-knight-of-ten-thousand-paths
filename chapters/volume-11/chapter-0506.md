@@ -32,7 +32,7 @@ The woman of about thirty-one with a pen wrote it down and ruled a line under it
 
 “**Then there are four people in this county who can be found at a house, and one day in about a year one of them will be asked something by somebody who wants a copy of a form, and there will be a road in this county that a man in another county has heard the name of.**”
 
-**And that is three hundred and forty-two words in eight turns of one exchange, of which the first is thirty-eight printed in two spans of thirteen and twenty-five, the second is nine, the third is fifty-six, the fourth is nine printed in two spans of three and six, the fifth is fifty-nine printed in two spans of fifty-seven and two, the sixth is a hundred and five, the seventh is seven, and the eighth is fifty-nine printed in two spans of fifty-eight and one, and the woman of about thirty-one with a pen ruled one line and put nine words on it and left about two-thirds of it blank, and the blank is not a figure and is not counted, and about four people have read that line since and about nine have not.**
+**And that is three hundred and forty-one words in nine turns of one exchange, of which the first is thirty-eight printed in two spans of thirteen and twenty-five, the second is nine, the third is fifty-six, the fourth is nine printed in two spans of three and six, the fifth is fifty-seven, the sixth is two, the seventh is a hundred and five, the eighth is seven, and the ninth is fifty-eight, and the woman of about thirty-one with a pen ruled one line and put nine words on it and left about two-thirds of it blank, and the blank is not a figure and is not counted, and about four people have read that line since and about nine have not.**
 
 ## Three
 
@@ -66,7 +66,7 @@ The woman of about thirty-one with a pen wrote it down and ruled a line under it
 
 “**Then there will be a word in it in one county and not in the other, and that is the first thing in nine counties that anybody can compare,**” Mara Vey said, “**and I am not going to be the one who says that is a good idea, and I have not said it is a bad one, and if you write either of those two sentences down I will ask you to leave the room and you can come back in about four days.**”
 
-**And that is one hundred and forty-nine words in four turns of one exchange, of which the first is four, the second is five, the third is fifty-eight printed in two spans of forty-nine and nine, and the fourth is eighty-two printed in two spans of twenty-nine and fifty-three, and nobody has written either of those two sentences down and the woman of about thirty-one with a pen has said since Monday that she thought about writing one of them down, and about four people in that county have heard that she thought about it and about nine have not.**
+**And that is one hundred and fifty words in four turns of one exchange, of which the first is five, the second is five, the third is fifty-eight printed in two spans of forty-nine and nine, and the fourth is eighty-two printed in two spans of twenty-nine and fifty-three, and nobody has written either of those two sentences down and the woman of about thirty-one with a pen has said since Monday that she thought about writing one of them down, and about four people in that county have heard that she thought about it and about nine have not.**
 
 ## Five
 

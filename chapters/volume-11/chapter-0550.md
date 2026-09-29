@@ -1,6 +1,6 @@
 # Chapter 0550
 
-**A man of thirty-two with a limp was not in a hired room over a saddler's in a market town of about two thousand people on the twenty-fifth of Mudmonth, YR 320, a Saturday and a market day, at the second hour and the fifth hour and the ninth hour, and the finding that room made in a month carried at thirty is in that room's book on a page with no head over it, and the fourth head of the Crown's form on the table by that door is ruled and empty, and about nine people were in it, and he had said to nobody that he would be there and nobody had asked him.**
+**A man of thirty-two with a limp was not in a hired room over a saddler's in a market town of about two thousand people on the twenty-fifth of Mudmonth, YR 320, a Saturday and a market day, at the second hour and the fifth hour and the ninth hour, and the finding that room made in a month carried at thirty is in that room's book under a head that is not its own, and the fourth head of the Crown's form on the table by that door is ruled and empty, and about nine people were in it, and he had said to nobody that he would be there and nobody had asked him.**
 
 He came up the lane at about the third hour because he had decided before the second hour that he would come up the lane, and there was a market in the street and he was in it, and he was not upstairs.
 
@@ -30,7 +30,7 @@ The man of about fifty-eight said the whole of what the room can do, and he said
 
 He cannot put a city back. He cannot open anything. He cannot send anybody to find out, and printed at the foot of a return in the same ink as the rest of it is a line that says nobody is to be sent to find out, and it has said that for about a hundred and forty years and nobody in nine counties has ever taken it as a joke. He cannot fill the fourth head, and he is not going to, and no office is going to, and **a rule that says a thing may not be done is a different object from a thing being not done, and the difference between those two is the whole of what a room of about nine people can spend.**
 
-There is a place on a shelf that nothing anybody in that room did in five months has touched, and about four hundred people at the end of a made lane four days off the other way and about four hundred that went under a second head of a return in Harvestmonth are the same figure and are not the same figure, and no figure of either of them is in that room's book and no figure of either of them is in the column at the end of this page, and nothing that room found has anything to do with a shelf.
+There is a place on a shelf that nothing anybody in that room did in five months has touched, and about four hundred people at the end of a made lane four days off the other way and about four hundred that went under a second head of a return in Harvestmonth are the same figure and are not the same figure, and no figure of either of them is in that room's book and no figure of either of them is in the column in the book in that room, and nothing that room found has anything to do with a shelf.
 
 **And the man of about fifty-one in a grey coat said one thing about the last day, and it was the only thing he said in that room in about a month, and nobody thanked him for it and he is not a villain and he is not a knave and nobody in nine counties has ever been told whose plan any of it is.**
 

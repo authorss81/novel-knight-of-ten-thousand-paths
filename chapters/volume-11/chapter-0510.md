@@ -18,7 +18,7 @@ Nesta Braith took the four sheets out of the bundle and squared them and said on
 
 “**I am going to rule the fourth line a sixteenth of an inch narrower in the second county than in the first, so that a word put in it in one of them will not fit in the other, and a man in four years with nine counties of forms will be able to tell which county a word was written in without being told.**”
 
-**And that is one hundred and seventy words in six turns of one exchange, of which the first is eight, the second is five, the third is fifty-one printed in two spans of ten and forty-one, the fourth is nine, the fifth is seventy-two printed in two spans of sixty-five and seven, and the sixth is twenty-five, and the fourth head is empty in both sets and is a sixteenth of an inch narrower in one of them, and about four people in that room understand what she has done and about nine have said since the first hour that they do not and neither of those is a criticism.**
+**And that is one hundred and thirty-eight words in five turns of one exchange, of which the first is eight, the second is five, the third is fifty-one printed in two spans of ten and forty-one, the fourth is nine, and the fifth is sixty-five, and the fourth head is empty in both sets and is a sixteenth of an inch narrower in one of them, and about four people in that room understand what she has done and about nine have said since the first hour that they do not and neither of those is a criticism.**
 
 ## Two
 

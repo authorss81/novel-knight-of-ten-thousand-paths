@@ -46,7 +46,7 @@ A man of about thirty-eight with a satchel came at about the fifth hour to look 
 
 ## Four
 
-**And the fourth head is not an invention of that town and it is not an invention of that office, and a man of about fifty-one in a grey coat has four counties' forms in a satchel and all four of them have four heads, and that is Chapter 505 and it is nine days away and nobody on that board knows it yet.**
+**And the fourth head is not an invention of that town and it is not an invention of that office, and a man of about fifty-one in a grey coat has four counties' forms in a satchel and all four of them have four heads, and not one of the four is out of that satchel yet, and nobody on that board knows it.**
 
 What is known on that Wednesday, at the fifth hour, by about four people, is this. A form with four heads has been going out of that office for about four months. About nine hundred of a kind come out of one room in this county alone in a month, and about a hundred and four of them go out in one band on a fixed day, and about four hundred and nine parish rolls come in a month, and those are three counts of three different series and none of them is derived from another. **The fourth head has been empty on every return that has come back. Nobody in that town can say who cut it. A copyist in another county has said out loud, once, in another room, that it ought not to be there, and nobody agreed with her, and she has not said it again.**
 

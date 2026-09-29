@@ -22,7 +22,7 @@ Nobody in that room said anything for about as long as a man takes to count four
 
 Nobody in that room argued with either sentence. The man of about thirty-four with a sheet said one thing about the second one and it was short.
 
-“**A clerk does care,**” he said. “**A clerk cares about about four things, and one of them is whether the question is going to be asked again next month with a different head over it, and a hand that has been through a line is a hand that says no to that, and that is worth something to a man with a pen in a county two hundred miles off even if it is not worth a rule.**”
+“**A clerk does care,**” he said. “**A clerk cares about four things, and one of them is whether the question is going to be asked again next month with a different head over it, and a hand that has been through a line is a hand that says no to that, and that is worth something to a man with a pen in a county two hundred miles off even if it is not worth a rule.**”
 
 The man of about thirty-eight with a satchel said that he had not come up that lane to be given a sentence.
 

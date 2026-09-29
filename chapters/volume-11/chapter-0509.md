@@ -52,7 +52,7 @@ Nobody said anything for about as long as it takes a man to say four.
 
 **And in the week after that Thursday, nine counties sent back about nine returns each, and in the week before, four counties out of nine had sent about nine, and the difference is not a decision and is not a panic and is not anybody's doing, and it is the ordinary thing, and about four people in that town have said that the ordinary thing is the whole of the danger.**
 
-The man of about thirty-eight with a satchel put it in his own book on the Friday in a line of eleven words, and the eleven words are these: **a form is a thing that finds out, and the more it finds the better it works.**
+The man of about thirty-eight with a satchel put it in his own book on the Friday in a line of seventeen words, and the seventeen words are these: **a form is a thing that finds out, and the more it finds the better it works.**
 
 **And about nine hundred sheets a month go out of a room two hundred miles off with four heads on them and the fourth one empty, and about a hundred and four of those go out in one band on a fixed day, and about four hundred and nine parish rolls come in at that door, and the three of those are counts of three different series and are not added, and none of them is a figure of a lane and none of them is a figure of a coast and none of them is a figure of a town of about two thousand people, and the three of them are not converted into one another anywhere in nine counties.**
 

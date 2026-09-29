@@ -36,7 +36,7 @@ And he said it. He said the nine words again first, out loud, the whole nine, an
 
 *The Compact.*
 
-**That is the word. It is printed once in this room and it is printed once on the page, and the man of about fifty-eight said it once and did not say it again that day, and the copyist of about twenty-six wrote it once, put the leaf face down under a second leaf, and has not looked at it again.**
+**That is the word. It is printed once in this room and it is written once on that paper and nowhere else, and the man of about fifty-eight said it once and did not say it again that day, and the copyist of about twenty-six wrote it once, put the leaf face down under a second leaf, and has not looked at it again.**
 
 Nobody in that room thanked anybody and nobody in that room was thanked, and the woman of about sixty-three said out loud that she was not going to be thanked and would rather be asked, and nobody asked her, and the man of about fifty-eight said that he was not going to have the room settle anything about the word on that Saturday, and that anybody who wanted to say what that word was to nine counties could say it in his own county and not in this one.
 

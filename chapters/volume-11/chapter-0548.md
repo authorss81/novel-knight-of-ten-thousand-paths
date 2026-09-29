@@ -20,11 +20,11 @@ The man of about fifty-eight ruled the line himself with a knife he has never us
 
 **Nobody in that room voted. The clerk of about twenty-two took his hand off the pen and laid both hands flat on the open book and left them there, and the copyist of about twenty-six, who had had a knife in her hand since the second hour, put the knife down on the sill and did not pick it up again that morning, and the man of about fifty-three with a barrow got up and put his coat on over his shirt and did not say where he was going, and nobody in that room asked him.**
 
-Then the man of about thirty-one with a pen said one thing about the fourth line and it is the only thing anybody said about it that day, and he said it in a room over a weigh-house two hundred miles off and it came up a made road on the Wednesday in a letter of one page and the letter is on the table.
+Then the woman of about thirty-one with a pen said one thing about the fourth line and it is the only thing anybody said about it that day, and she said it in a room over a weigh-house two hundred miles off and it came up a made road on the Wednesday in a letter of one page and the letter is on the table.
 
 “**You have put a man's name in the fourth line of a piece of paper that is going to nine counties and the name is the man of thirty-two with a limp, and about four of the nine people in this county have said that the man is the reason the rest of it stands up, and about four hundred people who came to the chandler's on the twenty-ninth of a month carried at thirty have said that the man is the reason anybody should have believed any of it in the first place, and neither of those two sets of people is going to be in this room, and the two sets do not overlap, and the man has not been asked which of the two he thinks is right and has not been asked and will not be.**”
 
-Nobody thanked the man of about thirty-one with a pen for writing that and he did not ask to be thanked and he is on no sheet in nine counties and he is not a keeper of anything and he is not in the room over the saddler's.
+Nobody thanked the woman of about thirty-one with a pen for writing that and she did not ask to be thanked and she is on no sheet in nine counties and she is not a keeper of anything and she is not in the room over the saddler's.
 
 **And nobody thanked Aren Kest for his name being in the fourth line, and he did not ask to be thanked, and he is not thanked before he leaves and is not thanked after, and the fourth line does not make him the reason anything works and the man of about fifty-eight said so out loud in front of about nine people and nobody argued with him and the copyist of about twenty-six wrote it on a bare leaf with no head over it and ruled nothing.**
 

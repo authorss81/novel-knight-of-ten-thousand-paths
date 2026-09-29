@@ -1,6 +1,6 @@
 # Chapter 0542
 
-**In one room over a weigh-house with a door on a lane about two hundred miles up a made road from a coast, a county of about nine thousand people, on the eighth of Thawmonth, YR 320, a Monday and not a market day, from the second hour to the ninth, the two of them were in that room for about seven hours together for the first time since a Tuesday in Rainmonth in the year before this one, and a woman of about thirty-one with a pen was in it for all of it, and neither of the two said one word about the four and a half years, and this is the one place on this page where that is said and it is not said again.**
+**In one room over a weigh-house with a door on a lane about two hundred miles up a made road from a coast, a county of about nine thousand people, on the eighth of Thawmonth, YR 320, a Monday and not a market day, from the second hour to the ninth, the two of them were in that room for about seven hours together for the first time since a Tuesday in Rainmonth in the year before this one, and a woman of about thirty-one with a pen was in it for all of it, and neither of the two said one word about the four and a half years, and this is the one time either of them has said it and it is not going to be said again.**
 
 The room is one room. There is a press in it that stands open and has stood open since a day nobody will give. There is a register in it with seven entries and every one of them is a question and none of them is a finding. There is a day-book at nine entries of a thing nobody asked. There is a drawer about eleven inches deep that is not open. And the outgoing sheet of that room has carried a fourth ruled line with no head over it for four and a half years, and nobody in nine counties has ever told her what it is for, and she has asked twice and been told twice that it is not hers to cut.
 
@@ -52,7 +52,7 @@ Nobody in that room agreed with him and nobody argued with him, and the woman of
 
 **And nobody thanked her for that and nobody thanked the woman of about twenty-nine and nobody thanked the man of thirty-two with a limp, and the man of thirty-two with a limp was in that room for about seven hours and said about nine sentences in all of them and about four of the nine were about counties and not about anything that had happened to him.**
 
-Then he did a thing at about the seventh hour that is not a speech and that nobody asked for, and it is on the page because it is the only thing in two years that two people did at the same time without agreeing on it first.
+Then he did a thing at about the seventh hour that is not a speech and that nobody asked for, and it is the only thing in two years that two people did at the same time without agreeing on it first.
 
 He took the ninth leaf, which was the only one of the nine that had not gone anywhere, and he cut it in half with a knife, and gave one half to the woman of about twenty-nine and kept the other, and said one sentence.
 
@@ -62,7 +62,7 @@ He took the ninth leaf, which was the only one of the nine that had not gone any
 
 “**It is a precaution,**” the man of thirty-two with a limp said, “**and you have kept a room with a door on a lane for four and a half years and you have never once had to decide whether to lock the door, and I have been in nine counties for about four years and I have never once been able to decide whether to stay, and we are not going to talk about that today and I would like the leaf cut.**”
 
-**And the narration does not say any more about that and does not say it anywhere else, and the two of them did not say one word about it then and have not said one word about it in the forty days since, and a leaf about nine inches by six with three lines and no head has been in an inside pocket and has not come out.**
+**And nothing has said any more about that since and nothing ever will, and the two of them did not say one word about it then and have not said one word about it in the forty days since, and a leaf about nine inches by six with three lines and no head has been in an inside pocket and has not come out.**
 
 Nobody was sent. Nobody was sent from that room or from this county or from the room four days up a made road, and in the same ink as the rest of it, at the foot of a return, there is a line that says nobody is to be sent to find out, and the man of thirty-two with a limp went out of that room at about the ninth hour and down the lane and got onto a cart that goes to a market town and he has not been back to that lane in about four days and nobody has sent for him.
 
