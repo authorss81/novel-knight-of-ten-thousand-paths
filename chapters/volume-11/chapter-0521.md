@@ -36,7 +36,7 @@ Nobody said anything for about as long as a man takes to say nine.
 
 “**That is not a county hand,**” the woman of about forty-four said. “**I have been copying for about nineteen years and I can put a county to about nine words out of ten and this is not one of the ten.**”
 
-**And Aren Kest, a man of thirty-two with a limp, was at the side table and had not said anything for about four minutes, and nobody asked him anything all day, and the only thing he said about the work in front of him was about the downstroke and was not about a form, and nobody in that room asked him for it, and nobody in that room has asked him for anything in four months.**
+**And Aren Kest, a man of thirty-two with a limp, was at the side table and had not said anything for about four minutes, and nobody asked him anything all day, and the only thing he said about the work in front of him was about the downstroke and was not about a form, and nobody in that room asked him for it, and the last time anybody in that room asked him for anything was four days before, on a Friday, and it was the man of about fifty-eight who asked it and it was about what the room was for.**
 
 “**Ask nine people in this town to write a letter to somebody they have never met,**” Aren Kest said, “**and the downstroke on the second letter will go short in some of them and long in the rest, and I have watched nine men do it in about four counties and the short stroke belongs to the man who is thinking about the letter and the long one to the man who is not.**”
 
