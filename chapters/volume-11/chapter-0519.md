@@ -20,7 +20,7 @@ About nine of its leaves have something on them. Eight of the nine are figures o
 
 ## Two
 
-**Aren Kest was in that room from the second hour and he was about nine feet from the clerk of about twenty-two when the man of about fifty-eight said the last thing, and he did not say anything, and about four people in that room have it that he could have said one sentence and about five have said that he was right not to, and he has not said which of the two he thought, and nobody asked him.**
+**Aren Kest was in that room from the second hour and he had been standing at the one window that is open since the fourth hour, and he turned round when the man of about fifty-eight said the last thing, and he said nothing, and about four people in that room have it that he could have said one sentence and about five have said that he was right not to, and he has not said which of the two he thought, and nobody asked him.**
 
 “**Last thing,**” the man of about fifty-eight said, at about the fifth hour. “**Hand it over.**”
 
@@ -54,7 +54,7 @@ Nobody in that room said anything for about as long as a man takes to say four, 
 
 ## Four
 
-**And the cost of that Monday was said out loud by a man of about fifty-one in a grey coat at about the eighth hour, and he is not a man of thirty-two with a limp and he is not the man who would have said it otherwise, and about nine people in that room heard all of it.**
+**And the cost of that Monday was said out loud by a man of about fifty-one in a grey coat at about the eighth hour, and he looked at the man of thirty-two with a limp before he began, and the man of thirty-two with a limp was about nine feet from him and said nothing, and about nine people in that room heard all of it.**
 
 “**Here is what it costs, and I am going to say it once and I am not going to be thanked for it. A room with a book in it that the room does not have is a room that cannot say what it knows, and a room that cannot say what it knows is a room that will be asked in about four years by somebody with a warrant, and there will be nine hundred sheets a month in it and about four hundred and nine parish rolls and about a hundred and four in a band, and the man asking will be right and the room will not be able to put a number on the four things he is asking for, because one of them is nine leaves in a coat and there is no head in nine counties for nine leaves in a coat. I would rather have that number than the book, and he will not give it to me, and that is the cost and it is his and not mine and I am not going to call it anything else.**”
 

@@ -1,3 +1,5 @@
+Retired phase. Its work is on disk: Chapters 511 to 520 exist and were written from this prompt, and `state/current.md` certifies them at day 1438 to 1488. The first printing of this prompt handed the writer days 1435 to 1488 and this phase repaired four of ten weekdays; the repaired block is the one on disk and the successor prompt at `workspace/volume-11/batch-0003/PROMPT.md` is the only instruction for Chapter 521 onward. Do not dispatch this prompt again and do not rewrite Chapters 511 to 520 from it.
+
 Continue the novel after the completed phase Volume 11 Batch 0001 (Chapters 501 to 510).
 
 Read `outline/volume-11.md` whole, and read it before `state/current.md` and not after it. Then read `state/current.md` whole, then `state/open-threads.md` items 208 to 232, then `state/continuity.md` items 1213 to 1242, then the per-chapter section of `state/chapter-summaries.md` for Batch 0001, then Chapters 501 to 510 in full and Chapters 491 to 500 for voice. You are writing **Volume 11 Batch 0002, Chapters 511 to 520, days 1435 to 1488, block title: "The Copies and the Cost of a Sample"**.

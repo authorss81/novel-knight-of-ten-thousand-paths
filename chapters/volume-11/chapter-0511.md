@@ -54,7 +54,7 @@ Nobody in that room said anything for about as long as a man takes to say four.
 
 ## Four
 
-**And a man of thirty-two with a limp was in that room at the fourth hour and at the ninth hour and was not asked anything at either of them, and the sentence he said was not said to anybody in particular, and it is twenty-three words long and it is the only thing he said in that room.**
+**And a man of thirty-two with a limp was in that room at the fourth hour and at the ninth hour and was not asked anything at either of them, and he said two things and said both of them to nobody in particular, and the second of the two was much the longer of the two, and about four of the nine people in that room heard the whole of it and about five heard the first part of it and went back to their own work.**
 
 Aren Kest has read about four hundred and nine returns in two days and not one of them carries two figures under one head. He said that where a return has two numbers against it, one of the two got chosen somewhere, and the place where it got chosen is not on the sheet, and the sheet is what goes up the road.
 
