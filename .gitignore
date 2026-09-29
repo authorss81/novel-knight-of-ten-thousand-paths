@@ -3,10 +3,6 @@ logs/
 .env
 .env.*
 .DS_Store
-
-# Per-batch helper scripts are working material, not project files. They are
-# read-only derivations (calendar chain, word count, sweeps) that any phase can
-# reproduce in a few minutes, and a committed editor normalises the exact
-# workflow -- a script editing chapter prose -- that has damaged chapters in
-# this project twice. Never commit one. See state/continuity.md item 967.
-scripts_local/
+__pycache__/
+*.pyc
+*.orig-b*
