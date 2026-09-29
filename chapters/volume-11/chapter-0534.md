@@ -1,6 +1,6 @@
 # Chapter 0534
 
-**A market was going on in the street of a market town of about two thousand people on the twenty-second of Hearthmonth, YR 319, a Thursday, and in a hired room over a saddler's a man of thirty-two with a limp read out one page of his own record at about the second hour, and it was the only page in the whole of it that he read himself, and about nine people were in that room and one of them was not thanked for asking the only question anybody asked that day, and it was a question about a date.**
+**A market was going on in the street of a market town of about two thousand people on the twenty-second of Hearthmonth, YR 319, a Thursday and a market day, and in a hired room over a saddler's a man of thirty-two with a limp read out one page of his own record at about the second hour, and it was the only page in the whole of it that he read himself, and about nine people were in that room and one of them was not thanked for asking a question that was about a date and not about a road.**
 
 The first two pages had gone into other mouths on Wednesday and on Saturday, the first of them read back by a woman of about forty-four in the voice she uses for a form and the second of them read out by a man of about thirty-four with a sheet in the same voice, and neither of those had been his own voice, and he had let both of them go.
 
@@ -16,7 +16,7 @@ Then he read the last four lines, and they are these, and he read them in a voic
 
 Nobody in that room said anything at all for about as long as a man takes to count nine, and the man of about thirty-four with a sheet did not write it down, and the copyist of about twenty-six did not write it down either, and both of them were asked about it afterwards by people who were not in that room and both of them said the same thing, which was that the paper had a head on it and a name in the head and that was where it was.
 
-Then the man of about thirty-four with a sheet asked his question, and it was one question, and it was not about a road.
+Then the man of about thirty-four with a sheet asked the question he had come to ask, and it was not about a road.
 
 “**Whose hand wrote the day?**”
 
@@ -28,7 +28,7 @@ Then the man of about thirty-four with a sheet asked his question, and it was on
 
 Nobody argued with him about that, and nobody improved on it, and the man of about thirty-four with a sheet wrote on a bare leaf with no head over it that the day on the page is the day it was written on and is not the day of the thing, and read it back, and asked him one more thing, which was whether he wanted the leaf kept with the record or kept apart from it, and he said apart, and it was kept apart, and it is not with the record.
 
-The copyist of about twenty-six asked the only other question anybody asked that day, and it was asked to the woman of about forty-four and not to the man, and it was about the sign.
+The copyist of about twenty-six asked the one question that day that was about the sign, and it was asked to the woman of about forty-four and not to the man.
 
 “**Is that a hand?**”
 
@@ -46,6 +46,6 @@ Nobody argued with that either, and the copyist of about twenty-six wrote it on 
 
 **And the cost of that Thursday is a column and it is the man of about fifty-eight’s, and it is the third one he has kept in that room, and a page with a sign at the foot of it is not in it.**
 
-**a rule of brass at thirteen, a ream of paper at twenty-nine, a pot of tea at seven, a broom at twenty-one, a bundle of kindling at nine, a jar of paste at seventeen, a night’s bed at eleven, a half-pound of candles at six, a bootlace at three, and a bit of whiting at ten.** Thirteen, twenty-nine, seven, twenty-one, nine, seventeen, eleven, six, three and ten is a hundred and twenty-six pence. **A mark is forty-eight pence and a hundred and twenty-six pence is two marks and thirty over**, and the sign is not in it, and the day is not in it, and the copy is not in it, and the thing the copy was made from is not in it and is not in this county, and a woman is not in it, and a crossing is not in it and no crossing was made and none is booked and nothing was cut, and the years since are not in it, and thirty-one nights still stand against five roads and thirty-four on a chalk board over a yard stair two hundred miles off and the difference of three is not in it and has not been found, and the notebook in his coat has eleven lines on it and no twelfth and did not come out of his coat that day.
+**a pot of tea at seven, a broom at twenty-one, a rule of brass at thirteen, a ream of paper at twenty-nine, a bundle of kindling at nine, a jar of paste at seventeen, a night’s bed at eleven, a half-pound of candles at six, a bootlace at three, and a bit of whiting at ten.** Seven, twenty-one, thirteen, twenty-nine, nine, seventeen, eleven, six, three and ten is a hundred and twenty-six pence. **A mark is forty-eight pence and a hundred and twenty-six pence is two marks and thirty over**, and the sign is not in it, and the day is not in it, and the copy is not in it, and the thing the copy was made from is not in it and is not in this county, and a woman is not in it, and a crossing is not in it and no crossing was made and none is booked and nothing was cut, and the years since are not in it, and thirty-one nights still stand against five roads and thirty-four on a chalk board over a yard stair two hundred miles off and the difference of three is not in it and has not been found, and the notebook in his coat has eleven lines on it and no twelfth and did not come out of his coat that day.
 
 The market went on until the sixth hour. The page was put with the other three and the four of them went under the flat weight with the returns, and the man of about fifty-eight did not lock the press-corner, and did not copy the page into the room’s book, and said out loud, to nobody, that he was the man who had said a thing should be written down so that it could be shown, and that a page like that one was going to be shown, and that he had better be the one who said so while there was still somebody in the room who had not read it.

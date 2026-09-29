@@ -1,6 +1,6 @@
 # Chapter 0532
 
-**The fourteenth of Hearthmonth, YR 319, a Wednesday and not a market day, and the first hour and the third hour and the seventh, in a hired room over a saddler's in a market town of about two thousand people, where about nine people were in that room and the first page of a man’s record of himself was read out loud, and nobody in that room argued with it and nobody in that room was thanked for reading it.**
+**The fourteenth of Hearthmonth, YR 319, a Wednesday and not a market day, and the first hour and the third hour and the seventh and the eighth, in a hired room over a saddler's in a market town of about two thousand people, where about nine people were in that room and the first page of a man’s record of himself was read out loud, and nobody in that room argued with it and nobody in that room was thanked for reading it.**
 
 **The first page is not the city.** He said that out loud before he turned the sheet round, and he said it to the room and not to the man of about fifty-eight, and the room had come in expecting the city and several of them had said so in the street on the way up, and the man of about fifty-eight put his pen down and said nothing.
 
@@ -48,7 +48,7 @@ And then he said the thing that the man of about thirty-four with a sheet wrote 
 
 Nobody in that room agreed with him out loud and nobody in that room argued with him out loud, and the man of about thirty-four with a sheet wrote the whole of it down and did not read it back, which is the first time in about nine years he has written a thing in that room and not read it back.
 
-**And the cost of that Wednesday is a column and it is the man of about thirty-four with a sheet’s, and it is the thirteenth one he has kept in about nine years, and a page with a name at the top of it is not in it.**
+**The cost of that Wednesday is a column, and the column is the man of about thirty-four with a sheet’s, and it is the thirteenth one he has kept in about nine years, and a page with a name at the top of it is not in it.**
 
 **a straightedge at thirteen, an inkstand at twenty-seven, a wedge of bread at four, a night’s straw at nineteen, a bit of chalk at two, a pot of paste at fifteen, a leather case at twenty-three, a bucket of water at three, a loaf at six, and a thread of twine at two.** Thirteen, twenty-seven, four, nineteen, two, fifteen, twenty-three, three, six and two is a hundred and fourteen pence. **A mark is forty-eight pence and a hundred and fourteen pence is two marks and eighteen over**, and the crossing is not in it, and the nineteen of Mudmonth is not in it, and the second hour of the night is not in it, and forty men is not in it, and the about nine on a bridge in the dark is not in it, and six years and a little is not in it, and the figure the crown’s finding gives is not in it, and that figure is not a figure of anybody in this column, and the four hundred at the end of a made lane and the two thousand of this town and the nine hundred on a coast four days off are three counts of three different things and go in at neither end of this column and are not added to one another here.
 

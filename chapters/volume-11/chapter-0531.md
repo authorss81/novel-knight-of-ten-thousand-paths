@@ -22,7 +22,7 @@ The woman of about forty-four who has been copying for about nineteen years got 
 
 And the room went looking, and it went looking in the ordinary way, out loud, one at a time, the way a room looks when nobody in it wants to be the one who decides.
 
-The day-book in the room over the weigh-house two hundred miles off has a head for a day and a head for an hour and a head for a person and a head for a thing. The parish rolls that come into that same room, four hundred and nine of them in a month, have a head for a parish and a head for a year. A toll-house roll has a head for a gate. A muster has a head for a company. The bare leaves on this table have no heads at all, and the man of about fifty-eight was told in the last ten days by about four people in this room that a thing with no head over it is going to turn out to be the most useful object in it.
+The day-book in the room over the weigh-house two hundred miles off has a head for a day and a head for an hour and a head for a person and a head for a thing. The parish rolls that come into that same room, four hundred and nine of them in a month, have a head for a parish and a head for a year. A toll-house roll has a head for a gate. A muster has a head for a company. The bare leaves on this table have no heads at all, and the man of about fifty-eight has been told over the four months by about four people in this room that a thing with no head over it is going to turn out to be the most useful object in it.
 
 “**There is no head in nine counties for a record of a man’s own wrongdoing,**” the man of about fifty-three with a barrow said, at the second hour, from the end of the table, and he said it the way he says things, which is once and without decoration. “**A man’s own wrongdoing is a thing a man keeps to himself, or a thing a court keeps against him. The first of those two has no head because nobody wants to look at it. The second of those two has a head with a name over it, and the name is not his.**”
 
@@ -48,7 +48,7 @@ Then the man of about fifty-eight asked the question, and he asked it to the man
 
 Aren Kest took a while. He put his right hand out flat on the table to steady the other one, which is not a thing a man does to steady a hand, and then he took the sheet, and he turned it so that the head was the right way up for a person standing on the other side of the table, and he wrote in it in his own hand, and it took him longer than writing a name takes a man with a good hand, and nobody offered him a better one and nobody said anything while he did it.
 
-The room did not read it out. The man of about fifty-eight looked at it and did not read it out either, and that is the second time in ten days that he has looked at a thing with a name on it and not read it.
+The room did not read it out. The man of about fifty-eight looked at it and did not read it out either, and that is not the first time he has looked at a thing with a name on it and not read it out.
 
 Then he said out loud, in front of the other eight, what the head was for, and he said it as a finding; it was not one, and the man of about thirty-four with a sheet wrote it on a bare leaf and ruled nothing over it.
 
@@ -58,7 +58,7 @@ Nobody in that room argued with that either.
 
 The man of about fifty-one in a grey coat said one thing about it and it was short and nobody thanked him for it.
 
-“**You have just given a man a handle on himself,**” Gault Prentice said, “**and he has taken it, and there are people at this table who think that is the only honest paper anybody has put on it in four months, and there are people at this table who think you have handed a town a way of finding him that it did not have in Hearthmonth, and both of those are true and I am one of the second ones.**”
+“**You have just given a man a handle on himself,**” Gault Prentice said, “**and he has taken it, and there are people at this table who think that is the only honest paper anybody has put on it in four months, and there are people at this table who think you have handed a town a way of finding him that it did not have last week, and both of those are true and I am one of the second ones.**”
 
 Nobody improved on it, and the copyist of about twenty-six wrote both halves on the same leaf and left about two-thirds of it blank, and the blank is not a figure and is not counted.
 
@@ -66,6 +66,6 @@ Then the sheets were counted out and looked at, and there are four of them under
 
 **And the cost of that Saturday is a column and it is the woman of about thirty-four who keeps the key’s, and it is the third one she has ever kept, and a head cut into the head of a man’s own record is not in it.**
 
-**a pint of lamp oil at nine, a sheet of foolscap at seven, a thimble at four, a candle-end at two, a cake of ink at seventeen, a leather strap at twenty-one, a pot of tea at five, a bootlace at three, a night’s bed at eleven, and a bit of glue at nine.** Nine, seven, four, two, seventeen, twenty-one, five, three, eleven and nine is eighty-eight pence. **A mark is forty-eight pence and eighty-eight pence is one mark and forty over**, and a name is not in it, and a head is not in it, and a knife is not in it, and the four sheets under the head are not in it, and about nine people in that room are not in it, and about four hundred at the end of a made lane are not in it, and about two thousand in this town are not in it, and those are three counts of three different things and none of the three is in this column and no two of the three are added together here.
+**a pint of lamp oil at nine, a sheet of foolscap at seven, a thimble at four, a candle-end at two, a cake of ink at thirty, a leather strap at twenty-one, a pot of tea at five, a bootlace at three, a night’s bed at eleven, and a bit of glue at nine.** Nine, seven, four, two, thirty, twenty-one, five, three, eleven and nine is a hundred and one pence. **A mark is forty-eight pence and a hundred and one pence is two marks and five over**, and a name is not in it, and a head is not in it, and a knife is not in it, and the four sheets under the head are not in it, and the people at the end of a made lane are not in it, and the people of this town are not in it either, and the nine in that room are not in it either, and those three are three counts of three different things and none of the three is in this column and no two of the three are added together here.
 
 The market went on in the street until about the sixth hour and then thinned, and the man of about fifty-eight carried the packet to the press-corner himself and put it under the flat weight with the returns, and did not lock it, and said out loud that a thing which can be shown had better not be locked, and that a locked record is a record only one man can produce, and that he had said the true thing about the head at the second hour and had gone and made it awkward by the seventh, and that both of those were him.

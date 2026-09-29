@@ -1,6 +1,6 @@
 # Chapter 0538
 
-**The thirteenth of Goatmonth, YR 319, a Thursday and a market day, and the second hour and the seventh, in a hired room over a saddler's in a market town of about two thousand people, and a man of about fifty-one in a grey coat had been out into the market twice already and came back in with a version of it that nobody in that room had put there.**
+**The thirteenth of Goatmonth, YR 319, a Thursday and a market day, and the second hour and the sixth hour and the seventh, in a hired room over a saddler's in a market town of about two thousand people, and a man of about fifty-one in a grey coat had been out into the market twice already and came back in with a version of it that nobody in that room had put there.**
 
 Nobody had started it.
 
@@ -10,7 +10,7 @@ He said that first, before anything else, standing in the middle of the room wit
 
 Nobody in that room said anything.
 
-There is a story going round this town and it came out of the chandler's on the Thursday of last week and it has been getting a little worse every day since, in the ordinary way a thing gets worse when a person tells it. The story is that a man with a limp has published a record, and that the record says where four roads are, and that the record has been sent to nine counties, and that the roads are shut this week.
+There is a story going round this town and it came out of the chandler's on the Thursday a fortnight before and it has been getting a little worse every day since, in the ordinary way a thing gets worse when a person tells it. The story is that a man with a limp has published a record, and that the record says where four roads are, and that the record has been sent to nine counties, and that the roads are shut this week.
 
 There are no four roads in the record. The clerk of about twenty-two said so on the second hour and he said it by reading the four pages out of the press-corner in a flat voice, and the record is four pages and it has a head on the first of them and it has a day on the third of them, and every part of it that is a fact is a fact about one man.
 
@@ -38,7 +38,7 @@ The third one asked the man of about fifty-eight, at about the sixth hour, wheth
 
 “**Then what is the room for?**” the person said, from the doorway, in the voice of somebody who had come four miles and had a reason.
 
-And the man of about fifty-eight did not answer, and about four of the nine people in that room thought not answering was the correct thing to do and about five thought it was the same cowardice it had been in Frostmonth, and the room did not vote, and this is the fourth time since the tenth of Hearthmonth that two sets in that room have not overlapped, and it is the last time anybody in that room will be asked.
+And the man of about fifty-eight did not answer, and about four of the nine people in that room thought not answering was the correct thing to do and about five thought it was the same cowardice it had been in Frostmonth, and the room did not vote, and this is not the first time since the tenth of Hearthmonth that two sets in that room have not overlapped, and it is the last time anybody in that room will be asked.
 
 The man of about fifty-eight gave the reason for the silence afterwards and he gave it as a fact and not as an excuse, and it was that a question asked in a street in a market is not the same object as a question asked in a room, and that a room that answers a street has been turned into a street, and that everything in that room for four months had been a piece of paper that could be shown to a person, and that this could not.
 
@@ -50,8 +50,8 @@ Nobody in that room agreed with him out loud.
 
 **And nobody was sent to find out, and no order was made, and no head was filled in on any form by anybody in that room or in this county, and the panic in that street is a panic and not an act, and there is a room, two clerks, a chairman with a chain of office that is a badge, a form with four heads on it and the fourth of them empty, and a story in which the count of four heads has become the count of four roads, and that is the whole of what is on the table in this county and it has been the whole of it for four months.**
 
-**And the cost of that Thursday is a column and it is the man of about fifty-one in a grey coat’s, and it is the first one he has ever kept, and a story is not in it.**
+**And the cost of that Thursday is a column and it is the man of about fifty-one in a grey coat’s, and it is the third one he has kept, and a story is not in it.**
 
-**a hatband at seventeen, a night’s bed at twenty-nine, a day’s bread at five, a stick of sealing wax at nine, a pot of tea at seven, a farthing at one, a stamp at fourteen, a pair of gloves at twenty-one, a candle at nineteen, a bunch of string at three, a bootlace at thirty-one, and a bowl of broth at eleven.** Seventeen, twenty-nine, five, nine, seven, one, fourteen, twenty-one, nineteen, three, thirty-one and eleven is a hundred and sixty-seven pence. **A mark is forty-eight pence and a hundred and sixty-seven pence is three marks and twenty-three over**, and the four roads are not in it and there are not four of anything in this column, and the story is not in it, and about nine people in a market are not in it, and about two thousand in this town are not in it, and about four hundred at the end of a made lane are not in it, and about nine hundred sheets a month in a room two hundred miles off are not in it, and a person standing at a door at the sixth hour is not in it, and that person has no name and is not going to get one.
+**a hatband at seventeen, a night’s bed at twenty-nine, a day’s bread at five, a stick of sealing wax at nine, a pot of tea at seven, a farthing at one, a stamp at fourteen, a pair of gloves at twenty-one, a candle at nineteen, a bunch of string at three, a bootlace at thirty-one, and a bowl of broth at eleven.** Seventeen, twenty-nine, five, nine, seven, one, fourteen, twenty-one, nineteen, three, thirty-one and eleven is a hundred and sixty-seven pence. **A mark is forty-eight pence and a hundred and sixty-seven pence is three marks and twenty-three over**, and the four roads are not in it and there are not four of anything in this column, and the story is not in it, and about nine people in a market are not in it, and about two thousand in this town are not in it, and the four hundred people at the end of a made lane are not in it, and nine hundred sheets a month go out of a room two hundred miles off and none of them is in it, and a person standing at a door at the sixth hour is not in it, and that person has no name and is not going to get one.
 
 He put the hat on at about the seventh hour and went out into the market again and did the same thing twice more before the street was empty, and that is the whole of what Gault Prentice did on the thirteenth of Goatmonth, and every one of the people who had told him the story in the market believed him and had heard him say the same thing, and he has never told anybody where any part of it came from, and he was not asked.
