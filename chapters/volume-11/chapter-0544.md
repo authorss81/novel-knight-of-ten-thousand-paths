@@ -8,7 +8,7 @@ The question is the same question. It has never been worded differently in three
 
 “**Is a rule still a rule when one man changed it in a hand?**”
 
-He said it at about the second hour and he said it in front of the other eight and he put it the same way, flat, with the satchel between his knees, and then he sat down and waited, and about four of the nine people in that room were waiting for the man of about fifty-eight to give one of the two sentences that are a way of not answering, and about five were waiting for the woman of about thirty-four who keeps the key to answer it again, and the two sets did not overlap and neither of them was right to be waiting.
+He said it at about the second hour and he said it in front of the other eight and he put it the same way, flat, with the satchel between his knees, and then he sat down and waited, and half of that room was waiting for the man of about fifty-eight to give one of the two sentences that are a way of not answering, and the other half was waiting for the woman of about thirty-four who keeps the key to answer it again, and the two did not overlap and neither of them was right to be waiting.
 
 **And it was answered at about the fifth hour by the man of about fifty-three with a barrow, who has a form in his coat with a fifth line on it and a stroke through the fifth line and who read one page out loud at a rail of a common on a market morning in Goatmonth to about four people who live at the end of a made lane, and who was not asked the question and answered it.**
 
@@ -30,7 +30,7 @@ He held up the form in his coat and did not take it out.
 
 “**Write it down,**” the man of about fifty-three with a barrow said, “**and do not put a head over it, and do not read it back, and I would like it in about four years to turn up in a room that is not this one with a man in it who has never heard of me and that is the whole of what I would like and I am not going to say it twice.**”
 
-Nobody in that room thanked him. The man of about thirty-eight with a satchel said thank you to him for the answer and not for anything in it, and the man of about fifty-three with a barrow said he was welcome, and about four of the nine people in that room have it since that the answer was right and about five have said that a man with a barrow is not a person a room can check a rule with, and the two sets do not overlap and neither of them is a fact about the answer.
+Nobody in that room thanked him. The man of about thirty-eight with a satchel said thank you to him for the answer and not for anything in it, and the man of about fifty-three with a barrow said he was welcome, and the room split over it the way it splits, and the half that has the answer right has said that a man with a barrow is not a person a room can check a rule with, and neither of those is a fact about the answer.
 
 Then the man of about thirty-eight with a satchel did the thing that made it the third time and not the fourth, and it took about as long as a man takes to say nine, and it was in his own words and not anybody else's.
 

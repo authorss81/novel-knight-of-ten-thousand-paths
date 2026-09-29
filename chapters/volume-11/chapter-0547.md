@@ -14,7 +14,7 @@ The woman of about twenty-nine said one thing about it at about the fourth hour 
 
 Nobody in that room agreed with her out loud and nobody argued with her out loud, and the woman of about thirty-one with a pen copied the four lines out for the fourth time in a hand that she said out loud had decided before she did, and she said that again and nobody asked her a second time.
 
-**And then the two of them had an exchange at about the fifth hour and it is on the page because a figure of a person standing four lines from another figure of a person is the defect no instrument in this project owns, and a woman of about twenty-nine and a woman of about thirty-one in one exchange is exactly that, and the room is going to say so about itself and nobody in it is going to be able to do anything about it.**
+**And then the two of them had an exchange at about the fifth hour, and it is on the page because two of them were in one room saying it aloud, and the two of them are a woman of about twenty-nine and a woman of about thirty-one, and a leaf that sets one of them down cannot hold the other one four lines away from her, and everybody in that room could see that while it was happening and not one of them could do a thing about it.**
 
 It went like this. The woman of about thirty-one with a pen had the sheet of foolscap on the table with the four heads on it and the fourteen words under the fourth one, and she asked a question about the copying of a figure under a second head, and the woman of about twenty-nine answered it, and in the answering a figure came out of one of them and a figure of a person came out of the other, and the two of them were four lines apart on the page and neither of them was a figure of a person who could be counted by anybody in that room.
 
@@ -30,7 +30,7 @@ The woman of about thirty-one with a pen said the thing that came out of the exc
 
 Nobody in that room said anything and the press stood open and nobody shut it and nobody dated it.
 
-Then Aren Kest, a man of thirty-two with a limp, who had come up the lane on the Wednesday and was in the room from the second hour, said the finding and he said it in about four sentences and he said it to the four lines and not to anybody, and nobody wrote it down, and it is on the page because he said it out loud in a room with about nine people in it and about four of them have it since that he was right and about five have said that a man who is in nine counties for about four years is a man who has an answer before the question, and the two sets do not overlap.
+Then Aren Kest, a man of thirty-two with a limp, who had come up the lane on the Wednesday and was in the room from the second hour, said the finding and he said it in about four sentences and he said it to the four lines and not to anybody, and nobody wrote it down, and it is on the page because he said it out loud in a room with about nine people in it and about four of them have it that he was right and about five have said that a man who is in nine counties for about four years is a man who has an answer before the question, and the two sets do not overlap.
 
 “**A road is not a place with a figure of people in it. A road is a thing a person uses and describes, and the description is made by the person who is standing on it, and the reason a return asks for a place and a figure of people and a trade is that a county cannot keep a list of anything else, and it can keep those three, and it keeps them by asking a person, and the person gives it what the person has.**”
 

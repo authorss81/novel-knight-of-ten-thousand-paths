@@ -10,7 +10,7 @@ He stood at it for about as long as a man takes to say nine, with his stick in h
 
 Nobody sent anybody. Nobody was sent. At the foot of a return, in the same ink as the rest of the printing, there is a line that says nobody is to be sent to find out, and there is a shut road four hundred miles off that is not reopened and is not scheduled and nobody has been sent to it, and about nine people are on the wrong side of it and the word is not used about it by anybody and has not been used about anything at all in this county in five months.
 
-He walked back up the mile and a half in the afternoon. The clerk of about thirty-four was at the rail of the common at about the sixth hour with a sheet in his hand and no straightedge and he did not ask the man of thirty-two a question and the man of thirty-two did not give him one, and about four of the people who were in the lane that day have it since that the two of them did not speak and about five have said that two men who have said nothing to each other in a lane for about nine years cannot be expected to start on a Saturday in Thawmonth, and neither of those is a fact about either of them and both of them are facts about the lane.
+He walked back up the mile and a half in the afternoon. The clerk of about thirty-four was at the rail of the common at about the sixth hour with a sheet in his hand and no straightedge and he did not ask the man of thirty-two a question and the man of thirty-two did not give him one, and half the people who were in that lane say the two of them did not speak and the other half say that two men who have said nothing to each other in a lane for about nine years cannot be expected to start on a Saturday in Thawmonth, and neither of those is a fact about either of them and both of them are facts about the lane.
 
 The man of about thirty-four with a sheet wrote one sentence on a bare leaf with no head over it that evening and did not read it back, and the sentence is not on this page and he has not told anybody in nine counties what it is, and the man of about thirty-four has not said the sentence to the man of thirty-two and was not asked to and did not offer it.
 
@@ -38,7 +38,7 @@ The woman of about twenty-seven opened her door about two paces wide and said on
 
 He said two things in the whole day and both of them were said to nobody. The first was the name of a road he has not been on in about four years. The second was *no*, and nothing had asked him anything, and the clerk of about thirty-four heard the second of them from about nine feet away and has not written it down and has not asked him about it.
 
-**And nobody in that lane knows what he stood at and about four of them have it since that he came down that lane for a reason and about five have said he came down it because there was nowhere else, and neither of those is a fact about the man and both of them are on the page because a lane keeps a version.**
+**And nobody in that lane knows what he stood at, and half of them say he came down that lane for a reason and half say he came down it because there was nowhere else, and neither of those is a fact about the man and both of them are on the page because a lane keeps a version.**
 
 **And the cost of that Saturday is a column and it is the man of thirty-two's, and it is the tenth one he has kept since the twenty-fifth of a month carried at thirty in the year before the year before this one, and the page is not in it and the edge is not in it and neither of them has a price.**
 
