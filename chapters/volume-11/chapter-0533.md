@@ -1,6 +1,6 @@
 # Chapter 0533
 
-**At about the fourth hour on the seventeenth of Hearthmonth, YR 319, a Saturday and a market day, a word came up out of the second page of a man’s record of himself in a hired room over a saddler's in a market town of about two thousand people, and the word was a word a press had been printing at the head of every form in nine counties for longer than anybody in that room had been copying.**
+**At about the fourth hour on the seventeenth of Hearthmonth, YR 319, a Saturday and a market day, a word came up out of the second page of a man's record of himself in a hired room over a saddler's in a market town of about two thousand people, and the word was a word a press had been printing at the head of every form in nine counties for longer than anybody in that room had been copying.**
 
 The second page is about nine lines long and it took him a day and a half to write and he said so on the top of it, and then he put it on the table face up and did not read it, and the man of about thirty-four with a sheet picked it up and read it out, and Aren Kest corrected him once, in one word, and did not correct him again.
 
@@ -46,13 +46,13 @@ Then the copyist of about twenty-six did a thing at about the sixth hour that no
 
 “**Nine hundred sheets a month go out of a room two hundred miles off into nine counties, a hundred and four of them in a single band on a fixed day, and four hundred and nine parish rolls come back into that same room in a month. Those three are three series in three separate books and none of them is derived from another. The word is at the top of every one of them, and the word is not one of the counts and is not counted by anybody.**”
 
-And the man of about thirty-four with a sheet said the finding out loud, and it was his and not the man of thirty-two’s, and the room did not vote on it and the copyist wrote it on a fourth bare leaf and ruled nothing over it.
+And the man of about thirty-four with a sheet said the finding out loud, and it was his and not the man of thirty-two's, and the room did not vote on it and the copyist wrote it on a fourth bare leaf and ruled nothing over it.
 
 “**A man who has recorded the mistake he made with a piece of paper has to go and record the mistake he made with a word,**” he said, “**and he cannot do the second one by writing more, because the second one was not a not-writing. The second one was a word he took off a cart. And the word is still going out.**”
 
 Nobody in that room thanked him and nobody in that room asked him where the word was printed, because the woman of about forty-four had already told them, and had told them it was in the die, and that a die is cut once.
 
-**And the cost of that Saturday is a column and it is the man of about fifty-three with a barrow’s, and it is the first one he has ever kept, and a printed word in a die is not in it.**
+**And the cost of that Saturday is a column and it is the man of about fifty-three with a barrow's, and it is the first one he has ever kept, and a printed word in a die is not in it.**
 
 **a barrow-mend at thirty-one, a cake of soap at six, a hank of twine at sixteen, a bowl of broth at five, a sheet of oiled paper at fourteen, a nail at two, a stone of tallow at nineteen, a wick at three, a farthing at one, and a jar of pitch at six.** Thirty-one, six, sixteen, five, fourteen, two, nineteen, three, one and six is a hundred and three pence. **A mark is forty-eight pence and a hundred and three pence is two marks and seven over**, and the word is not in it, and the die is not in it, and the cart is not in it, and nineteen years of a press in four counties is not in it, and nine hundred sheets a month and a hundred and four in a band and four hundred and nine parish rolls a month are three series in three separate books in a room two hundred miles off and none of the three is in this column and no two of the three are added here, and about nine hundred on a coast four days off is not in it, and about four hundred at the end of a made lane is not in it, and about two thousand in this town is not in it, and the three of those are three counts of three different things and go in at neither end of this column.
 
