@@ -46,7 +46,7 @@ The woman of about thirty-one with a pen wrote it down and ruled a line under it
 
 “**That is a controlled disclosure with two rooms in it.**”
 
-“**That is a form that goes out and comes back and lands in a place where nobody was looking,**” Mara Vey said. “**And I have not decided to do it and I have not said no to it, and if I did it I would tell the man of about thirty-one with a pen in about four months and I would tell her before anybody else, and that is the third sentence and it is the only one of the four that is about me.**”
+“**That is a form that goes out and comes back and lands in a place where nobody was looking,**” Mara Vey said. “**And I have not decided to do it and I have not said no to it, and if I did it I would tell the woman of about thirty-one with a pen in about four months and I would tell her before anybody else, and that is the third sentence and it is the only one of the four that is about me.**”
 
 “**And the fourth?**”
 

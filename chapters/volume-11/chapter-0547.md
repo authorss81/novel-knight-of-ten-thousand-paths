@@ -30,7 +30,7 @@ The woman of about thirty-one with a pen said the thing that came out of the exc
 
 Nobody in that room said anything and the press stood open and nobody shut it and nobody dated it.
 
-Then Aren Kest, a man of thirty-two with a limp, who had come up the lane on the Wednesday and was in the room from the second hour, said the finding and he said it in about four sentences and he said it to the four lines and not to anybody, and nobody wrote it down, and nobody wrote it down and it is here because he said it out loud in a room with about nine people in it and about four of them have it that he was right and about five have said that a man who is in nine counties for about four years is a man who has an answer before the question, and the two sets do not overlap.
+Then Aren Kest, a man of thirty-two with a limp, who had come up the lane on the Wednesday and was in the room from the second hour, said the finding and he said it in about four sentences and he said it to the four lines and not to anybody, and nobody wrote it down, and it is here because he said it out loud in a room with about nine people in it and about four of them have it that he was right and about five have said that a man who is in nine counties for about four years is a man who has an answer before the question, and the two sets do not overlap.
 
 “**A road is not a place with a figure of people in it. A road is a thing a person uses and describes, and the description is made by the person who is standing on it, and the reason a return asks for a place and a figure of people and a trade is that a county cannot keep a list of anything else, and it can keep those three, and it keeps them by asking a person, and the person gives it what the person has.**”
 
