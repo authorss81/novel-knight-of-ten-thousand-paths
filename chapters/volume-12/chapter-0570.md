@@ -22,9 +22,9 @@ Nobody thanked him. The woman of about thirty-one came off the terrace at about 
 
 “**That is about four days of somebody else,**” she said.
 
-Then the woman of about forty-four, who keeps the board off the middle terrace, had ruled four divisions on a board and filled three of them, and the order of them is not the order that goes on a leaf about nine inches by six with four ruled heads on it, and the third of them is not the third of the leaf, and the woman of about thirty-one read the leaf's order out of her own head and against the board and did not put it right. The woman of about forty-four, who keeps that board, said it out loud.
+Then the woman of about forty-four, who keeps the board off the middle terrace, had ruled four divisions on a board and filled three of them, and the order of them is not the order that goes on a leaf about nine inches by six with four ruled heads on it, and the third of them is not the third of the leaf, and the woman of about thirty-one read the leaf's order out of her own head and against the board and did not put it right.
 
-“**Ours is a person first,**” she said. “**Then where it is. Then who it is. Then what goes on it. A thing that is not on a hill is not the first line. A hill is where it is and a person is who it is, and the two of them do not stand in one another's place.**”
+“**Ours is a person first,**” the woman of about forty-four said. “**Then where it is. Then who it is. Then what goes on it. A thing that is not on a hill is not the first line. A hill is where it is and a person is who it is, and the two of them do not stand in one another's place.**”
 
 **And in the inside of his coat there was a leaf of foolscap on which he had written four lines for himself on the eighth of Thawmonth and had carried ever since, and he did not take it out, and the third line on that leaf is a trade and the third line on the board is a name, and the order on the board is one he did not put in and is not going to take out.**
 
