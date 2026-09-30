@@ -2,7 +2,7 @@
 
 **The sixteenth of Frostmonth, YR 319, a Wednesday and not a market day, and the second hour and the sixth hour and the eighth hour and the eleventh hour, in a hired room over a saddler's in a market town of about two thousand people, and Aren Kest, a man of thirty-two with a limp, was in that room for all four of them and was asked nothing about a form.**
 
-He was not asked anything by the man of about fifty-eight, at the second hour or at the sixth or at the eleventh. The woman of about thirty-four did not put a question to him. Nobody in that room put a question to him about a form, and nobody put a question to him about a rule, and nobody put a question to him about the fourth head, and the two questions he was asked that day were both asked out loud in front of the other eight: the first was asked by the man of about fifty-three with a barrow and he answered it with one word, and the second was asked by the man of about thirty-four with a sheet at about the seventh hour and it was about the eighth sentence and he answered it in one sentence. He spoke twice, and the second time he spoke it was about a man of about thirty-four with a sheet and it was nine sentences, and the copyist of about twenty-six wrote all nine of them down on a leaf with no head over it and did not read them back.
+He was not asked anything by the man of about fifty-eight, at the second hour or at the sixth or at the eleventh. The woman of about thirty-four did not put a question to him. Nobody in that room put a question to him about a form, and nobody put a question to him about a rule, and nobody put a question to him about the fourth head, and the two questions he was asked that day were both asked out loud in front of the other eight: the first was asked by the man of about fifty-three with a barrow and he answered it with one word, and the second was asked by the man of about thirty-four with a sheet at about the seventh hour and it was about the eighth sentence and he answered it in one sentence. He gave two answers to the two men who asked him and the second of them was nine sentences about a man of about thirty-four with a sheet, and the copyist of about twenty-six wrote all nine of them down on a leaf with no head over it and did not read them back.
 
 The first hour of it was quiet. He had come in at the second hour and had sat down on the wall side of the table with his walking stick between his knees and his right leg out at the angle a man puts it out at when he has been sitting on a cart wheel, and he had listened to the room argue about a strip of paper for about four minutes before he said anything at all.
 
@@ -14,7 +14,7 @@ The first hour of it was quiet. He had come in at the second hour and had sat do
 
 Nobody said anything.
 
-“**He asked me a question about a rule in Harvestmonth and I did not answer it, and he wrote down that I did not answer it.**”
+“**He asked me a question about a rule in Fallowmonth and I did not answer it, and he wrote down that I did not answer it.**”
 
 “**I know he did,**” the man of about fifty-eight said, “**it is in the back of a book of carts in my own hand.**”
 
@@ -38,7 +38,7 @@ The clerk of about twenty-two closed his own book of about two hundred leaves an
 
 “**You have just told nine people that there was a thing and not told them what it was, and that is not a confession, that is a shape with a hole in it.**”
 
-“**It is what I have,**” Aren Kest said, and he did not raise his voice and he did not put his hand on the table, and he went on, because the ninth sentence was not finished.
+“**It is what I have,**” Aren Kest said, and he did not raise his voice and he did not put his hand on the table, and he went on in the same turn, because the ninth sentence was not finished.
 
 “**I have not said it in a room before and I am not going to be asked to say it in a room again.**”
 

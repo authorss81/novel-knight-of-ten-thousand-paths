@@ -2,7 +2,7 @@
 
 **A sheet came up the made road on the twenty-fourth of Frostmonth, YR 319, a Thursday and a market day, and it is not off a press in this town and it is not off a press in nine counties, and it is a foot and a half long, and it had been lying on a flat stone at the landward end of a coast four days off. It was carried into a hired room over a saddler's in a market town of about two thousand people at the first hour, and it was put down on the table by the door beside a Crown form at the fourth hour, and at the eighth hour it was still there, and that is the first time in four months that those two documents have been in one room.**
 
-The man of about thirty-eight with a satchel brought it, and he brought it in a bundle with a sheet of oiled paper round it, and he said three things about it in the order he said them, and the first of the three was that it had come off a boat and the second was that it had come off a boat in a man's arms and not in a case and the third was that a man had put it in oiled paper and a woman had wrapped the parcel and neither of them had said anything to him about it because neither of them had asked him anything about it, which is what nobody on that sand does.
+The man of about thirty-eight with a satchel brought it, and he brought it in a bundle with a sheet of oiled paper round it, and he said three things about it in the order he said them, and the first of the three was that it is not a form and is not a copy of a form, and the second was that it is off the stone, and the third was that he would not have anybody in that room touch it in the first hour, and the reason he gave was that it had been lying on a flat stone in the open at the landward end of that coast and he did not know what was on the underside and neither did the woman who wrapped it.
 
 “**It is not a form,**” the man of about thirty-eight said, “**and it is not a copy of a form, and it has four heads cut into it with a knife and not with a press, and there is a word in the fourth head and nobody has ever written down what the word is.**”
 
@@ -10,7 +10,7 @@ The man of about thirty-eight with a satchel brought it, and he brought it in a 
 
 “**It is the thing,**” the man of about thirty-eight said. “**It is off the stone.**”
 
-**Nobody in that room had ever seen the stone and about nine people looked at a piece of stone for about as long as a man takes to count four and did not touch it, because the man of about thirty-eight put it down flat and put both hands flat on the table on either side of it and said he would not have anybody in that room touch it in the first hour, and the reason he gave was that it had been lying on a flat stone in the open at the landward end of that coast and he did not know what was on the underside and neither did the woman who wrapped it.**
+**Nobody in that room had ever seen the stone and about nine people looked at a piece of stone for about as long as a man takes to count four and did not touch it, because the man of about thirty-eight put it down flat and put both hands flat on the table on either side of it, and a man who has told a room of about nine people not to touch a thing in the first hour does not have to be asked to say it a second time.**
 
 The four heads are the same four heads. That is what the man of about thirty-eight said and what the woman of about forty-four who has been copying for about nineteen years said, and the copyist of about twenty-six did not say it and did not disagree with it and went on with the straightedge.
 
@@ -34,7 +34,9 @@ Nobody in that room said which one was older.
 
 **And nobody in that room filled the fourth head of the Crown form on the table by the door.** The fourth head of that form is ruled and it is empty and it has been empty for about four months and nobody in nine counties has filled it, and the word in the fourth head of the stone is the coast's own and it was cut into a piece of stone by a person on that sand and it is not a Crown form and it is not in a form and it is not on a sheet of paper at all.
 
-Aren Kest, a man of thirty-two with a limp, was in that room at about the fourth hour and put his hand flat on the table beside the stone and did not touch the stone, and said one sentence about it, and the sentence was that a thing cut into a thing by a person who was not asked to cut it is a different object from a thing cut into it by a press, and that nobody in that room had ever been in a room with the first of those.
+Aren Kest, a man of thirty-two with a limp, was in that room at about the fourth hour and put his hand flat on the table beside the stone and did not touch the stone, and said one thing about it, and it was not about the coast and it was not about which of the two was older.
+
+“**A thing cut into a thing by a person who was not asked to cut it is a different object from a thing cut into it by a press,**” Aren Kest said, “**and not one of the nine people in this room has ever been in a room with the first of those.**”
 
 The man of about thirty-four with a sheet asked one question and it was the only question he asked in that room that day.
 

@@ -34,7 +34,7 @@ The copyist of about twenty-six looked at the stroke for a while and then said o
 
 Nobody thanked her and nobody agreed with her out loud and she went on with the straightedge.
 
-**And the man of about thirty-four with a sheet came in at about the seventh hour and was asked nothing and said four things, and the four of them were about the stroke and not about the line, and the first of the four was that the stroke goes past the rule at both ends, and the second was that a man putting a stroke through a ruled line has to be looking at it, and the third was that a man looking at a line is a man who has come back to a paper, and the fourth was that whoever came back wrote the stroke and not the line.**
+**And the man of about thirty-four with a sheet came in at about the seventh hour and said two things, and the room asked him one question between the two of them and he answered it, and both of the two were about whoever made the stroke and neither of them was about the stroke.**
 
 “**He did not rule it,**” the man of about thirty-four said. “**He could not. There is no head over it. You cannot rule a line under a head that is not there and get a fifth line; you get a mark in the middle of a form, and a mark in the middle of a form is a thing a man does with a pen and a reason, and the reason is the only thing on that paper anybody can be got to swear to.**”
 
