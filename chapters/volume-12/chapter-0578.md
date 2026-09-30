@@ -6,7 +6,7 @@ Nobody has decided to have it. It came the way weather comes.
 
 It is at the ninth hour, because that is when the hands are off the ground and standing about, and about nine households on the four lowest terraces of the Long Set live in that hour more than in any other, and what the ninth hour has done in six days is put nine people in the same forty yards of grass with a plank in it.
 
-**And the finding does not make anybody angry, and the volume of it does not make anybody angry, and about four of the nine people standing there would have said a fortnight ago that there is nothing here to be angry about.**
+**And the finding does not make anybody angry, and the amount of it does not make anybody angry, and about four of the nine people standing there would have said a fortnight ago that there is nothing here to be angry about.**
 
 The man of about fifty-one said it first and he said it plainly and to everybody.
 

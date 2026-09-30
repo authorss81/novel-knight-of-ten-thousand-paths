@@ -24,7 +24,7 @@ Nobody thanked her. The woman of about sixty-four stood at the north end of the 
 
 “**That is not the same thing as counting.**”
 
-“**No,**” she said. “**Counting is what you do when you want to know how many there are. That is what I do when I want to know whether the day is done. And you are the first person in about thirty years to work out the difference and I would like it noticed that you worked it out on your own and did not ask me first.**”
+“**No,**” she said. “**Counting is what you do when you want to know how many there are. That is what I do when I want to know whether the day is done. And you are the first person in about thirty years to work out the difference and I would like it noticed that you worked it out on your own and did not ask me first.**” **“And a man from off the hill stood where you are standing in the pick sitting and I told him in my own mouth that I count, because I have been saying it for thirty years and it is what I say about it, and I did not find out until this morning that there was anything else in it.**”
 
 “**Where did the number come from?**”
 
