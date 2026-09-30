@@ -4,13 +4,13 @@
 
 They were told the day before and not after it, and the telling was done by a woman of about thirty-one who is not a keeper of anything anybody can put a name to, and nobody thanked her for it and she did not expect to be and has not said that she did.
 
-What she did was go up the row to about nine households at the fifth hour of the day before and say the same nine words at each door, and the nine words are on a slate because the man of about thirty-one of the Standing wrote them there at her asking and would not write them from memory and would not carry her round himself.
+What she did was go up the row to about nine households at the fifth hour of the day before and say the same thing at each door, and what she said is on a slate because the man of about thirty-one of the Standing wrote it there at her asking and would not write it from memory and would not carry her round himself.
 
 Tomorrow the water comes down.
 
 Nobody argued with her at any of the nine doors. That is the part about the four lowest terraces that nobody above them has understood in twenty-two years. Four of the nine said nothing. Three of the nine said that it would not happen. One said that it had happened before and did not last, and the woman of about thirty-one said that it had happened once and that the ditch was cut that year by six people and that it is being cut this year by one, and the one said nothing to that.
 
-Nobody thanked her. About four people on the Long Set have taken the view that a woman who walks nine doors with nine words is doing the work of an office, and about nine have taken the view that nine households on four terraces have no office to walk nine doors for and never had, and the two sets do not overlap and she has not been asked which of the two she thinks she is.
+Nobody thanked her. About four people on the Long Set have taken the view that a woman who walks nine doors with a slate in her hand is doing the work of an office, and about nine have taken the view that nine households on four terraces have no office to walk nine doors for and never had, and the two sets do not overlap and she has not been asked which of the two she thinks she is.
 
 **And the nine days was counted.**
 
