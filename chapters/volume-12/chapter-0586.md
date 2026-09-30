@@ -1,0 +1,45 @@
+# Chapter 0586
+
+**The top of the cut, the second hour of the pick sitting, about three hundred paces of stone about two paces wide with a lip along the high side, nine people on it, a man of about fifty-eight off the hill with a barrow, and about four hundred paces of the same work still to be done by the same nine people.**
+
+It is ordinary work and it is badly done and both of those are true on the same morning and neither of them is anybody's fault.
+
+The nine people on that bank are the same nine who clear the fan of spoil at the fourth hundred pace, and four of them have never laid a course of stone in their lives and about four of them are past the age for it and one of them is the man of about forty-four who holds the second hoe on that Long Set and is better with a spade than anybody on the slope.
+
+They began on the low side, and that is the whole of what went wrong.
+
+The lip on a channel like that one is on the high side, and the bed wants the big stones down and the small stuff packed over them and a lip laid along the high side out of the flattest stone they have. The nine of them dug the easy side because the easy side is a foot and a half of soil and the hard side is two feet of it and a man with a mattock is a man who will dig the easy side, and then they laid the bed the way you lay a path, small down and big on, because that is what a path wants and a channel does not.
+
+The man of about fifty-one was on that bank from the second hour and he watched about nine men lay about three hundred paces of it wrong, and he did not say so for about four hours, and when he did say so he did not say it was a fault.
+
+“**That is not a fault,**” he said. “**There is no fault in it. There are nine people on this bank who have not laid a course and there is about three hundred paces of bed the wrong way up, and I have been letting them do it for about four hours because I wanted to see whether they would come to it on their own, and they have not, and I have known they would not since about the ninth hour of the first day, and I should not have let them do three hundred paces of it.**”
+
+“**Then why did you,**” the man of about thirty-one of the Standing said, and he had not been in the room and nobody had told him there was anything to be in a room about.
+
+“**Because I could not think of the sentence that would not sound like a man from this valley telling nine other people of this valley that they are doing their own water wrong,**” the man of about fifty-one said, “**and I have had about nine years of not saying things and it turns out I have lost the habit of saying them and not only the reason.**”
+
+Nobody thanked him for that. Nobody argued with it either. The man of about thirty-one wrote it on a slate because that is what they do now, and the slate is not the finding and the finding is not the slate and nobody has said where a slate of that kind is supposed to go.
+
+**And the man from off the hill was on that bank from the second hour and he was not put in charge of anything and was not asked to inspect anything and was not asked his opinion once.**
+
+The man who keeps the water gave him a barrow at about the second hour and did not give him a second one, and said the job out loud in front of the nine so that nobody had to guess at it, and the job was spoil. Spoil comes out of the bed and goes down the low side and makes a fan about four paces across where a person walking up that channel in the dark would put a foot wrong. There is about nine barrows of it for every four paces done, and there are about four hundred paces to go.
+
+He is good at it. He is better at it than anybody on that bank, and the man from off the hill is a man of thirty-two with a limp and a ferrier's stick and eleven years of a job that is not barrowing, and everybody on that bank can see all of it inside about an hour, and one of the nine was a woman of about fifty-eight who turns about nine hundred drying cloths in a sitting and was on that bank for two days, because four sets of people said yes to two of them and she is one of the sets that said yes. She watched him for a while and then went back to her cloths and did not say anything.
+
+The boy of about fifteen barrows too, because he barrows stone, and he is faster than the man from off the hill and will not be, and he knows it, and he kept the two of them in a line all morning without being asked and without being told he was doing anything.
+
+Nobody thanked either of them. The man who keeps the water did not watch the barrowing and did not tell him he had done it well, and about four people on that slope have taken the view that a man with a bad leg who barrows spoil from the second hour to the ninth hour on a channel bank is a fool, and about nine have said that he is the only man on four miles of stone who has ever done a day's work on a channel in his life and that this valley does not know what to do with that and is not going to learn, and the two sets do not overlap and neither of them has said his name out loud and he has not asked.
+
+**And at about the sixth hour the man of about fifty-one said out loud, to everybody, the thing that is the shape of the whole month.**
+
+“**Three hundred paces is wrong and I have let it be wrong and the four hundredth pace is four hundred paces down from where we are standing and it is the only part of these four miles that has to be right, and there are nine of us and four of us have never laid a course. When we get down there I am going to say out loud that we cannot do it. And I am saying it now, at the top, four hundred paces early, so that nobody can say afterwards that they did not know.**”
+
+About nine people heard it. Nobody thanked him for saying it early. Nobody said it should have been said four days ago either, and the man of about fifty-one said that it should have been said four days ago and that he had not said it four days ago because four days ago he had been carrying a barrow-wheel down a high side and had not known which of the two things he was carrying was the heavy one.
+
+The work stopped at the ninth hour, the way it stops, and the three hundred paces of wrong bed lay on that slope in the light with about four of the men standing on it looking at it, and nobody turned one stone over, and the boy rang the bell at the fourth point for the penny.
+
+**And the top three hundred paces of four miles of stone is the part that will have to be taken up and done again, and about four hundred paces of the same work is still in front of nine people who have laid about three hundred paces of it the wrong way up, and the fourth hundred pace is where the lip carries for about nine yards on a bed that has gone, and about nine yards of it is the reason a man carried a fault for about nine years and a woman dug up a plank and a boy held a chalk and a finding with three names on it is lying on a stone in this valley.**
+
+**What that day cost is a column, and it is the boy's, and three hundred paces of wrong bed and about four hundred paces to go and about nine barrows to four paces are figures of work and not one of them is a price.**
+
+**a hod at two, a pick at six, a wooden wedge at nine, a stick of chalk at twelve, a hank of string at fifteen, a nail at nineteen, a pot of tar at twenty-two, a jar of oil at twenty-five, a hand file at twenty-nine, a round of bread at thirty-three, and a leather strap at thirty-nine.** Two, six, nine, twelve, fifteen, nineteen, twenty-two, twenty-five, twenty-nine, thirty-three and thirty-nine is two hundred and eleven pence. **A mark is forty-eight pence and two hundred and eleven pence is four marks and nineteen over**, and about four miles and about two paces wide and three hundred paces and four hundred paces and the fourth hundred pace and about nine yards and about four paces and about nine barrows are eight figures of distance and of count and none of them is a price, and the second hour and the fourth hour and the sixth hour and the ninth hour and the ninth hour of the first day and about four hours and about four days and about nine years and about nine days and nine barrows carried before the man from off the hill came are ten more figures of time and of count and not one of them goes in at either end of this column. **Nine people on that bank and four of them who had never laid a course and about ninety people twenty-two winters ago and three names on a slate and about nine households on four terraces are five figures of persons and are not added to one another, and the penny for the bell was paid and is not in this column.** Nobody thanked him for being good at barrowing, because nobody thanked him for being good at barrowing, and nobody said out loud that somebody ought to have made him do something else. Nobody thanked anybody.

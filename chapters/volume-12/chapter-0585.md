@@ -1,0 +1,43 @@
+# Chapter 0585
+
+**The first of Fallowmonth, YR 320, a Saturday and a market day, from the second hour to the seventh, a market town of about two thousand people, a weigh-house with a board outside it and a street about nine paces wide, a hired room over a saddler's, a woman of about thirty-four who keeps a key, and a man of about fifty-eight with a chain of office that is a badge who says one thing out loud on the first of a month and is not thanked for it.**
+
+He said it in the street outside the weigh-house and not in the room, because he has said it in the street every first of a month since the room began.
+
+“**The hearing stands. There is no bench in the room. Nobody is sentenced to anything by me or by anybody in that room. There is a form on the side table with four heads on it and the fourth of them is ruled and empty and has been about six months, and I will not rule a line above it, and I will not rule a second line below it, and I have said that out loud on the first of every month since the room began and I do it because a thing that is true only when somebody says it is not true.**”
+
+About nine people heard it. Nobody thanked him. A woman selling eggs asked him whether he wanted one and he said that he did not and she put the basket down again, and a man who was going past said that there was nothing to hear, and the man with the badge said that there was not, and that was the end of it and nobody stayed.
+
+Nobody came for it. That is the whole of the first of Fallowmonth in that market town of about two thousand: a thing was said out loud in a street about nine paces wide to about nine people and not one of the nine came up the stairs afterwards, and there has now been a first of a month in six months at which about nine people heard the standing and about nine did not, and the two nines are not the same nine and the two are not added.
+
+The room over a saddler's was open from the second hour and shut at the seventh, which it has been on every market morning since the first of Harvestmonth, and the door has a lock and the lock is a good one and the key belongs to the woman of about thirty-four and the only way to open that door from the lane while there are people on the stair is with the key in her hand.
+
+So the key is in the lane, and the person who keeps it is in the lane.
+
+**The four weeks were up on the twenty-eighth of Harvestmonth, and the Thursday after that was the first market morning past them and the room was shut on it, and he thought about it overnight and did not sleep much and said so out loud in the street before he did anything else this morning, and about nine people heard that too, and it is the reason the room is open today and it is not a reason anybody will enjoy.**
+
+“**I gave her four weeks on the first of Harvestmonth and I said then that it goes back to what it was if nobody has said anything that makes it wrong, and something has been said that makes it wrong, and it was said to me about nine days ago by a person in a county four days of carting from this town who has not been in this room and does not intend to be. So I am leaving the door open on market mornings for one more week and it is mine and not hers and I will not put it on her, and I said that to her on the day I changed it and she said she wanted it written down that I said it first and she was not thanked and she was not.**”
+
+Nobody thanked him for saying it in the street first. Nobody in that market town has ever come up those stairs for the hearing, and the four people in the room that morning were the copyist of about twenty-six, the woman of about thirty-four, a man of about thirty-eight with a satchel who had come up the coast cart and was going back down it, and the man with the badge. The fifth thing in that room was a chair and the chair was empty and nobody has said why and nobody has been asked.
+
+Between the fourth hour and the seventh the room did what a room does, which is nothing that anybody will afterwards be able to describe.
+
+**Nobody put a name at the top of anything that morning. The copyist wrote on a bare leaf with no head over it, and the leaf has four lines on it and there is no head above the first of them, and she read none of it back, and she has said once already that she is not going to write the fourth head twice and she said it twice on this morning and neither of the two was a slip.** The form was on the side table with three heads filled and the fourth empty, and nobody put a pen near it, and the pen was in a case and the case was shut.
+
+**And upstairs, where it has been since a day in a month carried at thirty, the half leaf lay face down on a table. There is a question written under its fourth head and nobody in nine counties has answered it. Nobody turned it over that morning and nobody has been booked to turn it over and nobody has said out loud how long it has been lying there, which is the one figure the thing itself does not give up.** A pot of earth that stood in this room for about nineteen days in Greenmonth is four days and about nine the other way up a lane, watered by a woman who is not a keeper of anything, and nobody in this room has been told that in nine days and has not asked.
+
+The woman of about thirty-four said two things before the seventh hour and both of them were to the lane and not to the man with the badge, and the man with the badge heard both of them and did not answer either.
+
+“**A place in a room is a thing I had and I have not got, and it is a place and not a punishment, because a punishment would mean somebody did it to me, and a man with a badge telling me on a street that it is his and not mine does not turn it into a thing anybody did to me, it only turns it into a thing he did.**”
+
+“**And if the week ends and it goes back?**”
+
+“**Then I will be in it on a Thursday and I will be in the lane on a Saturday, and I have not been in the lane on a Thursday because a Thursday is not a market morning, and I would like somebody to write down that there is a difference between those two and that I have worked it out and I have not been thanked for working it out.**”
+
+Nobody wrote it down. The copyist of about twenty-six wrote something else on a bare leaf and ruled no head over it, and the man of about fifty-eight said that the hearing stands and that he would say it again on the first of the next month, and the woman of about thirty-four kept the key.
+
+**And nobody in that market town of about two thousand has been told that four days and about nine up a lane, on a slope above a bar of wood lying in the grass, nine men are laying stone badly at the top of a channel that has not been mended in about nine years, and about nine households on four terraces have about four days of cutting left in a ditch and no money and no vote and no part in any of it.**
+
+**The cost of that Saturday is a column, and it is the woman of about thirty-four's, and a place in a room and a key and a week are not in it and none of them has a price.**
+
+**a wax seal at three, a pen-case at six, a sheet of paper at nine, a bundle of kindling at twelve, a bootlace at fifteen, a night's straw at eighteen, a pound of tallow at twenty-one, a hank of yarn at twenty-four, a key-file at twenty-eight, a pot of tar at thirty-two, and a skin of glue at thirty-eight.** Three, six, nine, twelve, fifteen, eighteen, twenty-one, twenty-four, twenty-eight, thirty-two and thirty-eight is two hundred and six pence. **A mark is forty-eight pence and two hundred and six pence is four marks and fourteen over**, and four weeks and about six months and about nineteen days and about nine days and about four days and about four days of carting and about four hundred paces are seven figures of time and of distance and none of them is a price, and four heads and a fourth head and a fifth line ruled on a Monday morning in a market town by nobody who ordered it and four divisions on a board four days and about nine off are four shapes and not one object. **The nine who heard the standing in the street and the nine who did not come and about nine people at the gate in an earlier month and a market town of about two thousand and a copyist of about twenty-six and a man of about thirty-four and a man of about thirty-eight and a man of about fifty-eight are eight figures of persons and are not one figure and none of them goes in at either end of this column.** A pot of earth in another county is not a document. A leaf with a mark at the top of it and nothing under it is a fifth document in a fifth county and is not a form. Nobody thanked anybody.
