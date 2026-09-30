@@ -56,7 +56,7 @@ She sat down.
 
 Nobody said the two roads were the same road and nobody asked, and the fact that nobody asked was noted afterwards by about four people and not by about five, and the woman of about twenty-nine who keeps the room was in the room the whole time and came in at the second hour and did not go out, and Aren Kest was in the lane the whole time and nobody in the room asked why, and the two of them were not in a room together with a third person in it at any point in a month and nothing between them was described in a document.
 
-Then the badge-man said the last thing of that morning and it is the thing Block 0004 stands on, and he said it to about nine people standing in a room with the door open.
+Then the badge-man said the last thing of that morning and it is the thing the thirty-one years stand on, and he said it to about nine people standing in a room with the door open.
 
 “**It has happened three times,**” he said. “**The first was a culvert at the gate of this town in a month past, where a man with a limp was the only person who could see a middle course that had gone, and he said it out loud twice to two people and neither of them was the road office. The second was at a crossing under an abbey on the twentieth of a month, and he was the only person there at the second hour of the night. The third was in a room over a saddler's twenty-five days ago, and this time he acted on it, and this is the first of the three in thirty-one years that anybody has done anything about, and in the other two the man was right and nobody was harmed and nothing came of it at all.**”
 
