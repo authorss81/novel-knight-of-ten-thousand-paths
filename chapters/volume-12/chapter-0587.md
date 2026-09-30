@@ -14,7 +14,7 @@ Nobody thanked her. About four people on the Long Set have taken the view that a
 
 **And the nine days was counted.**
 
-Nobody in nine counties had ever checked it. It was a figure two men had. The man of about fifty-one who keeps the water had it from watching the channel hisself for nine years and the carter had it from coming up and down it in a cart, and neither of them had counted and the woman of about thirty-one told the man of about thirty-one that a figure two men had is not a number and that she wanted it counted by a person who was going to be standing in it.
+Nobody in nine counties had ever checked it. It was a figure two men had. The man of about fifty-one who keeps the water had it from watching the channel himself for nine years and the carter had it from coming up and down it in a cart, and neither of them had counted and the woman of about thirty-one told the man of about thirty-one that a figure two men had is not a number and that she wanted it counted by a person who was going to be standing in it.
 
 So it was counted at the fifth hour on the morning it happened, by her, with a stick and about nine stones put down the high side of the channel at the water's pace, and the count is a count and it is on the slate and it is the first number about this water that anybody in this valley has ever arrived at themselves.
 
