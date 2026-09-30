@@ -254,7 +254,7 @@ Two miles and about nine hundred paces of hard sand, eleven houses, about nine h
 
 **The chain is built forward from the single anchor of day 930, which is the twenty-fifth of Mudmonth YR 318 and a Sunday, and from the carried thirty-day month, and from nothing else.** `outline/volume-12.md` §17 owns the chain to day 1830. **It may not be checked against any earlier chain, and a Volume 13 writer derives the first day of the block and the weekday and the day of month separately and never copies a row out of that table.**
 
-**The two facts that will break a writer who assumes them. First, the year does turn inside this volume: day 1956 is the first of Thawmonth YR 321 and it is the last day of Block 0003, so a writer who carries YR 320 through the whole volume is wrong on twenty-eight of its two hundred and ten days. Second, the first day of the volume, day 1831, is a Friday and not a market day, and the last day, day 2040, is a Thursday and a market day.**
+**The two facts that will break a writer who assumes them. First, the year does turn inside this volume: day 1956 is the first of Thawmonth YR 321 and it is the last day of Block 0003, so a writer who carries YR 320 through the whole volume is wrong on **85** of its two hundred and ten days and not on twenty-eight, because 125 of them are YR 320 and 85 are YR 321. Second, the first day of the volume, day 1831, is a Friday and not a market day, and the last day, day 2040, is a Thursday and a market day.**
 
 | Day | Date | Weekday | |
 | --- | --- | --- | --- |
@@ -263,14 +263,16 @@ Two miles and about nine hundred paces of hard sand, eleven houses, about nine h
 | 1836 | Wolfmonth 1, YR 320 | Wed | not a market day, **and a month carried at thirty begins** |
 | 1866 | Frostmonth 1, YR 320 | Fri | not a market day, **and a month carried at thirty begins** |
 | 1872 | Frostmonth 7, YR 320 | Thu | market, **and Block 0001 ends** |
-| 1896 | Hearthmonth 1, YR 320 | Mon | not a market day, **and a month carried at thirty begins** |
-| 1926 | Goatmonth 1, YR 320 | Sat | market, **and a month carried at thirty begins** |
-| 1956 | Thawmonth 1, YR 321 | Mon | not a market day, **and the year turns, and a month carried at thirty begins, and Block 0003 ends** |
-| 1986 | Mudmonth 1, YR 321 | Fri | not a market day, **and a month carried at thirty begins** |
-| 2016 | Greenmonth 1, YR 321 | Wed | not a market day, **and a month carried at thirty begins** |
+| 1896 | Hearthmonth 1, YR 320 | Sun | not a market day, **and a month carried at thirty begins, and Block 0002 begins** |
+| 1926 | Goatmonth 1, YR 320 | Tue | not a market day, **and a month carried at thirty begins** |
+| 1956 | Thawmonth 1, YR 321 | Thu | market, **and the year turns, and a month carried at thirty begins, and Block 0003 ends, and the day before it is 1955, Goatmonth 30, YR 320, a Wednesday** |
+| 1986 | Mudmonth 1, YR 321 | Sat | market, **and a month carried at thirty begins** |
+| 2016 | Greenmonth 1, YR 321 | Mon | not a market day, **and a month carried at thirty begins** |
 | **2040** | **Greenmonth 25, YR 321** | **Thu** | **market, and the volume's last day** |
 
-**Market days are the Saturdays and the Thursdays, and the volume carries seventy-four of them in its two hundred and ten days, and a writer that needs a market-day list derives it from the day number and not from this paragraph, because this paragraph is a printed list and a printed list is a certificate and a certificate is the last place a defect survives.**
+**The five rows above were wrong in an earlier printing of this table and are corrected here: 1896 was printed Mon and is a Sun, 1926 was printed Sat and is a Tue and is not a market day, 1956 was printed Mon and not a market and is a Thu and a market, 1986 was printed Fri and not a market and is a Sat and a market, and 2016 was printed Wed and is a Mon.** The rows for 1830, 1831, 1836, 1866, 1872 and 2040 were and are correct, and the month-start day list was and is correct. **The table now agrees with the chain, and it is still a printed list, and the rule about printed lists below is unchanged and still binding.**
+
+**Market days are the Saturdays and the Thursdays, and the volume carries **sixty** of them in its two hundred and ten days and not seventy-four, twelve in each of the five forty-two-day blocks, and a writer that needs a market-day list derives it from the day number and not from this paragraph, because this paragraph is a printed list and a printed list is a certificate and a certificate is the last place a defect survives.**
 
 **The three frames that are not convertible, and this is the second volume in which a path keeps a count of its own.** A main-world dateline carries a month and a weekday. A coast dateline carries an ebb and an hour and carries neither. **A path dateline carries an open-crossing count and an hour and carries no month and no weekday and no tide in any character's mouth.** A yard keeps its count in days, a road keeps its count in tides, a path community keeps its count in crossings open and weeks shut, **and this volume has many short intervals and so has many of the third count, and the conversion between them is named once in Block 0001 and is made once and is never made again.**
 
