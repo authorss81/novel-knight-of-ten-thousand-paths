@@ -6,15 +6,15 @@ The only flat ground within four hundred paces of the fourth hundred pace was th
 
 The woman of about fifty-eight who turns those cloths stood at the near end with her hands on a line, and the woman of about sixty-four who ties about nine hundred picking cords in a sitting stood at the far end with a bundle under her arm, and between them the lines sagged with the damp weight of what was on them, and about nine men waited forty paces off with empty barrows, and nobody was angry.
 
-“They come down,” the woman of about fifty-eight said, “or the barrows go round by the high side, which is half a day lost on every day.”
+“**They come down,**” the woman of about fifty-eight said, “**or the barrows go round by the high side, which is half a day lost on every day.**”
 
-“They do not come down,” the woman of about sixty-four said. “The cords are tied to the same posts and the posts will not hold a barrow run shaking them twice a day. Move the run to the low edge and lose ten minutes and keep the lines.”
+“**They do not come down,**” the woman of about sixty-four said. “**The cords are tied to the same posts and the posts will not hold a barrow run shaking them twice a day. Move the run to the low edge and lose ten minutes and keep the lines.**”
 
-“The low edge is soft,” the first said. “A barrow goes in to the axle there after rain.”
+“**The low edge is soft,**” the first said. “**A barrow goes in to the axle there after rain.**”
 
-“Then lay boards,” the second said. “There are boards at the press-house doing nothing.”
+“**Then lay boards,**” the second said. “**There are boards at the press-house doing nothing.**”
 
-“Boards sink too,” the first said, “and then we have boards under mud and cloths in mud, which is worse than one of those.”
+“**Boards sink too,**” the first said, “**and then we have boards under mud and cloths in mud, which is worse than one of those.**”
 
 The woman of about fifty-eight let go of the line and went down the run with her hand along it, and where a cord was tied the line had cut a groove into itself and the groove had gone white, and she stopped and put her thumb in it and showed it to nobody in particular. The woman of about sixty-four came and put her own thumb in the same place and said the groove was the post moving and not the cord, because a cord that had cut that deep would have parted on its own by now. That was the whole of the technical part of it and it took less time than the telling of it.
 
@@ -26,13 +26,13 @@ The man of about sixty of the Standing stood at the edge of the forty paces and 
 
 The woman of about thirty-eight who keeps a block between two head stones came down the middle with a basket and stopped, and she did not take either side, and the oldest voice in that valley did not come out of her, and that was noticed by everybody and said by nobody.
 
-“How many cloths,” she asked, “and how many cords on the same posts?”
+“**How many cloths,**” she asked, “**and how many cords on the same posts?**”
 
-“About nine hundred cloths,” the woman of about fifty-eight said. “And about nine hundred cords tied along the same run, of which she ties about a hundred and forty.”
+“**About nine hundred cloths,**” the woman of about fifty-eight said. “**And about nine hundred cords tied along the same run, of which she ties about a hundred and forty.**”
 
-“Then you are arguing about nine hundred feet of posts,” the woman of about thirty-eight said, “and you are both right about them, and the valley has no way to write down that two people are right about one thing and still have to choose.”
+“**Then you are arguing about nine hundred feet of posts,**” the woman of about thirty-eight said, “**and you are both right about them, and the valley has no way to write down that two people are right about one thing and still have to choose.**”
 
-“We had a way,” the woman of about sixty-four said. “We put it in the ground twenty-two winters ago.”
+“**We had a way,**” the woman of about sixty-four said. “**We put it in the ground twenty-two winters ago.**”
 
 Nobody answered that. The woman of about sixty-four went back to her post and the woman of about fifty-eight went back to her line, and the men at the forty paces stayed where they were, and the sun went on along the run, and what had just been said sat in the middle of that strip with nowhere to be put, which is what happens to a thing said out loud in a place that has nowhere to put it. The two who had argued hardest about it were not the two who had been wrong about the water, and nobody on that strip said so out loud, and both of them had said yes in their own way and both of them had paid, and they had argued about cords and lines because cords and lines were the things standing in front of them.
 
@@ -44,6 +44,6 @@ In the end the cloths on the middle three lines came down and the cords stayed o
 
 The man of about sixty was told at the ninth hour what had been decided, and he was asked whether he had been asked and by whom and whether it was right, and he answered about the asking and would not answer about the right, and said there was no room to put it in, and told them not to write it down, and walked back up the slope alone. Behind him the boards stood on their ends against the wall of the run where the two men had leaned them, and nobody put them back in the press-house, and they were still standing there the next morning and the morning after that.
 
-**And the cost of that Monday is a column and it is the woman who turns the cloths’, and a cord and a line and a disagreement nobody wrote down are not in it and none of them has a price.**
+**And the cost of that Monday is a column and it is the woman who turns the cloths', and a cord and a line and a disagreement nobody wrote down are not in it and none of them has a price.**
 
 **a hoof pick at sixteen, a cake of soap at four, a ladder rung at twenty-eight, a hank of yarn at nine, a water scoop at twenty-three, a rushlight at six, a cart rung at thirty-one, a jar of oil at twelve, a hand file at nineteen, and a whetstone at fourteen.** Sixteen, four, twenty-eight, nine, twenty-three, six, thirty-one, twelve, nineteen and fourteen is one hundred and sixty-two pence. **A mark is forty-eight pence and one hundred and sixty-two pence is three marks and eighteen over**, and about nine hundred cloths and about nine hundred feet of line and about nine hundred cords and about a hundred and forty of them hers and four hundred paces and forty paces and the middle three lines and three posts lost and about two in three come out dry and two boards and a man of about nineteen are twelve figures of distance and of count and not one of them is a price, and the ninth hour and the fourth hour and the sixth hour and the bar sitting and about six weeks and twenty-two winters and half a day lost and twice a day and ten minutes and the next morning are ten figures of time and not one of them goes in at either end of it. **A woman of about fifty-eight who turns the cloths and a woman of about sixty-four who ties the cords and about nine men with barrows and a woman of about thirty-eight who keeps a block and a man of about sixty of the Standing and about four standing by and about five standing by are seven figures of persons and no two of them is one figure.** Nobody thanked and nobody was angry.
