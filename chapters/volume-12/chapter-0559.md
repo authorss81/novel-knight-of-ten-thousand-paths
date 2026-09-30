@@ -24,7 +24,7 @@ The three that were filled say this: a place, in the words of the letter, and th
 
 Nobody read it back. Nobody thanked anybody.
 
-Then at about the sixth hour he went out into the lane behind the room and she was already in it, because she had been in the lane for about an hour with her boots in her hand and the pot at her feet, and there was nobody else in that lane and nobody came into it and nobody has said since that anybody was in it.
+Then at about the sixth hour he went out into the lane behind the room and she was already in it, because she had been in the lane for about an hour with her boots in her hand and the pot at her feet, and there was nobody else in that lane and nobody came into it and nobody has ever said that anybody was in it.
 
 **And he told her. He said it flat and quickly and he told her in a lane instead of in the room on purpose and he did not say why and the reason was in the room and the reason was nine people.**
 
