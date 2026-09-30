@@ -16,7 +16,7 @@ He put the page on the boards of the counter, and the page had been round nine c
 
 The man of about thirty-four with a sheet said the thing, and it was short and it was not a boast.
 
-“**The works has six on it,**” he said, “**and it will take six, and it took six before anybody in this county was born, and the six that were marked to be held are holding. The third has not been wet since the twenty-second. The man who keeps it has a number and a name and nineteen years and he is not standing out there with a bar any more, and he told a carter so himself and the carter told me so and the carter did not want to be involved.**”
+“**The works has six on it,**” he said, “**and it will take seven, and it took seven before anybody in this county was born, and the six that were marked to be held are holding. The third has not been wet since the twenty-second. The man who keeps it has a number and a name and nineteen years and he is not standing out there with a bar any more, and he told a carter so himself and the carter told me so and the carter did not want to be involved.**”
 
 Nobody said anything, and the man of about forty-seven with a page looked at the page on the boards for a while, and then he said the thing that is the whole of what he came for.
 

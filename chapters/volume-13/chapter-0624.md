@@ -16,7 +16,7 @@ Nell Craddock put her hand on the cart and looked at the board outside the weigh
 
 Then she said the other half of it.
 
-“**I have not been asked anything by anybody in nine counties, and I am not complaining, because I would not answer it. I have said that out loud on a slope and in a market town before and I am not going to say it a third time in a lane, and I am saying it now because a man came past my end on Tuesday and said the third road had water on it and that a road had gone cold at a crossing, and he said it the way a man says a thing when he has been told it and is not the one it is about, and I want to say that I heard it, and that I did not go and look, and that I am telling you I heard it and not that I have come to be told.**”
+“**I have not been asked anything by anybody in nine counties, and I am not complaining, because I would not answer it. I have said that out loud on a slope and in a market town before and I am not going to say it a third time in a lane, and I am saying it now because a man came past my end on Tuesday and said the third road had water on it and that a road had gone cold at a crossing, and he said it the way a man says a thing when he has been told it and is not the one it is about, and I want to say that I heard it, and that I did not go and look, and that I am saying I heard it and I am not saying I have come here to be told.**”
 
 Aren Kest was in the lane. He had come down the outside stair at the second hour because it was a market morning and he had been in that lane every market morning for about two months, and he was at the low end of the counter boards with his stick against the wall and his hands in the sleeves of a coat he did not need in that weather, and he had said nothing to anybody for a week.
 
