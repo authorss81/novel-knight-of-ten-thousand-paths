@@ -58,7 +58,7 @@ Nobody in that market said anything at all for a moment, and the badge-man looke
 
 “**Then I will keep it,**” she said, “**and I will tell the woman at the top end on my next trip, which will be Friday, and she will not be pleased and she will not say so, and the two of us have been doing this for two years and we have never once asked anybody to do anything for us and we are not going to start on a Sunday.**”
 
-Then she said the last of it, and it is the sentence this block is built on, and she said it without any performance at all, to a man of about thirty-four with a sheet, because he was the nearest person who had said anything to her.
+Then she said the last of it, and it was the sentence she had come up the lane to say, and she said it without any performance at all, to a man of about thirty-four with a sheet, because he was the nearest person who had said anything to her.
 
 “**You have all been very careful,**” she said. “**I want you to hear the rest of that sentence, because you are going to go away and hear the first half. You have all been very careful, and there was nobody in nine counties who could have been uncareful, and that is not the same as anybody being careless and it is not a defence either and I am not offering anybody one. I am not saying you were cruel. I am saying it happened. It happened on a Sunday night in a room and it happened to a road and it happened to a boy of about eleven who has a count in his head that nobody has ever written down. And I have not got a word for the other thing, and I have been looking for one since Monday, and I have not found it, and I am not going to make one up, and I would like it understood that I have not found one because there is not one and not because I am slow.**”
 
