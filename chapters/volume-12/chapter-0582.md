@@ -26,7 +26,7 @@ The second set was the top of that Long Set, which is the man of about fifty-one
 
 Nobody thanked him. Nobody argued with him. The woman who is his neighbour and has been his neighbour for nine years stood on the grass and let the whole of it go past without saying one word in her own mouth about it, and about four people on that slope have noticed that she let it go and nine have noticed that she did not say one word in the oldest voice either.
 
-The third set was the four lowest terraces, and it said yes before anybody had finished the question, and the woman of about thirty-one who keeps them was the one who said it, and she is one of five households and the other four are her neighbours and none of the four of them was asked separately and all four of them are in her answer.
+The third set was the four lowest terraces, and it said yes before anybody had finished the question, and the woman of about thirty-one who keeps them was the one who said it, and she is one of about nine households and four of the others are her neighbours and none of the four of them was asked separately and all four of them are in her answer.
 
 “**Yes,**” she said. “**Before you have finished saying it. I have had about nine days to work out what I was going to say and I have said it to my four neighbours and none of the four of them said no and one of them said it was a mad thing and one of them said nothing and one of them said she would rather not and that is three of the four and I am the fifth and I have not asked the four of them to change and I have not asked the four of them whether they would rather not, because if I do that then I have to stand there and watch, and I have watched a person do that in this valley and I am not going to ask it.**”
 

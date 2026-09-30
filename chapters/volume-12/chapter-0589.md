@@ -18,7 +18,7 @@ He barrowed from the second hour to the ninth hour. He is good at it. He carried
 
 Then at the ninth hour the woman of about thirty-eight came down off the high side and stood at the end of about nine yards of lip and did not say anything for a moment, and then she said what she had come up that bank to say, in the oldest voice in that valley, and she heard every word of it arrive in a voice she was given at a table when she was small, and he heard it too, and neither of them said so afterwards.
 
-“**You were wrong about the first one and you have been wrong about it every day since and nobody has told you and I have been waiting about four days to see whether the woman of about thirty-eight would say it and she has not and I have.**”
+“**You were wrong about the first one and you have been wrong about it every day since and nobody has told you and I have been waiting about four days to see whether anybody on this bank would say it to your face and nobody has and I have.**”
 
 Nobody answered that. About nine people were on that bank.
 
