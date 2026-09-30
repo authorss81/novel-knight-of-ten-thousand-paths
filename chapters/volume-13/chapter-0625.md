@@ -1,0 +1,85 @@
+# Chapter 0625
+
+**Hearthmonth the twenty-ninth, YR 320, a Sunday and not a market day, the second hour of the night in a hired room over a saddler's that is not the room over the weigh-house and is not shut on any day of the week, about nine people, nine minutes, and a decision nobody conferred.**
+
+The room over the weigh-house was shut on a Sunday, and the woman of about twenty-nine who keeps it was not in the hired room over the saddler's either, and nobody went to ask her why not, and the room they were in was the one the inquiry sits in when the inquiry sits, and it is a different room with a different door and it is shut on no day of the week at all, and about nine people were in it at the second hour of the night on the twenty-ninth of a month.
+
+Aren Kest was one of the nine and had not asked for it and had sent for nobody. The man of about fifty-eight with a badge was one and had come because a hearing that stands is a thing you stand at. The copyist of about twenty-six was one and had come because there is a counter in that lane and about four hundred and nine parish rolls a month arrive off the roads on whatever day the carts come. A man of about thirty-four with a sheet was one and had the satchel. A man of about forty-seven with a page was one and had the page. A man of about thirty-one from a road office was one and had a schedule and had not been asked to come and had come. A woman of about thirty-four who keeps the key was one and had the key because the key is in the lane while any room is open. A man of about forty who keeps the third road was one and had walked four days again in nine days and would have to walk four days back. And a man of about thirty-nine who keeps a channel by hand was one, and he had come nine miles and had said nothing for the first hour.
+
+He put it on the table in about nine minutes and the nine minutes are worth having exactly, because the room is about nine people and about four of them have said since that they could have stopped it and had nothing to stop it with, and about five have said that they did not understand what they were watching.
+
+Here is the whole of what he said, and he said it standing, and he said it to the table and not to the man of about fifty-eight with a badge, because the badge-man cannot certify anything and had said so himself about a month ago.
+
+“**I have been on the bed of the crossing at the second hour of Friday night and I have seen a stone out of a sill that was laid nineteen years ago with a wedge and a bar inside a month, and I have carried a string for a man on Thursday who laid three courses in lime and would not lay a fourth, and he told me the middle course is the one that goes because nothing on it will fall and nothing under it will hold it, and he told a boy of about seventeen and not me. That is what I have. I have not got a figure for the seventh line and there is nobody in nine counties who will give me one and I have stopped asking. I have got a set of works that will take six and there are seven on it, and the seventh is the only one on it that nobody can be written to.**”
+
+“**Say what you want to say?**” the man of about fifty-eight with a badge said, and he said it in the voice he uses for the hearing standing, and he said it because he has never once in thirty-one years allowed a man to come into a room and not finish.
+
+“**The seventh line comes off the works,**” Aren Kest said.
+
+Nobody said anything for what he afterwards thought was about a second and a half, and in that second and a half every person in that room was in a position to stop it, and the reason none of them did is the whole of what happened that night, and the reason is not that they agreed with him.
+
+The woman of about thirty-four who keeps the key said, “**On whose authority?**”
+
+“**Mine,**” he said.
+
+“**You have none,**” she said, and she was not being cruel, she was a woman of about thirty-four who had said in a lane in a month that nobody had ever asked her which roads were open and she was noticing it now and was not asking anybody anything.
+
+“**I know I have none,**” he said. “**I have no badge and no office and I am not a keeper of anything and nobody in this room or in nine counties can put my name at the top of a piece of paper and make it a direction, and if I say this next then I am a man talking in a room, and I am telling you that now so that none of you can say afterwards that you did not know which of the two it was.**”
+
+“**It is a man talking in a room,**” the copyist of about twenty-six said, and she said it flatly and without any weight in it, and she said it because it is her trade to say what a document does not say and there was no document. “**And I want it written on this table as a thing said and not as a thing done, and I am not going to write it down, because there is nowhere in this room to put it, and I have said that about four times in about a month and I am not going to say it a fifth time tonight. But you have said a thing, and I am the only person in this room who has spent four and a half years making sure that a sentence in a mouth does not become a line in a book, and you have just said a sentence in a mouth.**”
+
+“**What does it do?**” Garvin Slade said. He had been standing by the wall with his hands behind him since the second hour and he had not sat down. “**Say the consequence and not the decision. What happens on Monday?**”
+
+“**Six roads carry what six roads carry,**” Aren Kest said. “**That is the whole of it and it is correct and it is why I have said it. The third has been carrying what six carried because the seventh was on there for nothing, and it is wet again tonight and it will be wet in a fortnight, and the man who keeps it has a number and a name and nineteen years and he will keep standing out there with a bar and a bucket and being the only person in nine counties who is losing. If the seventh comes off, the works has six on it and six is what it will take, and the six that are marked to be held are the six that hold.**”
+
+“**And the seventh,**” Garvin Slade said.
+
+“**And the seventh,**” Aren Kest said.
+
+“**Say it out loud and say what it is and do not say it in a way that lets anybody in this room go home and write it down differently.**”
+
+“**The seventh line is the small road with the lime kiln at the near end and a woman of about sixty at the top of the slope who has held the far end of it for about thirty-one years,**” Aren Kest said, “**and it is a road on the days when two people turn up at the two ends of it. It is not made for about a mile and a half. Nobody has a figure for it. There is a boy of about eleven who holds the count of it in his head and it is not in a book and it is not on a roll and it is not in this drawer and it never will be. If it comes off the works then nobody pays to make its crossings, and there are no crossings made, and it is a road on the days when two people turn up at the two ends of it, and they are two people and one of them is about sixty and the other one is about forty.**”
+
+Nobody in that room said that was wrong and nobody in that room said it was right, and the man of about thirty-four with a sheet wrote two lines and then put the pen down and did not write the third, and the third line was going to be a name and there was nowhere to put a name.
+
+Then the man of about thirty-four with a sheet asked the only question in the room that anybody could act on.
+
+“**Who tells her?**”
+
+“**I do not know,**” Aren Kest said.
+
+“**You do not know,**” the man of about thirty-four with a sheet said. “**You have just taken a road off a set of works four days off in a room with no head over anything, and the whole of what has come out of it is that you do not know who tells the woman who walks it. I have carried directions for about four and a half years. Every one of them had a name at the top of it or a gate to go to. I have never once in my life carried a thing with nowhere to put it.**”
+
+“**Then carry this one,**” the man of about thirty-one from the road office said from the end of the table, and he said it in a clerk's voice and it was the most frightening sentence said in that room in about two months. “**I have a schedule. I have a column and a heading and a number at the top of it and I can enter a line under it at the first hour tomorrow morning and it will be carried to the district and from the district to whoever the district thinks keeps that road, and the district will send a rider. I am telling you that the machinery for telling her exists and that it is four hours of riding and a clerk who does not know her name and will have to find it.**”
+
+“**Do not do that,**” Aren Kest said.
+
+“**Why?**”
+
+“**Because that is a page,**” he said, “**and I have watched one of them shut a road for nine days in six weeks and about nine houses at one end and about nine at the other did not know whether the woman who keeps it was stood down or had gone home for a bad week. A page that tells a woman about her own road is a page that tells a man at the top of it what a road is worth, and there is a man in nine counties who can put a value on a gap and he does not need to know my name to do it. I am not going to build a second one in a room at the second hour of the night on a Sunday.**”
+
+“**So there is no way to tell her,**” the copyist said, and she said it to the table and not to him, and the reason is the volume's own and it is on the page: **the room has a standing of four and a half years that a road may be described only by its own answer, and this room has not asked that woman for anything and is not going to, and the reason is not politeness, and nobody in the room disagreed with the reason and nobody was willing to break the standing to get a rider out of it in nine minutes.**
+
+Then the man of about fifty-eight with a badge said the thing that made the morning after what it was, and he said it to about nine people in a room at the second hour of the night, and he is a man who has never made an accusation in a room in thirty-one years and did not make one then.
+
+“**I am going to say the true thing and I am going to say it once,**” he said. “**Nobody in this room had the power to stop that and every one of you had the standing to try. Those are two different things and I have watched nine counties mix them up for thirty-one years. A thing said here tonight at this table by a man with a limp and a good eye for a bed is a man talking. It is not a direction, it is not a rule, it is not a finding, and it is not going to be in any book in nine counties, and I cannot certify it and I am not going to try. And on Monday morning the six roads will be carrying what six roads carry and the seventh will be carrying nothing and a woman four days of carting away will find out in a market, from a person who is not thinking about her, or she will not find out at all. And there is not one thing that happened tonight that any of us can be blamed for, and I would like the room to sit with that for a minute, because in about four months somebody is going to be praised for it.**”
+
+Nobody said anything for about a minute and the minute happened, and Garvin Slade stood by the wall and did not move, and about four of the nine people understood the whole of it and about five understood a part of it, and the two sets did not overlap, and no one has ever said since which of the two sets any of them was in.
+
+Aren Kest said one more thing and then he sat down, which is the first time he has sat down in front of anybody in about two months.
+
+“**I have not asked to do this,**” he said. “**I want that said. Nobody in nine counties has ever asked me whether I wanted it and nobody is going to get the chance tonight, and I have said in this room a month ago that a man who has been the only person who can see the load-bearing problem in a place has never once been asked whether he wanted it, and I am not going to be asked tonight either. I am going to do it because it is the seventh line and it is the only thing in nine counties that has no figure on it, and if I do not do it then the works will take five of the six that were marked to be held before the year turns, and I would rather be wrong about a road than be the reason six went. I would rather be wrong tonight than be able to say that in a year.**”
+
+The man of about forty-seven with a page said, from the wall, “**That is my sentence.**”
+
+“**It is,**” Aren Kest said. “**And I have never once in my life had to be cruel to close a gap, and I have not been cruel, and I would like somebody in this room to write down the difference and where to send it.**”
+
+“**There is nowhere to send it,**” the copyist of about twenty-six said.
+
+Nobody was thanked. The man of about thirty-four with a sheet wrote down, in his own hand, on a sheet of his own with no head over it, that a road on the seventh line had been taken off the works under an abbey at the second hour of the night on the twenty-ninth of a month, on the word of a man with a limp, in a room with no bench in it, and that it was not a direction and had no head and was not in any book, and he put no number on it, and he said why, and what he said was that a man who has spent a month watching one figure get made out of another figure does not put a number on a thing that has been decided in a room by a man who cannot certify it, and that this was the fourth thing that had gone down that lane in his coat in about six weeks and that three of them had been a number and this one was not a number and was the only one of the four that anybody had ever had to act on.
+
+The room came apart at about the fourth hour. The man of about thirty-nine who keeps a channel by hand left first, and he said on the way out that he had come nine miles for nothing and that the man with the stick had been right about the bed of it, and that he had said so at the time. The man of about forty who keeps the third road left second and had four days to walk and no money for a cart, and about four people walked out of the lane with him to the end of the market and one of them was a woman with a basket who had not been in the room.
+
+**And the cost of that Sunday is a column and it is his, and nine minutes in a room with about nine people in it and a road four days of carting off and about thirty-one years at the top of a slope and about nine crossings that will not be made are not in it and none of them has a price.**
+
+**a sheet of thin paper at thirty-five, a quill at forty, an inkhorn at thirty-three, a cake of ink at two, a book cover at thirty-eight, a bundle cord at twenty-one, a scraper at nineteen, a seal at seven, a roll of linen at twenty-six, and a printed handbill at thirty-one.** Thirty-five, forty, thirty-three, two, thirty-eight, twenty-one, nineteen, seven, twenty-six and thirty-one is two hundred and fifty-two pence. **A mark is forty-eight pence and two hundred and fifty-two pence is five marks and twelve over**, and a hired room over a saddler's, about four hundred paces of lane, one set of works under an abbey four days off, a sill in three courses, a fourth course not laid, a scour about a foot and a half deep, nine crossings open and the weeks a road is shut, a boy of about eleven, a woman of about sixty at the top of a slope, a satchel, a sheet with no head over it, a page with six ruled spaces, and nine counties are thirteen figures of distance and of count and not one of them is a price, and a Sunday, the second hour of the night, the fourth hour, a Tuesday, a Thursday, the first of a month, four days of carting, nine miles, about thirty-one years, two months and about six weeks are eleven figures of time and not one of them goes in at either end of this column. **A woman of about thirty-four who keeps the key and a man of about fifty who lays stone and Aren Kest and a man of about thirty-nine who keeps a channel by hand and a copyist of about twenty-six and a man of about forty-seven with a page and a man of about fifty-eight with a badge and a man of about thirty-four with a sheet and a man of about thirty-one from a road office and a man of about forty who keeps the third road and a woman of about forty who runs a lime kiln and a woman of about sixty who has held the far end of a road for about thirty-one years and a boy of about eleven and a woman of about twenty-nine who keeps a room and was not there are fourteen figures of persons, and the first of them asked the only question anybody could act on and the fifth of them said there is nowhere to put it and the seventh of them said that no one in nine counties can be blamed and that somebody is going to be praised for it in about four months, and the fourteenth of them was not in the room and has not been told and will find out in a market.** Nobody thanked anybody and nobody was thanked and the sheet went into the satchel and down the lane in a coat and was not a number.

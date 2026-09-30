@@ -1,0 +1,69 @@
+# Chapter 0629
+
+**Goatmonth the twenty-fourth, YR 320, a Thursday and a market morning, the second hour in a room over a weigh-house, a woman of about forty-three who has got her count and has come four days to give it to nobody, and the finding that nobody being hurt is not a figure anybody can use.**
+
+Twenty-one days is not long enough for a road to be ruined and is a great deal longer than a room takes to stop asking about one, and on the twenty-fourth of a month the room over the weigh-house asked about it anyway, and it was the man of about thirty-four with a sheet who asked, and he asked in the plainest voice he has, standing at the table, and he put the question the way he puts a question that he already knows the answer to.
+
+“**Three weeks,**” he said. “**I have had no report from anywhere. Not from the district, not from a gate, not from a carter, and I have not been to the road, and I am not going to go to the road. Has anybody here been on the seventh line since the twenty-ninth of a month?**”
+
+Nobody had.
+
+“**Then I want the room to hear me say what that is, and I want the man from the road office to hear it, and I want the man with the page to hear it,**” the man of about thirty-four with a sheet said, “**and it is this. Nobody has been hurt. Nothing has gone late. Nothing has rotted. No wages have gone anywhere, because she is paid in kind and the kind is a season's slack, and the lime is burning and the carting is going and nobody in nine counties has had to do anything about it. And I am not going to stand in this room and call that a bill.**”
+
+“**No,**” the copyist of about twenty-six said, and she said it fast, which she does about four times a year. “**No, and you are the only person in nine counties who could have said it and you should not have, and here is why and I have been sitting with it for three weeks.**”
+
+“**Say it.**”
+
+“**That is not a good report,**” she said. “**That is the absence of a report, and the two are not the same, and in this room they never have been the same. If a road produces no returns then a road can be shut for four years and nothing arrives, and a road that is doing perfectly well produces nothing either, and the two of them look identical in nine counties, and every single thing in this room is built so that a thing that looks identical in nine counties does not get set beside another thing. I made that rule. I have kept it for four years and a half and two of the sheets on it are a lie and I told nine people so about a month ago. And the rule has just cost a road three weeks of anybody knowing anything, and it will go on costing, and the whole of the cost of that is a woman of about forty who was four days of carting away and had nobody to ask.**”
+
+“**But nobody was hurt,**” the man of about thirty-one from the road office said, and it came out of him as a relief, and about nine people in that room heard it and about four of them believed it.
+
+“**You cannot know that,**” the copyist said, “**and I am not saying it to be hard on you. I am saying it because you have a schedule with a column and the column is blank and you are reading the blank as good news, and in about four years somebody will shut a road that produces no returns on a blank in a schedule and put it in a report as a thing that was tried and did not cost anything, and the road will not be there and the report will be true.**”
+
+“**Then what is the cost?**” the badge-man said, and he said it to the room, and he is a man who has asked that question about four things in about two months and has not liked the answer to any of them.
+
+The man of about fifty-eight with a badge waited, and nobody said anything, and then he said it himself, because he has never in thirty-one years let a silence in a room go by without putting something in it.
+
+“**It is not a bill and it is not a hurt, and I have been waiting three weeks for somebody to say the true thing about it and nobody has and I am going to say it now and I am going to say it badly. Nobody being hurt is the answer a man gives when he has not found the cost. It is not a finding. It is a gap with a comfortable shape in it. A man of about forty-seven with a page has been right for the fourth time since the autumn and the shape of the arithmetic is a thing that is easier to carry than a road, and in about four months he is going to be right a fifth time about a different gap, and the fifth time there will be a man in a room saying that the last one cost nothing.**”
+
+“**It did not cost nothing,**” the copyist said. “**It cost her the only thing she has, which is not being asked, and that is not a figure and it is not on anybody's page and it is the only cost I have been able to find in three weeks, and I have been looking for a better one because a better one would have gone in a column.**”
+
+Then a woman of about forty-three came up the outside stair, and she had a bundle and she had walked, and she said before she had said anything else that her line is the fifth and that nobody was to make anything of her being here.
+
+“**My road stood aside,**” she said. “**On the eighteenth of a month in the autumn, at the low end of a made road, at a gate, in front of about nine people. And I said the count was to be taken first by the people who walk it, on the ground, and not at a gate, before my line was settled. And the man with the badge could not grant it and I was not asking him to, because there is no head in nine counties that can grant it. And the road's own people have taken it.**”
+
+Nobody said anything. About four of the nine people in that room had been at that gate and about five had not, and the two sets did not overlap, and the man of about fifty-eight with a badge had been at that gate and had said nothing for half an hour.
+
+“**Say the count,**” the man of about thirty-four with a sheet said, and he said it quickly and in the voice of a man doing a job.
+
+“**No,**” she said. “**And that is the whole of what I have come to say and it has taken me four days to walk it and I am going to say it once and then I am going to sit down, because you are going to ask me three times and I am going to say no three times and we can have that in the room instead of in the lane.**”
+
+“**I would not have asked three times,**” he said.
+
+“**You would have asked once and the second one would have been in a letter,**” she said, “**and the letter would have had something at the top of it.**”
+
+She sat down.
+
+“**It is ours,**” she said, “**and it is the crossings that are open and the weeks the road is shut, and that has never once been a number of days in anybody's mouth and it is not going to start now in this room, and it is not going into a drawer and it is not going on a schedule and it is not going into a column, and I have said that twice at a gate in front of people and I am saying it a third time in a room and then I am not going to say it again to anybody in nine counties. If you want it you will have to come and walk it.**”
+
+“**Then what did you come for?**” the copyist said.
+
+“**To say that it was taken and that nothing came of it,**” Hester Vane said, and it was the first time anybody in nine counties had heard her name said by anybody but herself. “**That is all. A road asked to be counted and it was counted and nothing happened, and I am aware that that is the least interesting sentence anybody has said in this room in about four and a half years, and I have said it anyway, because in about four months somebody is going to shut a road and they are going to be able to point at the eighteenth of a month and say that it is a thing that has been done before.**”
+
+“**It is not a thing that has been done before,**” the woman of about fifty said, from the back of the room, and she had come in late and nobody had seen her come, and she had said the sentence in about four seconds and it was the third time she had said a version of it and she did not soften it for anybody.
+
+“**I am not asking anybody to cite mine,**” Hester Vane said to her, and the two of them looked at each other for a moment in the middle of a room with about nine people in it, and then Hester Vane said, to the room and not to the copyist and not to the woman of about fifty: “**And nobody is to say that my road was shut, because it was not. It stood aside. Those are not the same and I have said that at a gate in front of about nine people and I am saying it here and I would like the copyist to notice that a room is the second worst place in nine counties to say it and a gate is the first.**”
+
+Nobody said the two roads were the same road and nobody asked, and the fact that nobody asked was noted afterwards by about four people and not by about five, and the woman of about twenty-nine who keeps the room was in the room the whole time and came in at the second hour and did not go out, and Aren Kest was in the lane the whole time and nobody in the room asked why, and the two of them were not in a room together with a third person in it at any point in a month and nothing between them was described in a document.
+
+Then the badge-man said the last thing of that morning and it is the thing Block 0004 stands on, and he said it to about nine people standing in a room with the door open.
+
+“**It has happened three times,**” he said. “**The first was a culvert at the gate of this town in a month past, where a man with a limp was the only person who could see a middle course that had gone, and he said it out loud twice to two people and neither of them was the road office. The second was at a crossing under an abbey on the twentieth of a month, and he was the only person there at the second hour of the night. The third was in a room over a saddler's nine days ago, and this time he acted on it, and this is the first of the three in thirty-one years that anybody has done anything about, and in the other two the man was right and nobody was harmed and nothing came of it at all.**”
+
+“**Three,**” the man of about thirty-four with a sheet said, and he wrote it on his own sheet with no head over it and it went down the lane in his coat in a satchel, and it was the fourth thing that had gone down that lane in about six weeks and it was not a number of anything at all, it was three times that a man had been the only one who could see a thing, and the man of about thirty-four with a sheet said so when the copyist asked him why he had written it in words.
+
+“**Because it is not a measurement,**” he said, “**and I have spent a month watching one figure get made out of another figure, and if I had written three in a column beside something else you would all have had a number to use by Friday.**”
+
+**And the cost of that Thursday is a column and it is the copyist's, and three weeks of nobody being able to say whether a road is there and a count that was taken and not given and a name said once in a room are not in it and none of them has a price.**
+
+**a hand lantern at one, a wick at five, a tinderbox at twenty-seven, a tarred rope at twenty-nine, a hand axe at thirty-one, a wedge at thirty-three, a bar of iron at thirty-five, a chalk line at thirty-seven, a bucket of lime water at thirty-nine, a sack of sand at forty, and a hurdle at forty-one.** One, five, twenty-seven, twenty-nine, thirty-one, thirty-three, thirty-five, thirty-seven, thirty-nine, forty and forty-one is three hundred and eighteen pence. **A mark is forty-eight pence and three hundred and eighteen pence is six marks and thirty over**, and a room over a weigh-house, three series and none of them made out of another, about nine hundred sheets a month, about a hundred and four in one band, about four hundred and nine parish rolls a month, a register of eight questions, a day-book of nine entries, a fourth head ruled and empty, a page with six ruled spaces with three in them marked, a set of works under an abbey four days off, a schedule with a blank column in it, a small road and a road on the fifth line that are not the same road, a lime kiln, a bundle carried four days on a woman's back, about four hundred paces of lane and nine counties are sixteen figures of distance and of count and not one of them is a price, and a Thursday, the second hour, the second hour of the night, the eighteenth of a month in the autumn, the twentieth of a month, the twenty-ninth of a month, a Sunday, a month past, three weeks, four days of carting, thirty-one years, two years, four years and a half, and about four months are fourteen figures of time and not one of them goes in at either end of this column. **A copyist of about twenty-six and a man of about thirty-four with a sheet and a man of about fifty-eight with a badge and a man of about thirty-one from a road office and a woman of about twenty-nine who keeps the room and a woman of about fifty who keeps a road nineteen years and Hester Vane and a woman of about forty who runs a lime kiln and a man of about forty-seven with a page and a man of about fifty who lays stone and a man of about forty who keeps the third road and about nine people who came up the stair and a woman of about sixty at the top of a slope and a boy of about eleven who holds a count and a man with a limp who was in the lane are fifteen figures of persons, and the seventh of them said her name once and gave no count, and the second of them wrote three in words so that nobody could put it in a column, and the fifteenth of them has now been the only person who could see a thing three times running and has been asked by nobody whether he wanted it, and the fifth of them has not come down to a lane on three market mornings and has not said so and nobody has said it for her.** Nobody thanked anybody and nobody was thanked and the bundle went down the lane on a woman's back and nothing went down the lane in a coat.

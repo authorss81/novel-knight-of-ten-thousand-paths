@@ -1,0 +1,55 @@
+# Chapter 0627
+
+**Goatmonth the first, YR 320, a Tuesday and the first of a month and not a market day, the second hour at the counter under the weigh-house, a man of about forty-seven who came on foot because he said he would, and the first of a month on which a hearing stands and nothing else does.**
+
+The man of about fifty-eight with a badge came down the lane at the first hour on the first of a month and stopped in the street and said the thing he says on the first of every month, and about nine people heard it and the room over the weigh-house was shut and nobody went up the outside stair.
+
+“**The hearing stands,**” he said. “**It has no bench in it and it sentences nobody to anything and it is not a court, and there is no stair open this morning, and the reason I am saying it in the street and not in there is that there is no there this morning, and if I said it in a room it would sound like a thing a room does instead of a thing a man says out loud in a lane about nine times a year.**”
+
+Nobody wrote it down and a man at the back wrote part of it down.
+
+Then the man of about forty-seven came up the lane on foot at the second hour, and he had said in the autumn that he would come on the first of a month, and he had come on the first of a month in a month past, and he came on the first of a month again, and he was not late, and he was not early, and about four people at that counter noticed that a man keeps a date with a town that has not given him anything.
+
+He put the page on the boards of the counter, and the page had been round nine counties and back, and it stood at three spaces with a mark in them and three spaces with nothing at all in them.
+
+“**I have come to be told what the six are doing,**” he said, “**and I am going to be told and I am not going to be thanked for it, and I have made my peace with that in a lane about a month ago and I would like everybody here to notice that I have not come back to argue with anybody.**”
+
+The man of about thirty-four with a sheet said the thing, and it was short and it was not a boast.
+
+“**The works has six on it,**” he said, “**and it will take six, and it took six before anybody in this county was born, and the six that were marked to be held are holding. The third has not been wet since the twenty-second. The man who keeps it has a number and a name and nineteen years and he is not standing out there with a bar any more, and he told a carter so himself and the carter told me so and the carter did not want to be involved.**”
+
+Nobody said anything, and the man of about forty-seven with a page looked at the page on the boards for a while, and then he said the thing that is the whole of what he came for.
+
+“**Then my arithmetic is paid,**” he said, “**and I want everybody in this lane to understand what has been paid and what has not. Six roads are open that would not have been open. That is what I said would happen and it has happened and I was right about the number and I was wrong about the order and I have said both of those out loud in this lane before. A man is being paid in a way he did not expect and I am telling you that I have noticed and I am not going to enjoy it.**”
+
+“**Have you got a figure for the seventh?**” the copyist of about twenty-six said, and she asked it flatly and it was the first time in about a month that anybody in that lane had asked him a question and then waited for the answer.
+
+“**No,**” Garvin Slade said. “**And I have begun to understand that not having one is not the same as having nothing, and that is a thing I have got from this room and not from the arithmetic, and I am not going to pretend it does me no good.**”
+
+“**You have got a closure,**” the man of about thirty-four with a sheet said. “**On Sunday night at the second hour, in a room over a saddler's, in about nine minutes, on the word of a man with a limp, and there is no sheet for it, and there is no head over it, and it is not in any book in nine counties, and it is not in a district schedule because a road office clerk was told at two in the morning not to use one. You have got a fact and you have got nothing you can put on a table.**”
+
+“**Then I have got the answer to the only question I have been asking anybody for two months,**” Garvin Slade said, “**and it came in a room and not on a page, and nobody in nine counties can hand it to anybody else, and I am not going to be able to show it to a man in four months when he asks me how I know. I am going to have to say a man told me in a room, and a man who says a man told him in a room is a man with a story.**”
+
+“**That is the correct position and it is the whole of the block,**” the man of about fifty-eight with a badge said, to about nine people at a counter on the first of a month, “**and I am the only man in nine counties who can say it, because I have been saying the version of it since the ninth day of a month and nobody has taken it down. I said then, and I have said it in this lane twice since, that a rule needs a head and this room has none and the district has none and neither has nine counties. I have never once had it be so useful to say as it is this morning, and it is worth exactly nothing, and the whole of the difference between this morning and the ninth of a month is that a man has now done a thing instead of a rule having been found correct.**”
+
+Nobody thanked him, and about four of the nine people at that counter said afterwards that a rule with a head would have stopped it and about five said that a rule with a head would have made it legal, and the two sets did not overlap, and no one has ever said which of them anybody was in.
+
+Then the copyist of about twenty-six said the part that was hers, and she said it to the page and not to the man.
+
+“**This is going round a second time,**” she said. “**It will be carried out again in a month or two and I have no power in nine counties to stop it and I have said so. And when it comes back it will have some more in the spaces and some more empty, and the ones that are empty will not be refusals, and by then nobody will be able to tell that either. And I want that said at a counter on the first of a month by the person who keeps the three series apart, because a blank in a page is a thing that gets argued with, and this is the first time in about two months that I have wanted something to be argued with and I have not got a place to put it.**”
+
+“**The register,**” the woman of about twenty-nine who keeps the room said, from the door. She had not come down and she was not going to come down and about four people noticed and about five did not.
+
+“**The register is at eight and it is shut,**” the copyist said, “**and it goes in on a market morning and the next one is in about four days and it is a question and not a finding, and nobody is going to put a finding in it, and I have not got one.**”
+
+“**You have got the ninth one,**” the man of about thirty-four with a sheet said. “**I have been writing one thing down for two months and it is not about roads. In about four and a half years nothing in that room has ever depended on anybody being in it except three mornings, and two of them were the mornings a page came into the county, and the third one was Sunday night at the second hour in a room over a saddler's that is not that room. And in every one of the three the man who was wanted was a man with a limp, and he was never sent, and nobody has ever asked him whether he would come.**”
+
+Nobody said he was wrong and nobody thanked him for it, and the man of about fifty-eight with a badge said that it was true and that it was the second time in a month somebody had said it in his hearing and that he had no answer to it and that a man with no answer to it should say so rather than produce one, and he produced none.
+
+At about the fourth hour the counter shut and the man of about forty-seven with a page went down the lane with the page inside his coat, and about four people said afterwards that he had been right and had been given nothing, and about five said afterwards that he had been wrong about the order and had been given nothing for that too, and the two sets did not overlap.
+
+Aren Kest was in the lane and not at the counter, on the far side, with his stick, about four hundred paces short of the boards, and about four people saw him and about five did not, and nobody said a word to him, and the whole of what he did on the first of a month was stand there.
+
+**And the cost of that Tuesday is a column and it is the page's, and six roads open that would not have been open and a road four days of carting off that is carrying nothing and an answer that came in a room and cannot be shown to anybody are not in it and none of them has a price.**
+
+**a barrow wheel at thirty, a shovel at thirty-two, a hand pick at twenty-one, a sieve at six, a hod at forty-one, a tub of lime at thirty-seven, a sack of sand at eleven, a bucket at twenty-seven, a lantern at thirty-four, and a trestle at forty.** Thirty, thirty-two, twenty-one, six, forty-one, thirty-seven, eleven, twenty-seven, thirty-four and forty is two hundred and seventy-nine pence. **A mark is forty-eight pence and two hundred and seventy-nine pence is five marks and thirty-nine over**, and a counter under a weigh-house, about four hundred paces of lane, one set of works under an abbey four days off, six roads on the works, seven lines on a page, six ruled spaces, three of them with a mark and three of them with nothing in them, a third road that is not wet, a small road that is carrying nothing, nine crossings open and the weeks a road is shut, a register of eight questions, a day-book of nine entries, a drawer about eleven inches deep, and nine counties are fourteen figures of distance and of count and not one of them is a price, and a Tuesday, the first of a month, the first hour, the second hour, the fourth hour, a market morning in about four days, a Sunday, the second hour of the night, two months, four and a half years and a month or two are eleven figures of time and not one of them goes in at either end of this column. **A man of about forty-seven with a page and a woman of about twenty-nine who keeps a room and a copyist of about twenty-six and a carter who told the man with the sheet a thing, not wanting to be involved, and a man of about thirty-four with a sheet and a man of about fifty-eight with a badge and a man of about forty who keeps the third road who is not wet and a woman of about forty who runs a lime kiln four days of carting away and a woman of about sixty who has held the far end of a road for about thirty-one years and Aren Kest and about nine people at a counter are eleven figures of persons, and the first of them has been paid and has not been thanked and has said he will not enjoy it, and the tenth of them stood about four hundred paces short of the boards for about an hour and nobody spoke to him and about four people saw and about five did not.** Nobody thanked anybody and nobody was thanked and the page went down the lane inside a coat.
