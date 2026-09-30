@@ -4,7 +4,7 @@
 
 He had been asleep on the boards and he woke on the boards and the valley gave him a sitting and an hour inside a sitting and he could put himself in neither of them.
 
-**Nobody in that valley was asleep at the second hour and nobody came and looked at him, and there is no way in this book to say that a man was moved, because nothing was moved and nothing came and the boards were where the boards were and his stick was against the wall where he had put it.**
+**Nobody in that valley was asleep at the second hour and nobody came and looked at him, and there is no way to say that a man was moved, because nothing was moved and nothing came and the boards were where the boards were and his stick was against the wall where he had put it.**
 
 The woman of about fifty-eight turning the drying cloths at the press-house asked him one question and it was the only one anybody asked him about the night.
 

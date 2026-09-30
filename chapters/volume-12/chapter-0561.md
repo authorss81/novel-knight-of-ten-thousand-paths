@@ -72,7 +72,7 @@ Then the pot went down onto the boards of the drying floor at the foot of the sl
 
 Nobody thanked her. The man of about fifty drove back down the lane with the empty load and did not come up it again that day, and the boy of about nineteen slept on the boards of the drying floor and was paid in the morning and went down the lane before the sun was up, and nobody thanked the boy.
 
-**And then a woman of about seventy came in from the Low Set with a lamp and looked at the leaf, because the woman of about thirty-eight had taken it out of her coat to dry it, and she said one thing about it and then went home, and what she said is the whole of what came home on the leaf and it is four words.**
+**And then a woman of about seventy came in from the Low Set with a lamp and looked at the leaf, because the woman of about thirty-eight had taken it out of her coat to dry it, and she said one thing about it and then went home, and what she said is the whole of what came home on the leaf.**
 
 “**That is a leaf with four divisions on it,**” she said, “**and not one of them is a head, and the fourth one is for a person, and the mark is written under it and not in it, and I have been in this valley for about seventy years and I have never once seen anybody write a mark under the fourth division of anything.**”
 

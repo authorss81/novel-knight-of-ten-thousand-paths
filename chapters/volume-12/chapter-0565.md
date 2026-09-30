@@ -6,7 +6,7 @@ The four lines under the fourth head are these, and nobody in that valley has re
 
 *Nobody in this valley has been asked anything for about twenty-two years. I am asking on my own account. The name I use for the person who may speak for a road here is a person and not an office. I have not been made one.*
 
-**And that is not a name for a road and it is not a promise of peace and it is not a list. There is no name in it. It is a woman saying out loud that a place has not asked anybody anything for twenty-two years, and it is the first time in this book that a road has answered instead of being described.**
+**And that is not a name for a road and it is not a promise of peace and it is not a list. There is no name in it. It is a woman saying out loud that a place has not asked anybody anything for twenty-two years, and a road in nine counties has never answered instead of being described before this and this one has.**
 
 The three heads above the fourth are filled and they were filled on a Saturday in a market town four days' walk off and they are in the words of this valley and not in the words of a letter, and the fourth of them is still ruled and still empty, and the four lines are under it and not in it, and a question under a head is not an answer to it and does not go in it.
 
