@@ -22,7 +22,7 @@ The man of about forty-seven said the thing that the other three clauses cannot 
 
 “**Then we will write a rule about roads that can be written to and we will hand it out in nine hands in a market town of about two thousand people, and about four months from now a man will shut a road that nobody can write to and he will break every clause of it and he will break them lawfully, and he will not have heard of any of us. That is what a rule that cannot reach a road is. It is not a small hole. It is the shape of the thing.**”
 
-“**It is what you told us on the fourth day,**” the woman of about thirty-six said, **“**and you were right then as well.**”
+“**It is what you told us on the fourth day,**” the woman of about thirty-six said, “**and you were right then as well.**”
 
 “**I have been right five times,**” the man of about forty-seven said, “**and I would like somebody to be allowed to be angry with me about it in about four months rather than told about it now. Write the rule. It is worth more than nothing and it is not worth what we wanted.**”
 
