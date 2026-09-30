@@ -22,7 +22,7 @@ She said it in her own voice and with a spade in her hand, and it is the same vo
 
 “**I am here now,**” she said, “**and I have said the thing and it is out, and it is out in the sun on a slope with a boy in earshot and no wall on this side, and I did not want to say it with a wall.**”
 
-Then she said the thing that is the question of this book, and she said it in a working voice, and she was not looking at him when she said it, and she was shovelling stone into the barrow while she said it.
+Then she said the thing that all of it has been for, and she said it in a working voice, and she was not looking at him when she said it, and she was shovelling stone into the barrow while she said it.
 
 “**Do you want it.**”
 

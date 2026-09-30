@@ -12,7 +12,7 @@ Then the man of about thirty-four with a sheet put the page on the table, and it
 
 Three of the six spaces had nothing at all in them. Two of them had a mark in them in a hand. **The sixth space had a mark in it, and under the sixth line, ruled long afterwards in a different hand and in a small neat column, there were nineteen columns of figures, and the last one had a nine taken out of it in a third hand.** The seventh line was bare and was not struck out.
 
-“**Three blanks and three marks,**” the man of about thirty-four with a sheet said, “**and about four of those three blanks are men who read it and would not, and one of them is a line the page has not reached, and the page cannot tell me which is which, and neither can anybody else, and I have been in four counties with it and I have seen about nine keepers and about four of them asked me what a blank was supposed to mean, and I said it meant they had not put a mark in, and that is a true answer and it is not a complete one.**”
+“**Three blanks and three marks,**” the man of about thirty-four with a sheet said, “**and two of those three blanks are men who read it and would not, and one of them is a line the page has not reached, and the page cannot tell me which is which, and neither can anybody else, and I have been in four counties with it and I have seen about nine keepers and about four of them asked me what a blank was supposed to mean, and I said it meant they had not put a mark in, and that is a true answer and it is not a complete one.**”
 
 “**And your figure,**” the woman of about twenty-nine who keeps the room said, from the doorway, because she had come in at the seventh hour and had not been in the room earlier and nobody had seen her come.
 
