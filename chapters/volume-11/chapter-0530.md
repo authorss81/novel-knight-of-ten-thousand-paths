@@ -12,7 +12,7 @@ Then the man of about fifty-eight said the thing that had been in the room since
 
 Nobody in that room said a name. The man of about thirty-four with a sheet said one sentence and it was about the county and not about the man.
 
-“**A county is not a man,**” he said, “**and he was in a county, and there are nine of them, and there is no head in any of the nine for a man inside a county, and that is not an excuse, it is the shape of the thing, and I have said it in this room twice before, in Embermonth and in Wolfmonth, and the woman of about thirty-four has said it in this room twice and is not the same man and is not in the wrong, and I would like it minuted that this is the fourth time and not the first.**”
+“**A county is not a man,**” he said, “**and he was in a county, and there are nine of them, and there is no head in any of the nine for a man inside a county, and that is not an excuse, it is the shape of the thing, and I have said it in this room once before, in Embermonth, and the woman of about thirty-four has said it in this room twice and is not the same man and is not in the wrong, and I would like it minuted that this is the fourth time and not the first.**”
 
 “**It is minuted,**” the clerk of about twenty-two said, and wrote it, and it is the only thing the clerk of about twenty-two entered in the room's book in about nine days.
 
