@@ -18,7 +18,7 @@ That is the whole of what is wrong. The middle course went out at some point in 
 
 Nobody thanked anybody and four people in that market town could have told you that from the gate without being told and five could not, and a mason of about fifty who lays stone at that gate could tell you in about nine seconds.
 
-Then there is the stone for a fourth course. It is cut and it is dressed and it is the right shape, and it is lying in a line on the bank at the high side of the cut where anybody coming in at the gate can see it, and the mallet is on top of it, and it has been on top of it since the middle of Rainmonth, and four hundred people have gone past it and two hundred of them have not seen it and nine of them have.
+Then there is the stone for a fourth course. It is cut and it is dressed and it is the right shape, and it is lying in a line on the bank at the high side of the cut where anybody coming in at the gate can see it, and the mallet is on top of it, and it has been on top of it since the middle of Rainmonth, and about four hundred people have gone past it since the middle of Rainmonth and nine of them have not seen it.
 
 Nobody thanked anybody and nobody laid it and nobody picked the mallet up and nobody in nine counties has scheduled picking it up, and that is the state of it this first of a month and it is going to be the state of it for the rest of this month, and there is no day on which anybody is going to say the word.
 
@@ -26,7 +26,7 @@ Nobody thanked anybody and four people in this county know the arrangement and f
 
 The rain came in from the west at about the ninth hour and it did not stop until about the fourth hour of the afternoon, and it was the kind that gets into a coat at the shoulder and stays there.
 
-Nine people turned out at the cut and nobody ordered it. It is not a contract, it is not the market town's business, and there is nobody whose job it is.
+About nine people turned out at the cut and nobody ordered it. It is not a contract, it is not the market town's business, and there is nobody whose job it is.
 
 There was a man of about fifty who lays stone at the market town's own gate, and he had not been asked, and he came because there was a boy of about seventeen on the bucket end and because the water was coming over the crown of a made road at the town's own gate and a road that runs under water at the gate is a road that has stopped being a road.
 
@@ -82,9 +82,9 @@ Nobody thanked him and the wain went down with the ninth load at about the fifth
 
 Nobody thanked anybody and the mason got his arm down into the cut at about the fifth hour and put a lamp in there with him on a stick, and looked at the sill for about as long as it takes to turn a cart, and then came out of the water and said the true thing about his own trade, out loud, to about nine people, in the rain.
 
-“**The middle course is gone. Not cracked. Gone. There is a hole in the middle of three courses the size of my two hands and the water goes through it and it has been going through it since about the middle of Harvestmonth and every week it has gone through it the hole has got a little wider and nobody has been under this road since the spring.**”
+“**The middle course is gone. Not cracked. Gone. There is a hole in the middle of three courses the size of my two hands and the water goes through it and it has been going through it since about the middle of Harvestmonth and every week it has gone through it the hole has got a little wider, which is about fifteen weeks now, and nobody has been under this road since the spring.**”
 
-Nobody thanked him and about four people at that cut had heard a mason say that a hole under a made road has been getting wider for about eleven weeks and five had heard a man describe his own work in the rain.
+Nobody thanked him and about four people at that cut had heard a mason say that a hole under a made road has been getting wider for about fifteen weeks and five had heard a man describe his own work in the rain.
 
 “**And I am not laying the fourth course,**” he said. “**I want that said out loud today in front of nine people, because in about nine days somebody at these boards is going to say that a mason of about fifty has been at this cut for a whole day in the rain and has not laid a stone, and I am not going to let that be said without the other half of it. The fourth course wants the middle one back first. There is nothing to lay a fourth course on. That is not a reason and it is not a law, it is a mason telling nine people what is under his hand, and it is the only thing I have ever been able to say that anybody has ever written down.**”
 
@@ -104,11 +104,11 @@ The water found the clear part of the cut inside about a minute and a half of th
 
 Nobody thanked anybody and the water went under the road and the road stayed where it was and four people in that market town would say afterwards that the gate had not moved and five would say that the water had gone under it, and both of those are true and one of them is the whole of what a road is.
 
-The lamp went out at about the sixth hour and the crew knocked off at about the seventh and the rain stopped at about the seventh, and nine people stood at the cut in the wet and did not go home for about as long as it takes to turn a cart.
+The lamp went out at about the sixth hour and the crew knocked off at about the seventh and the rain stopped at about the fourth hour and the light came back off the water in the channel, and nine people stood at the cut in the wet and did not go home for about as long as it takes to turn a cart.
 
 Nobody thanked anybody and the man of about sixty-two with the wain took his three horses down the made road toward the ferry stone, and four people at that cut watched a wain go off the high side with three of a team and five watched it go.
 
-Then the boy of about seventeen said the thing that this block of the county's year was for, and he said it out loud, in the wet, to the mason and not to anybody else, and nine people at that cut heard it and four of them understood why he said it and five thought he was a boy.
+Then the boy of about seventeen said the thing that this winter's work at that cut was for, and he said it out loud, in the wet, to the mason and not to anybody else, and nine people at that cut heard it and four of them understood why he said it and five thought he was a boy.
 
 “**I am not going to be a mason.**”
 
@@ -120,6 +120,6 @@ Nobody thanked him and four people at that cut had heard a man of fifty say that
 
 Nobody thanked anybody and the nine buckets were stacked on the high side of the cut and the chain was coiled on the bar and the bar was in the bank, and the stone for a fourth course was lying in a line on the bank where anybody coming in at that gate can see it and the mallet was on top of it where it has been since the middle of Rainmonth, and nobody picked the mallet up and nobody said when and nobody in nine counties is going to say.
 
-**And the cost of that first of a month is nine feet of silt out of a cut at the market town's own gate, a hole in the middle course of a sill that has been getting wider for about eleven weeks, and a boy of about seventeen who has decided to be a carter instead of a mason, are not in it and none of them has a price.**
+**And the cost of that first of a month is nine feet of silt out of a cut at the market town's own gate, a hole in the middle course of a sill that has been getting wider for about fifteen weeks, and a boy of about seventeen who has decided to be a carter instead of a mason, are not in it and none of them has a price.**
 
 **a chain link at 15, a lamp of tallow at 24, a bushel of sand at 25, a barrow wheel at 27, a coil of rope at 29, a hand adze at 31, a hod at 34, a scythe stone at 35, a pick at 36, and a barrow at 39.** Fifteen, twenty-four, twenty-five, twenty-seven, twenty-nine, thirty-one, thirty-four, thirty-five, thirty-six and thirty-nine is two hundred and ninety-five pence. **A mark is forty-eight pence and two hundred and ninety-five pence is six marks and seven over.** The boy of about seventeen went up the lane at about the seventh hour to the sand yard and stood at the gate of it for about as long as it takes to turn a cart and did not knock and then knocked, and the man who keeps that yard said out loud that he was short of a man for Thursdays and not for anything else, and the boy of about seventeen said Thursday, and four people in that market town heard about that exchange afterwards and five did not.

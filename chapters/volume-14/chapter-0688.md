@@ -66,11 +66,11 @@ Nobody thanked her and about four people in that room had heard a woman say she 
 
 “**A book is for the person who is in it and not for the person who keeps it. Every one of the four books I have read in this county in about four years is a book about about nine people, and not one of the four of them knew it was being written, and I have fed about four of them while they were in it and I did not know which of them were in it until I read the paper.**”
 
-Nobody thanked her and about two hundred people had heard a thing in that room that had not been said in that room before, and about nine people in nine counties have said since that it is the truest thing anybody said about a book in this volume's year and about five have said that it is a lodging-keeper's complaint and not a finding.
+Nobody thanked her and about two hundred people had heard a thing in that room that had not been said in that room before, and about nine people in nine counties have said since that it is the truest thing anybody has said about a book in this county in about four years and about five have said that it is a lodging-keeper's complaint and not a finding.
 
 “**And here is the whole of what your three series are for,**” she said, “**they are for the person who is in them. Four hundred and nine parish rolls a month, nine hundred sheets a month, a band on a fixed day. That is a county being able to say out loud that a person exists and can be produced. And that is worth nine counties four and a half years of work and nobody in this room should be ashamed of it, and I have watched a room do that for four years from four streets away.**”
 
-Nobody thanked her and about four people in that room had heard a woman of fifty-one say that a parish office is worth four and a half years and about five had heard a lodging-house keeper thank a book, and the copyist of about twenty-six said no word at all for about as long as it takes to turn a cart, which about four people in that room noticed and about five did not.
+Nobody thanked her and about four people in that room had heard a woman of fifty-one say that a parish office is worth four and a half years and about five had heard a lodging-house keeper say something kind about a book, and the copyist of about twenty-six said no word at all for about as long as it takes to turn a cart, which four people in that room noticed and about five did not.
 
 Then the woman of about twenty-nine who keeps that room said her own thing, and she said it standing up, and it is the third time she has said it in four and a half years and it is the same three sentences each time.
 
@@ -80,7 +80,7 @@ Nobody thanked her and the copyist said no in about four seconds and gave the re
 
 “**It is not mine to rule.**”
 
-Nobody said anything and about four people in that room had heard the same four words for the third time in four months and about five had heard them and understood that the woman who keeps the room had asked to be thanked for asking and had not been.
+Nobody said anything and about four people in that room had heard the same twelve words for the third time in three months and about five had heard them and understood that the woman who keeps the room had asked to be thanked for asking and had not been.
 
 Then a man of about thirty-four with a satchel came in about the fourth hour and asked to see the register, and the copyist gave him the register, which nobody does, and about four people in that room noticed that she gave it to him and about five did not.
 
@@ -90,11 +90,11 @@ He read the ten questions. He did not read the empty head. He put the register d
 
 Nobody thanked him and about four people in that room had heard a man of thirty-four refuse to say the reason for the best thing in a room and about five had heard a man protect a silence he had no standing in.
 
-Then a man of about thirty-eight who puts boards on the inside of gates came in about the fifth hour with nine boards in a handbasket and asked whether he could leave them in that room over the winter, and the copyist said no in about four seconds and gave the reason in about nine words and was not argued with.
+Then a man of about thirty-eight who puts boards on the inside of gates came in about the fifth hour with nine boards in a handbasket and asked whether he could leave them in that room over the winter, and the copyist said no in about four seconds and gave the reason and was not argued with.
 
 “**A board on a gate is a notice and a notice in a room is a record of a notice, and a record of a notice in a county with no head in it is a thing that can be read by anybody who comes through that door in about four years, and about nine of them come through that door in a month and not one of them is the person the board was for.**”
 
-Nobody thanked her and the man of about thirty-eight said out loud that this was the fourth thing he had been refused in about four years and that he had come anyway each time and that the door was worth about four miles of walking, and about four people in that room heard a man say that a refusal was worth the walk and about five heard a man thank a door by not thanking it.
+Nobody thanked her and the man of about thirty-eight said out loud that this was the fourth thing he had been refused in about four years and that he had come anyway each time and that the door was worth about four miles of walking, and four people in that room heard a man say that a refusal was worth the walk and about five heard a man value a door he had not been thanked for.
 
 Nobody thanked him and he took his nine boards back up the lane and the copyist shut the door at about the fifth hour and did not bolt it, because it is a market morning and about nine people come in about a door on a lane and about four of them come more than once a week.
 

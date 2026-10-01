@@ -64,11 +64,11 @@ Nobody thanked him for shutting the door and he looked at the register on the ta
 
 Nobody thanked him and four people in that room had heard the whole of it and about five would have heard a man complaining about a book.
 
-Then the copyist refused him, and she refused him with perfect standing, and she refused him in about nine words, and about nine people in nine counties have said since that it was the best thing anybody in this county has said in about a month.
+Then the copyist refused him, and she refused him with perfect standing, and she refused him in sixteen words, and about nine people in nine counties have said since that it was the best thing anybody in this county has said in about a month.
 
 “**It will be a question because I wrote a question. That is what a question is.**”
 
-Nobody said anything and four people in that room had heard a woman refuse a man of fifty-eight with nine words and about five had heard a woman say that a question is a question.
+Nobody said anything and four people in that room had heard a woman refuse a man of fifty-eight with sixteen words and about five had heard a woman say that a question is a question.
 
 “**And I am going to say the rest of it out loud, because you came and because you asked,**” she said. “**A question in that book is a question because I have said so and because nobody in nine counties can take it out of there. If somebody in about four years reads ten questions and an empty head and decides that the empty head means a finding, then somebody in about four years has decided that about four and a half years of this county was a county that put down what it knew. And they will have decided it about a book that never once wrote down a thing it did not know, and that is a thing I can live with, and it is not a thing I can prevent by writing less.**”
 
@@ -82,13 +82,13 @@ Nobody thanked him and four people in that room had heard a man of fifty-eight a
 
 “**It stays,**” the copyist said, “**for four and a half years, which is how long the other nine have stayed, and then somebody answers it, usually wrongly, in a market street, and about four people understand the answer and about five repeat it, and in about four years it is in a book in a room four hundred miles off with a head over it, and nobody ever comes back and checks it against the question.**”
 
-Nobody said anything and four people in that room had heard a keeper of records describe the whole of her own work in nine words and about five had heard a woman be exact.
+Nobody said anything and four people in that room had heard a keeper of records describe the whole of her own work and about five had heard a woman be exact.
 
-Then the badge-man said the thing that is true about it and he said it in nine words and he did not add to it and that is the whole of what he did in that room on that Sunday.
+Then the badge-man said the thing that is true about it and he said it and he did not add to it and that is the whole of what he did in that room on that Sunday.
 
-“**Then it was a kindness and it was to you.**”
+“**Then there is a thing in this county that is older than that head and I am not going to say what it is, and about nine people in nine counties already know and about five do not, and that is the whole of what I came for.**”
 
-Nobody thanked him and about four people in that room looked at the table and about five looked at the door, and nobody in nine counties has been able to establish whether he was talking about the tenth question or about the twenty-one days, and he has not been asked, and about four people in nine counties have said he was talking about the tenth question and about five have said he was talking about the twenty-one days, and neither of those two sets has ever spoken to the other.
+Nobody thanked him and about four people in that room looked at the table and about five looked at the door, and nobody asked him what he meant and he did not say, and about four people in that room worked out that he had moved the subject and about five worked out that he had not.
 
 Nobody said anything for about as long as it takes to turn a cart, and then the woman of about twenty-nine who keeps that room came down the thirteen stairs with a slate in her hand and stopped at the bottom of them, and she had heard the last of it, and nobody in that room said anything to her about it.
 
@@ -98,19 +98,19 @@ Nobody thanked her and the copyist said it in the flat way, once, without lookin
 
 “**The fourth head is ruled and it is empty and it has been empty for ten months. It is empty because there is no finding to put under it. It stays empty. And I am not ruling a fifth head, and neither is anybody else, and that is the whole of what I have got to say about the heads in this room.**”
 
-Nobody said anything to that and four people in that room had heard the same nine words said for the third time in three months and about five had heard them for the third time and were tired of them.
+Nobody said anything to that and four people in that room had heard the same twelve words said for the third time in three months and about five had heard them for the third time and were tired of them.
 
 Then the woman of about twenty-nine said the other thing and she said it in her own place and she was not arguing with anybody and nobody argued with her.
 
 “**Then I would like it recorded that I think the fourth head ought not to be there,**” she said, “**and that I have thought so since the middle of Harvestmonth, and that I keep the room and not the book, and that I have said this out loud twice in about four and a half years and both times to about four people in this room and neither time in a market street, and I am not going to say it in a market street.**”
 
-Nobody thanked her and the copyist said no in about four seconds and gave the reason in nine words and was not argued with.
+Nobody thanked her and the copyist said no in about four seconds and gave the reason in twelve words and was not argued with.
 
 “**Because it is not mine to rule and not yours to take.**”
 
 Nobody said anything and four people in that room had heard a keeper of a room refuse a woman who keeps it, and about five had heard two women refuse each other politely, and the register on the table between them had ten questions in it and no finding under any of them.
 
-Then Aren Kest came up the lane at about the fourth hour, on foot, with his stick in his left hand, and he did not knock, because the door was shut and it is shut on Sundays and he has known that for four and a half years and there is nothing in nine counties that would make him knock on a shut room.
+Then Aren Kest came up the lane at about the fourth hour, on foot, with his stick in his right hand, and he did not knock, because the door was shut and it is shut on Sundays and he has known that for four and a half years and there is nothing in nine counties that would make him knock on a shut room.
 
 He stood at the low side of that door for about as long as it takes to turn a cart and the copyist of about twenty-six saw him through the window from the table and did not get up and did not open the door, and the woman of about twenty-nine saw him as well and said nothing to anybody about it, and nothing between the two of them is in any document and neither of them spoke to the other and the room was shut and both doors stayed shut.
 

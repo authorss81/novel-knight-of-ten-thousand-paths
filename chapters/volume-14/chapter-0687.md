@@ -1,20 +1,20 @@
 # Chapter 0687
 
-**Frostmonth the sixth, YR 321, a Saturday and a market morning, the second hour in the market street at the boards with about four hundred people in it, a man of about fifty-one who owns a field on the low side of a cut four miles off walking into a market street on purpose, and a thing that nine counties has and has not used being named out loud by a person who is not anybody's clerk.**
+**Frostmonth the sixth, YR 321, a Saturday and a market morning, the second hour in the market street at the boards with about four hundred people in it, a man of about fifty-one who owns a field on the low side of a cut a mile and a half off walking into a market street on purpose, and a thing that nine counties has and has not used being named out loud by a person who is not anybody's clerk.**
 
 The man of about fifty-one came in at the market gate at about the eighth hour and went down the street at the pace of a man who has decided to be in a place, and he got to the boards at about the second hour and nine people in that market street had seen him coming before he got there and five had not.
 
 He has a want that has nothing to do with any of this, which is that he would like somebody to know what a barrow drain costs, and he asked in Fallowmonth for it to be said in a market street and not in a lane, and a woman of about thirty-eight with a bar told him he would not be thanked for it and would not be argued with, and four people in nine counties have said that was correct and five have said it was unkind and nobody has ever said which of those two is right.
 
-Nobody thanked him and nobody argued with him and he was not thanked for the four miles and he did not ask to be.
+Nobody thanked him and nobody argued with him and he was not thanked for the mile and a half and he did not ask to be.
 
 He said the thing that about nine people in that market street had not known the county had, and he said it without any preamble, and he said it once, and four people understood it and five did not.
 
-“**Nine counties has got a thing it has not used,**” the man of about fifty-one said. “**It is not a figure and it is not a body of men and there is not a name at the top of it, and I am not going to say it twice and I am not going to be asked to say it twice, and I have walked four miles to say it once.**”
+“**Nine counties has got a thing it has not used,**” the man of about fifty-one said. “**It is not a figure and it is not a body of men and there is not a name at the top of it, and I am not going to say it twice and I am not going to be asked to say it twice, and I have walked a mile and a half to say it once.**”
 
 Nobody said anything and about two hundred people in that market street had stopped what they were doing.
 
-“**About nine people in nine counties will get up and go to a gate when a man with a book asks them a question, and will say no in the open, in daylight, where anybody going past can hear it, and then will write down where they were and what they said and the day, and leave the paper where a person can find it. That is the whole of what this county has made in four and a half years. Not the hearing. Not the three clauses. The nine.**”
+“**About nine people in nine counties have been asked something in the last year and have gone and said no at a gate in the open, in daylight, where anybody going past could hear it, and then wrote down where they were and what they said and the day, and left the paper where a person could find it. That is the whole of what this county has made in four and a half years. Not the hearing. Not the three clauses. The nine.**”
 
 Nobody thanked him and four people in that market street had heard a man say that the county's real product is nine people and five had heard a farmer list a county's assets.
 
@@ -38,7 +38,7 @@ Nobody thanked him and four people in that market street had heard nine people d
 
 Nobody thanked him and nobody argued with him and two hundred people in that market street had heard nine people read out by a man of fifty-one, and four of them had counted, and five had not.
 
-Then a woman of about sixty with a basket and a stick, who has done forty runs out of this market town and who was at the boards on the third hour, said the thing about it that nobody else in that market street had thought of, and she said it out loud, and nine people heard it.
+Then a man of about fifty-seven with a basket and a stick, who has done forty runs out of this market town and who was at the boards on the third hour, said the thing about it that nobody else in that market street had thought of, and she said it out loud, and nine people heard it.
 
 “**Then what is it worth if nobody can ask for it?**”
 
@@ -48,23 +48,23 @@ Nobody thanked her and the man of about fifty-one said no in about four seconds,
 
 Nobody thanked him and nobody said anything and two hundred people in that market street had heard a man of fifty-one compare a county to a drain and five had understood what he meant.
 
-Then the copyist of about twenty-six said the whole of the rest of it, and she said it flatly, and it is the second cost of this volume said out loud in a fourth mouth, and nobody thanked her.
+Then the copyist of about twenty-six said the whole of the rest of it, and she said it flatly, and it is the second cost of this county said out loud again, and nobody thanked her.
 
 “**And there is nowhere in nine counties to put it,**” she said. “**A return is a thing a district asks for and gets. A roll is a thing people are on. A sheet going out to a district is a thing a person in a room sends. Nine people saying no at nine gates on one morning is not a return and is not a roll and is not a sheet, and I have three series and they have been correct for about four and a half years and there is not one line in any of them about a barrow drain or a boy who went with a man in a livery on a Wednesday, and there is not going to be one, and I am not going to rule a head for it.**”
 
 Nobody thanked her and four people in that market street had heard a keeper of records say that her own work cannot hold the best thing her county has, and five had heard a woman be exact about her own limits.
 
-Then the man of about thirty-four with a satchel asked the question that the man of about fifty-one had been walking four miles to be asked, and he asked it out loud, in the open, and two hundred people heard it.
+Then the man of about thirty-four with a satchel asked the question that the man of about fifty-one had been walking a mile and a half to be asked, and he asked it out loud, in the open, and two hundred people heard it.
 
 “**Then ask them.**”
 
 Nobody said anything and nine people in that market street understood the whole of what that sentence was and five had not.
 
-“**You are asking me to say it, so I will say it and I will not do it,**” the man of about fifty-one said. “**I will not carry it up four miles to a man who has a badge, and I will not carry it up four miles to a room, and I will not carry it into a county where there are not nine people in it. And I would like about nine people here to notice that a man of about thirty-four has just been told no in a market street by a man with a field and that nobody in this street thinks that is an argument for doing it anyway.**”
+“**You are asking me to say it, so I will say it and I will not do it,**” the man of about fifty-one said. “**I will not carry it up a mile and a half to a man who has a badge, and I will not carry it up four days to a room, and I will not carry it into a county where there are not nine people in it. And I would like about nine people here to notice that a man of about thirty-four has just been told no in a market street by a man with a field and that nobody in this street thinks that is an argument for doing it anyway.**”
 
 Nobody thanked him and four people in that market street had heard a man refuse to carry a thing, and five had heard a man of fifty-one name what being asked to carry a thing is, which is being made into a head with legs.
 
-Then the badge-man said the one thing he says about that, and he said it in nine words, and nine people in that market street had waited four months for him to be asked something he could not answer with a fact, and nobody thanked him.
+Then the badge-man said the one thing he says about that, and he said it in twenty-one words, and four people in that market street had been waiting two months for him to be asked something he could not answer with a fact, and nobody thanked him.
 
 “**Then nobody asks, and the nine turn up, and I am not going to be thanked for any part of it.**”
 
@@ -74,7 +74,7 @@ Then the cost of it was said out loud, and it was said by a woman of about thirt
 
 “**Then say what it costs, because nine people in this street have heard that we have a thing and four of them have understood that a thing that cannot be asked for is a thing that has to be paid for by somebody anyway,**” the woman of about thirty-three said.
 
-Nobody thanked her and she said it in about nine words and nobody at those boards interrupted her.
+Nobody thanked her and she said it and nobody at those boards interrupted her.
 
 “**It costs the woman of about thirty-nine on a lane two days off, who said no at her own gate four feet before she was asked and who cannot promise to say it twice. It costs four of about nine households at a crossing nine miles off who have stopped going there and cannot be got to say so. It costs a boy of about fourteen who is in no danger. And it costs four people on a Friday at a cut on a mile and a half who come out for nothing and are not thanked for it, which is the only one of the four that anybody in this county has ever said out loud.**”
 
@@ -106,4 +106,4 @@ Nobody thanked him and about two hundred people in that market street heard a ma
 
 **And the cost of that Saturday is nine people who will say no at a gate and cannot be asked to, four households at a crossing nine miles off who cannot be got to say they have stopped, and a list of nine names in a man's head that nobody has written down, are not in it and none of them has a price.**
 
-**a sheet of foolscap at 16, a bit of chalk at 23, a bucket at 27, a gate stop at 28, a line of chalk at 30, a hurdle at 32, a hayfork at 34, a collar for a horse at 35, a tether ring at 36, and a stable door bar at 40.** Sixteen, twenty-three, twenty-seven, twenty-eight, thirty, thirty-two, thirty-four, thirty-five, thirty-six and forty is three hundred and one pence. **A mark is forty-eight pence and three hundred and one pence is six marks and thirteen over.** The man of about thirty-three who sells cloth three doors up put his cloth down off his board at about the seventh hour, which he has not done on a market morning in about four years, and about four people in that market street noticed that he had put it down and about five did not, and Aren Kest, who had been at the high end of the boards with his stick in his right hand for the whole of it and who had said nine words at about the fourth hour, went up the made road on foot after him and caught him at the top of the rise and said one sentence, and the man of about thirty-three said he was not writing it down either, and neither of them said anything else, and about nine people in that market town saw a man of thirty-two and a man of about thirty-three walk up a made road together and not write anything down.
+**a sheet of foolscap at 16, a bit of chalk at 23, a bucket at 27, a gate stop at 28, a line of chalk at 30, a hurdle at 32, a hayfork at 34, a collar for a horse at 35, a tether ring at 36, and a stable door bar at 40.** Sixteen, twenty-three, twenty-seven, twenty-eight, thirty, thirty-two, thirty-four, thirty-five, thirty-six and forty is three hundred and one pence. **A mark is forty-eight pence and three hundred and one pence is six marks and thirteen over.** The man of about thirty-three who sells cloth three doors up put his cloth down off his board at about the seventh hour, which he has not done on a market morning in about four years, and about four people in that market street noticed that he had put it down and about five did not, and Aren Kest, who had been at the high end of the boards with his stick in his right hand for the whole of it and who had said one thing at about the fourth hour that about four people at those boards understood and about five did not, went up the made road on foot after him and caught him at the top of the rise and said one sentence, and the man of about thirty-three said he was not writing it down either, and neither of them said anything else, and about nine people in that market town saw a man of thirty-two and a man of about thirty-three walk up a made road together and not write anything down.

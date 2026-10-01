@@ -32,7 +32,7 @@ Nobody thanked anybody and four people at the boards had heard a woman say that 
 
 “**I did not say no to the second one,**” the woman of about forty-nine said. “**I want that said in a market street and I want it said by me and not worked out in a lane. I have had a fortnight of a hired boy running since the middle of Rainmonth and I have had nine years of a kitchen before that, and a boy of about fourteen costs fourpence a day and I pay him out of the trade, and the trade is nine men in a yard and four of them pay nightly. On the Wednesday morning the boy was gone and the yard had gone with him and I have two beds of trade left out of four and nine people a day in a kitchen built for about twenty.**”
 
-Nobody thanked her and four people in that market street had heard the price of a boy in a kitchen put into a market street and five had heard a woman add up four and a half weeks of Rainmonth.
+Nobody thanked her and four people in that market street had heard the price of a boy in a kitchen put into a market street and five had heard a woman add up what a fortnight at fourpence a day comes to.
 
 “**Nobody has been hurt and nobody has been killed and nobody has been told anything,**” she said, “**and the boy of about fourteen can read a figure and write his own name and his mother lives in a village two days off, and he is not in any danger and I am not going to stand in this street and make him into something. He is a boy of about fourteen that a man in a livery asked for at my door and I gave him.**”
 
@@ -42,7 +42,7 @@ The rest of that market street was doing what it does on a Thursday and nobody h
 
 Nobody thanked anybody and four people in that market street had watched a load of lime go nowhere and five had not looked up.
 
-The boy of about fourteen had come to that kitchen in the second week of Rainmonth out of a village two days off, and his mother had agreed to it for a fortnight, and the fortnight had been renewed twice without anybody putting anything in writing, and the wage had been fourpence a day and his bed was a board at the end of the kitchen under the slope of the roof where the slates come in about four inches lower than they were meant to.
+The boy of about fourteen had come to that kitchen in the second week of Rainmonth out of a village two days off, and his mother had agreed to it for a fortnight, and the hire had been made in the second week of Rainmonth without anything in writing, and the wage had been fourpence a day and his bed was a board at the end of the kitchen under the slope of the roof where the slates come in about four inches lower than they were meant to.
 
 Nobody thanked her and four people in nine counties have said that a bed under a roof at fourpence a day is the ordinary arrangement in this county and five have said that it is a bed under a roof at fourpence a day and that the two are not the same.
 
@@ -78,7 +78,7 @@ Nobody said anything and the woman of about forty-nine said one thing about that
 
 Nobody thanked her and four people in that market street had heard a woman of forty-nine say that a hearing is a bad instrument and that the only useful speakers in nine of nine hearings came on their own account, and five had heard a woman who keeps a kitchen make an argument about the county's arrangements that nobody at those boards had made.
 
-Then the badge-man said the true thing about it, and he said it in nine words, and he did not add to it, and that is the whole of what he did about it.
+Then the badge-man said the true thing about it, and he said it in twelve words, and he did not add to it, and that is the whole of what he did about it.
 
 “**Then the rule is not what is taking them. The asking is.**”
 
@@ -86,9 +86,15 @@ Nobody thanked him and two hundred people in that market street had stopped what
 
 Nobody said anything and the man of about thirty-four with a satchel said the other half of it, and he said it to about nine people and not to the four hundred, and he did not put a sheet out of the satchel.
 
-“**About four people in nine counties have been asked things this year,**” he said, “**and I have said the number out loud in this street three times and I am going to say it a fourth time because a woman of about forty-nine has just done the arithmetic on a fortnight of it. Nobody in nine counties has been asked anything and got a second visit for it. About four of us have been asked twice and every one of the second visits was for a different thing, and every one of the second visits has been refused, and being refused has not cost anybody anything that anybody can put a price on.**”
+“**About four people in nine counties have been asked things this year,**” he said, “**and I have said the number out loud in this street three times and I am going to say it a fourth time because a woman of about forty-nine has just done the arithmetic on a fortnight of it. Nobody in nine counties has been asked anything and got a second visit for it. About four of us have been asked twice and every one of the second visits was for a different thing, and every one of the second visits was for a thing the person had not been asked before, and that is the shape of what is happening, and I have no more to say about the shape than that.**”
 
-Nobody thanked him and about four people at the boards had heard a man say that being refused was free and about five had heard a man who has watched a kitchen lose a boy say that being refused was free.
+Nobody thanked him and about four people at the boards had heard a man put a shape on a thing that had already happened in this street that morning, and about five had heard a man who has watched a kitchen lose a boy in about four days get as far as the shape and stop.
+
+Then the woman of about forty-nine said the part that is hers, and she said it out loud, and she did not raise her voice, and about nine people in that market street heard all of it.
+
+“**I was asked twice,**” she said, “**and I refused the first and I did not refuse the second, and I have said that out loud twice this morning and I am going to say it a third time because a man in a market street has just told about nine people that every second visit is for a new thing, and that is true, and being refused is free, and being asked for something you have not been asked for is not free, and I am the one who knows that in this county today and I am about forty-nine and I keep a kitchen.**”
+
+Nobody thanked him and about four people in that market street had heard a woman of forty-nine put a price on the difference between a no and a yes in thirty-two words, and about five had heard a woman refuse to let a man of about thirty-four have the last word in his own street.
 
 “**And a man of about thirty-one in a livery has been at a kitchen door twice in four days, on a page, for two different things, and he was polite about both,**” he said, “**and that is the whole of what I can say and I am not going to say the rest of it in a market street because about four of the people who would be glad to hear the rest of it are standing in it.**”
 

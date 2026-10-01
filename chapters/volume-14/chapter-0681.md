@@ -24,9 +24,9 @@ The copyist of about twenty-six was at the high end of the boards with a leaf in
 
 Nobody thanked her and four people at the boards had heard three numbers and about five had heard a woman count what nine counties has.
 
-The rest of that market street was doing what it does on a Saturday. Two men were unloading boards off a cart at the low end and one of them was arguing the price of the carting. A woman of about thirty-three who keeps a chandler's shop had put a bench out of her shop and had not put a cloth over it, and she sells nothing at a market that anybody can tell, and she has done that for eleven years. A man of about thirty-eight who reads four clauses and points at one stood at the high end of the boards with his hands behind him and had said nothing since the cloth went on the table.
+The rest of that market street was doing what it does on a Saturday. Two men were unloading boards off a cart at the low end and one of them was arguing the price of the carting. A woman of about thirty-three who keeps a chandler's shop had put a bench out of her shop and had not put a cloth over it, and she sells nothing at a market that anybody can tell, and she has done that for eleven years. A man of about forty-four who sells nails at the high end of the boards, and who reads four clauses and points at one, stood with his hands behind him and had said nothing since the cloth went on the table.
 
-Three of the things this county has went past the boards that morning on carts. A chain went up the lane to the ford on a handcart with a boy of about nine walking beside it, and it has been on two posts there since the thirteenth of Fallowmonth. Nine tons of cut stone went past in the other direction on a wain, and the yard that sent it out stopped nine weeks ago, and the stone has not been collected, and four of the nine households at that crossing have stopped going there altogether. A sheet of printed paper with counties in order on it went up to the room over a saddler's in a handbasket and nobody read it, because it was a list of counties and not a name.
+Three of the things this county has went past the boards that morning on carts. A chain went up the lane to the ford on a handcart with a boy of about nine walking beside it, and it has been on two posts there since the Sunday of the first week of Embermonth. Nine tons of cut stone did not go past, because it has not moved since the fourth of Fallowmonth, when a Crown crew put it in the low approach to a crossing nine miles off and did not come back, and four of the nine households at that crossing have stopped going there altogether. A sheet of printed paper with counties in order on it went up to the room over a saddler's in a handbasket and nobody read it, because it was a list of counties and not a name.
 
 “**Say the other half of it,**” a man of about thirty-three said, who sells cloth three doors up and who had been at the boards since the market came in.
 
@@ -34,11 +34,11 @@ Three of the things this county has went past the boards that morning on carts. 
 
 Nobody said anything and four people in that market street had heard the whole of the shape of it and about five had heard a woman refuse to read four sentences.
 
-Then the man with the badge said the thing that about nine people had been waiting about four months for, and he said it in about nine words, and then he said the other half of it, which nobody had asked him for.
+Then the man with the badge said the thing that about nine people had been waiting about four months for, and he said it in eighteen words, and then he said the other half of it, which nobody had asked him for.
 
 “**A thing with no head is not a smaller thing. It is a harder thing to get at.**”
 
-Nobody thanked him and four people at the boards had heard the whole of it and about five had heard a man say nine words and stop.
+Nobody thanked him and four people at the boards had heard the whole of it and about five had heard a man say eighteen words and stop.
 
 “**I have been standing in this street on the first of every month for about four and a half years and I have had one thing to say on those days and it is that there is nothing to stand in, and about nine people have come and stood in it anyway, and about nine counties has got nine people who will say no at a gate and not one head to call them, and that is the whole of the arrangement.**”
 

@@ -28,7 +28,7 @@ Nobody thanked her and about four people in that market street had heard her say
 
 “**Say the rest of it,**” the man of about thirty-four said, and he asked for it once and did not ask twice.
 
-“**I said in this street on the seventeenth of the month before last that nothing had happened in two counties where nothing was asked of anybody, and something had happened in nine counties where about nine people have been asked things all year, and about four of you understood that at the time and five wrote it down.**” She had not moved from the top of the market street. “**That was true and I still say it. Here is the other half and I have been sitting on it for a month.**”
+“**I said in this street on the seventeenth of last month that nothing had happened in two counties where nothing was asked of anybody, and something had happened in nine counties where about nine people have been asked things all year, and about four of you understood that at the time and five wrote it down.**” She had not moved from the top of the market street. “**That was true and I still say it. Here is the other half and I have been sitting on it for a month.**”
 
 Nobody said anything and two hundred people in that market street had stopped what they were doing again.
 
@@ -45,8 +45,6 @@ Nobody thanked her and about four people at that market street had heard the who
 Nobody thanked her and four people at the boards said nothing and five said something at once and then stopped, and the man of about thirty-four with the satchel said that he had been going to say the other half of it and that she had said it better and that he wanted that noticed, and the copyist of about twenty-six said out loud, in the flat way, that she was not going to say it better than that and that the woman had not asked anybody's leave.
 
 Nobody thanked either of them and about four people at the boards had heard a man concede a thing to a woman in a market street and five had heard a keeper of records decline to.
-
-Nobody thanked him and about four people in that market street had understood that and five had heard a man lay paper out on a set of boards and count the holes in it.
 
 There were four places on those boards and two of them had something on them. Boards do not have marks on them, and a person at a set of boards in a market street can see a gap in a row the way a person can see a gap in a row of teeth, and two hundred people in that market street saw the two empty places and nine of them had worked out before the man of about thirty-four finished speaking that the empty places were the two that had sent nothing.
 
@@ -74,13 +72,13 @@ Nobody thanked her and about four people at the boards had understood the whole 
 
 Nobody thanked her and about four people in that market street had heard a keeper of records put a date on her own blindness and about five had heard the word Tuesday four times.
 
-Then the man with the badge said one thing, and it was nine words, and he had not said it in that street for about four months, and about nine people heard it and four of them understood it.
+Then the man with the badge said one thing, and it was twelve words, and he had said it once in that street five days earlier and had not said it in any market street before that, and about nine people heard it and four of them understood it.
 
 “**A thing with no head is harder to get at, not smaller.**”
 
 Nobody thanked him and nobody said anything and about four people at the boards looked at the four things on the boards and about five looked at the four hundred people in the market street.
 
-Nobody said anything to that and about four people in that market street had heard a woman of about twenty-four put her shop and a man's satchel in the same sentence, and about five had not.
+Nobody thanked him and about four people in that market street had heard a woman of about twenty-four put her shop and a man's satchel in the same sentence, and about five had not.
 
 Then the man of about thirty-eight who puts boards on the inside of gates was at the low end of the boards, and he had not been there at the second hour and nobody had seen him come in, and about nine people in that market street had not known he was in the county.
 
@@ -114,7 +112,7 @@ Then a man of about forty-four who sells nails at the high end of the boards ask
 
 “**Then why write to them at all.**”
 
-Nobody said anything and two hundred people in that market street had stopped what they were doing for the fourth time that morning.
+Nobody said anything and two hundred people in that market street had stopped what they were doing for the sixth time that morning.
 
 “**That is a good question and it has got a bad answer,**” the man of about thirty-four with the satchel said, “**and I am the man who has to give it. I write to them because a road that has written once will write again, and a road that writes twice has decided something, and a thing that has been decided twice by nine people is worth more in about nine counties than nine hundred words that nobody will sign. I write to them because I would rather be answered no than not asked. And I write to them because if I stop writing, then the only answers this county has are the ones a man in a livery gets at a gate, and I cannot stand what he writes down at a gate.**”
 
@@ -134,7 +132,7 @@ Nobody thanked her and about nine people in that market street had heard a woman
 
 What happened at about the fourth hour was ordinary and it went on for two hours and nobody ordered it.
 
-The chain went up the lane to the ford at about the third hour with a boy of about nine walking beside the handcart, and it has gone up and come down every week since the thirteenth of Fallowmonth, and the woman of about thirty-nine who keeps the second gate from the top of a mile and a half was at her gate when it came past and did not shut it, which she has not done on a Thursday in about four years because a thing that comes up a lane at four hundred yards of a made road is a thing a person watches go by.
+The chain went up the lane to the ford at about the third hour with a boy of about nine walking beside the handcart, and it has gone up and come down every week since the Sunday of the first week of Embermonth, and the woman of about fifty-nine who keeps the second gate from the top of a mile and a half was at her gate when it came past and did not shut it, which she has not done on a Thursday in about four years because a thing that comes up a lane at four hundred yards of a made road is a thing a person watches go by.
 
 The list went up to the room over a saddler's in a handbasket and the man who carried it stood in the doorway for about as long as it takes to turn a cart, and the copyist came down and took it and did not thank him, and she has not thanked a person for carrying a sheet in four and a half years.
 

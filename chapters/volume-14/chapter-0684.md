@@ -22,7 +22,7 @@ Nobody thanked him and four people in that market street had heard the whole of 
 
 Then he said the other half of it, and it is the sentence, and it is nine counties' sentence and it is his, and nobody in that market street had heard it before that morning.
 
-“**And I will say the rest of it, because I have had nineteen years and a book of nine names to think about and nine people in this street are about to say the wrong thing about it. The man with the badge put a rule in this county about four and a half years ago and the rule is about a road being shut. A shut road has to be proposed by somebody. A burden only falls on a man who proposed. That is a good rule and it is the best thing anybody in nine counties has ever made. And in four and a half years not one road has been shut, and the man who said a road might be shut has not shown that it may be shut, and I am not giving a man a name for a rule about a thing that has never happened to anybody.**”
+“**And I will say the rest of it, because I have had nineteen years and a book of nine names to think about and nine people in this street are about to say the wrong thing about it. The man with the badge put a rule in this county a year and a half ago and the rule is about a road being shut. A shut road has to be proposed by somebody. A burden only falls on a man who proposed. That is a good rule and it is the best thing anybody in nine counties has ever made. And in four and a half years not one road has been shut, and the man who said a road might be shut has not shown that it may be shut, and I am not giving a man a name for a rule about a thing that has never happened to anybody.**”
 
 Nobody thanked him and nobody said anything and two hundred people in that market street had heard every word of it, and nine of them had understood all of it, and five had not understood it at all.
 
@@ -64,7 +64,7 @@ Nobody thanked her and four people in that market street had heard a woman say w
 
 Nobody thanked her and two hundred people in that market street had heard a woman refuse to say whether something was a good thing, and nine of them had noticed that the refusal was the same shape as the refusal of the man of about fifty-two and five had not.
 
-Then the badge-man said the thing that about nine people in nine counties had been waiting about four months to hear him say in a market street, and he said it in nine words, and then he said the second half, which nobody had asked him for and which is the reason the first half is on the page.
+Then the badge-man said the thing that about nine people in nine counties had been waiting about four months to hear him say in a market street, and he said it in seventeen words, and then he said the second half, which nobody had asked him for and which is the reason the first half is on the page.
 
 “**Then it will be asked in this street and not in a room four hundred miles off.**”
 
@@ -72,7 +72,11 @@ Nobody thanked him and four people at the boards had heard a man of fifty-eight 
 
 “**I am going to say that man's words again in this street, in the same words, because in about nine days a serjeant of a captain of about forty-four is going to arrive somewhere with a sheet and four men and a question, and nine people in nine counties are going to be asked which of the two they want: that the second clause is a good rule, or that the man with the badge said a road might be shut. I am not going to let anybody in nine counties be asked that in a room. I am going to have it said in a market street on a Thursday, twice, and both times in the words of a man of about fifty-two who keeps four miles under contract.**”
 
-Then he said it again, out loud, in that market street, in front of about two hundred people, and he said it in the man's own words and he did not improve them and he did not put a clause in after it, and four people at the boards heard a man of fifty-eight read another man's sentence back to a market street and five heard a man repeat himself.
+Then he said it again, out loud, in that market street, in front of about two hundred people, and he said it in the man's own words, and he did not improve one word of it, and he did not put a clause in after it, and this is the second of the two times and it is the whole of what the badge-man said in that street that morning.
+
+“**The man who said a road might be shut has not shown that it may be shut.**”
+
+Nobody thanked him and two hundred people in that market street had heard a man of fifty-eight read another man's sentence back to a market street word for word, and four people at the boards had understood that he was doing it on purpose and five heard a man repeat himself.
 
 Nobody thanked him and nobody thanked the man of about fifty-two and nobody in that market street said one word that made the sentence smaller, and nine people have said since that it should not have been said twice and about five have said since that twice is what it took, and the sentence was not softened by anybody afterwards and it is not going to be.
 
@@ -94,13 +98,13 @@ Nobody said anything to that and about two hundred people in that market street 
 
 Then a man of about thirty-eight who puts boards on the inside of gates said the practical thing out loud, and it was not a hard thing, and about nine people in that market street had not thought of it.
 
-“**Then the six clerks in this county have got a clause they cannot use, and there are about nine gates on a lane two days off where a man in a livery has been writing on boards since the middle of Rainmonth, and if any of the people on that lane is asked for a witness then not one of them is to be named, and that is a thing you can say in a morning before you have had your breakfast.**”
+“**Then the clerks in this county have got a clause they cannot use, and there are about nine gates on a lane two days off where a man in a livery has been writing on boards since the middle of Rainmonth, and if any of the people on that lane is asked for a witness then not one of them is to be named, and that is a thing you can say in a morning before you have had your breakfast.**”
 
 Nobody thanked him and about four people in that market street had heard a man turn a refusal into an instruction that a person could carry and about five had heard a man make it small, and about four people have said since that it was the only useful thing anybody said on that Thursday and about five have said since that it was the whole of the problem in one sentence.
 
 Nobody said anything and the market went on at about the fourth hour, and two hundred people went back to what they were doing, and nine people at the boards stayed.
 
-The rest of that market street was doing what it does on a Thursday and nobody had stopped for more than about four minutes at a time. A carter of about forty-one was at the low end of the boards with a horse he could not get a load for and had been standing there since the second hour, and the copyist of about twenty-six counted his horse at the boards in front of nine people at about the third hour, which is a thing she does about four times a month and has done since the middle of Harvestmonth, and the carter put nothing in and was not argued with. A woman of about thirty-three who sells wool two streets off had come in late and had heard about four minutes of it and got the rest from a man of about twenty-six who told it wrong, and about nine people in that street have said since that the man of about twenty-six told it the way he wanted it and about five have said he told it the way it was, and nobody has asked him.
+The rest of that market street was doing what it does on a Thursday and nobody had stopped for more than about four minutes at a time. A carter of about forty-one was at the low end of the boards with a horse he could not get a load for and had been standing there since the second hour, and the copyist of about twenty-six counted his horse at the boards in front of nine people at about the third hour, which is a thing she does about four times a month and has done since the middle of Harvestmonth, and the carter put nothing in and was not argued with. A man of about forty-seven who sells wool two streets off had come in late and had heard about four minutes of it and got the rest from a man of about twenty-six who told it wrong, and about nine people in that street have said since that the man of about twenty-six told it the way he wanted it and about five have said he told it the way it was, and nobody has asked him.
 
 Nobody thanked anybody and about four people in that market street knew that a carter had been counted in front of nine people and about five did not, and the copyist said out loud, in the flat way, that a horse that is counted is a horse and not a wage, and that a wage is a different book and there is no series in nine counties for wages.
 
