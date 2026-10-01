@@ -1,3 +1,20 @@
+# SCOPE OF THIS RUN - READ FIRST
+
+**This run writes Chapters 681 to 685 and nothing else.**
+
+Chapters 686 to 690 are a later phase's work. Ignore any
+instruction below that requires you to write them.
+
+1. **Write the chapters.** Chapters 681 through 685, in ascending order. Start with the first one in your very
+   first action. Begin the file for that chapter immediately.
+2. **Do not attempt any close, audit, or planning duty** listed below.
+3. **Do not create a next-phase prompt.** The pipeline creates it.
+4. **Update only the state files** these chapters require.
+
+Every rule below still binds the prose. If a rule cannot be satisfied in these chapters,
+write the chapters anyway and record the unmet rule in  + "state/open-threads.md" + .
+
+**Producing finished chapters is the success condition. Returning without writing a chapter is a failure.**
 # Volume 14, Batch 0004 — Chapters 681 to 690, "The Coin That Was Not Offered"
 
 ## Scope
