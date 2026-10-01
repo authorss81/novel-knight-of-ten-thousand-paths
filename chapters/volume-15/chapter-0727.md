@@ -44,9 +44,9 @@ Nobody said anything and the man of thirty-four with a satchel had been standing
 
 Nobody said anything and about four people in that market street had heard the width of a road in the grass explained by the man who cuts it and five had heard 57 words and had not worked out that it is the width of the road because somebody cuts it, and nine people in nine counties have said since that about four hundred people have heard in one morning that a road is nine feet wide because a man cuts the grass on it once a year.
 
-Nobody said anything and the young man of about nineteen said the third of three things out loud, in the open, in his own trade, and it was 78 words, and nobody stopped him.
+Nobody said anything and the young man of about nineteen said the third of three things out loud, in the open, in his own trade, and it was 76 words, and nobody stopped him, and he did not say it the way he said the other two, and he said it slower.
 
-“**The nine households past those nine stones keep a rota of that flat that has been kept about nine years and has not been broken once in the nine years, and the grass on the road is cut with the flat and not as a road, and nobody else cuts any of it, and the kerb is older than the cutting and I cannot tell you how much older because there is nobody in nine counties to ask.**”
+“**I have watched nine households cut that flat for nine years from the top of it and I am the only one who has ever watched it from the top and not from a gate, and the cutting is not for the road. It is for beasts, and the kerb was under the grass before the first of them ever cut, and that is the whole reason nobody has ever put a hand on that road.**”
 
 Nobody said anything and about two hundred people in that market street had heard the ninth thing anybody in nine counties has said out loud about that lane and about four of them believe it and about five have never spoken to any of the other four, and nobody asked him a second question and nobody asked him a third, and four people in nine counties have said since that this is the first time in about four and a half years that nobody in a market street asked a man who had just said something true a second question, and five have said that nobody asked because there was nothing to ask.
 

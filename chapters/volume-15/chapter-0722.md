@@ -2,7 +2,7 @@
 
 **Longlight the twenty-ninth, YR 322, a Saturday and a market morning, the second hour in the market street at the boards with four hundred people in it and two hundred of them stopped, the room over the weigh-house open, and the eighth question anybody in nine counties has asked about that lane.**
 
-A Saturday in that market town of about two thousand people is the loudest thing in nine counties, and about four hundred people are in that street by the second hour and about two hundred of them stop what they are doing, and the proportion has not moved since the first of Embermonth, and nine people in nine counties have said since that it is the only figure anybody in this county can check twice a week and has never once been written down.
+A Saturday in that market town of about two thousand people is the loudest thing in nine counties, and on this one the four hundred and the two hundred did not want an about in front of them, because a man who stands at the low end of those boards can count the ones who stop and get the same number a second time, and the proportion has not moved since the first of Embermonth, and nine people in nine counties have said since that it is the only figure anybody in this county can check twice a week and has never once been written down.
 
 Nobody thanked anybody and Longlight has one day left in it and Rainmonth is two days off and the fourth of Rainmonth is five days off, and four people in that market street had worked out inside nine seconds that a month in this county ends on a Sunday and five had not.
 
