@@ -98,7 +98,7 @@ Nobody thanked her and the copyist said it in the flat way, once, without lookin
 
 “**The fourth head is ruled and it is empty and it has been empty for ten months. It is empty because there is no finding to put under it. It stays empty. And I am not ruling a fifth head, and neither is anybody else, and that is the whole of what I have got to say about the heads in this room.**”
 
-Nobody said anything to that and four people in that room had heard the same twelve words said for the third time in three months and about five had heard them for the third time and were tired of them.
+Nobody said anything to that and four people in that room had heard the fourth head argued out in her own trade for the third time in three months and about five had heard it for the third time and were tired of it.
 
 Then the woman of about twenty-nine said the other thing and she said it in her own place and she was not arguing with anybody and nobody argued with her.
 

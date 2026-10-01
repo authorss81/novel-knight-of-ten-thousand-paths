@@ -72,15 +72,15 @@ Nobody thanked her and about two hundred people had heard a thing in that room t
 
 Nobody thanked her and about four people in that room had heard a woman of fifty-one say that a parish office is worth four and a half years and about five had heard a lodging-house keeper say something kind about a book, and the copyist of about twenty-six said no word at all for about as long as it takes to turn a cart, which four people in that room noticed and about five did not.
 
-Then the woman of about twenty-nine who keeps that room said her own thing, and she said it standing up, and it is the third time she has said it in four and a half years and it is the same three sentences each time.
+Then the woman of about twenty-nine who keeps that room said her own thing, and she said it standing up, and it is the third time she has said it in four and a half years and it is the same two sentences each time.
 
 “**I keep the room and not the book. I have said since the middle of Harvestmonth that the fourth head ought not to be there, and I still say it, and I am right about it, and it is not going to be unruled, and I am not going to stop saying it.**”
 
-Nobody thanked her and the copyist said no in about four seconds and gave the reason in four words and was not argued with.
+Nobody thanked her and the copyist said no in about four seconds and gave the reason in six words and was not argued with.
 
 “**It is not mine to rule.**”
 
-Nobody said anything and about four people in that room had heard the same twelve words for the third time in three months and about five had heard them and understood that the woman who keeps the room had asked to be thanked for asking and had not been.
+Nobody said anything and about four people in that room had heard the copyist give that reason before, and about five had heard her give it and understood that the woman who keeps the room had asked to be thanked for asking and had not been.
 
 Then a man of about thirty-four with a satchel came in about the fourth hour and asked to see the register, and the copyist gave him the register, which nobody does, and about four people in that room noticed that she gave it to him and about five did not.
 

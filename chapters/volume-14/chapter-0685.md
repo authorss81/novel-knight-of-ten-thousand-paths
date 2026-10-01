@@ -78,11 +78,11 @@ Nobody said anything and the woman of about forty-nine said one thing about that
 
 Nobody thanked her and four people in that market street had heard a woman of forty-nine say that a hearing is a bad instrument and that the only useful speakers in nine of nine hearings came on their own account, and five had heard a woman who keeps a kitchen make an argument about the county's arrangements that nobody at those boards had made.
 
-Then the badge-man said the true thing about it, and he said it in twelve words, and he did not add to it, and that is the whole of what he did about it.
+Then the badge-man said the true thing about it, and he said it in nine words, and he did not add to it, and that is the whole of what he did about it.
 
-“**Then the rule is not what is taking them. The asking is.**”
+“**The rule is not the difficulty. The asking is.**”
 
-Nobody thanked him and two hundred people in that market street had stopped what they were doing, and four people at the boards had heard a man of fifty-eight say that the thing this county built is not the difficulty and five had heard a man say that being asked is.
+Nobody thanked him and two hundred people in that market street had stopped what they were doing, and four people at the boards had heard a man of fifty-eight say that the thing this county built is not the difficulty and five had heard a man say that the asking is.
 
 Nobody said anything and the man of about thirty-four with a satchel said the other half of it, and he said it to about nine people and not to the four hundred, and he did not put a sheet out of the satchel.
 
@@ -94,7 +94,7 @@ Then the woman of about forty-nine said the part that is hers, and she said it o
 
 “**I was asked twice,**” she said, “**and I refused the first and I did not refuse the second, and I have said that out loud twice this morning and I am going to say it a third time because a man in a market street has just told about nine people that every second visit is for a new thing, and that is true, and being refused is free, and being asked for something you have not been asked for is not free, and I am the one who knows that in this county today and I am about forty-nine and I keep a kitchen.**”
 
-Nobody thanked him and about four people in that market street had heard a woman of forty-nine put a price on the difference between a no and a yes in thirty-two words, and about five had heard a woman refuse to let a man of about thirty-four have the last word in his own street.
+Nobody thanked him and about four people in that market street had heard a woman of forty-nine put a price on the difference between a no and a yes in a hundred and three words, and about five had heard a woman refuse to let a man of about thirty-four have the last word in his own street.
 
 “**And a man of about thirty-one in a livery has been at a kitchen door twice in four days, on a page, for two different things, and he was polite about both,**” he said, “**and that is the whole of what I can say and I am not going to say the rest of it in a market street because about four of the people who would be glad to hear the rest of it are standing in it.**”
 

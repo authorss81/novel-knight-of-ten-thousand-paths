@@ -77,7 +77,7 @@ Read `state/open-threads.md` **item 611** and obey every clause of it, and remem
 - have Tovan Kest and Aren Kest use the kin-term, or have any character notice the warmth of the left palm, or have the two of them mend anything.
 - make the road that went quiet in Thawmonth come back, or name it, or send anybody to it.
 - spend the last of the six names on anybody except a person who cannot be a person without one, and do not print the antagonist's name more than once.
-- print the manuscript total as anything but **1,942,134**, do not print Batch 0004's total as anything but **36,955**, and do not print Volume 14 as anything but **137,036**. Those three figures are the ones on the files as they stand and you must recount them before you rely on them.
+- print the manuscript total as anything but **1,942,137**, do not print Batch 0004's total as anything but **36,958**, and do not print Volume 14 as anything but **137,039**. Those three figures are the ones on the files as they stand and a second review of this block recounted every one of them, and **you must still recount them after your own last prose edit, because the first repair of Batch 0004 changed the pages and left three numbers printed in four state files stale**.
 
 ## THE ONE COLLISION IN THIS BLOCK, NAMED HERE AND TO BE RESOLVED HERE AND NOT IN A CHAPTER
 
@@ -89,7 +89,7 @@ Read `state/open-threads.md` **item 611** and obey every clause of it, and remem
 - **Dialogue is `“**text**”`** — opening curly double quote, then bold, then closing curly double quote, with attribution outside. The curly quotes are U+201C and U+201D and they are not the same character as a straight quote. **A block written without quotation marks is a block that has to be repaired twice, and one earlier this year was.**
 - **Zero em dashes. Zero en dashes. Zero semicolons. Zero exclamation marks. Zero italic single asterisks. Zero straight double quotes. Straight apostrophes only, never curly.**
 - Curly doubles balanced in every file, and `**` in even count on every line.
-- Heavy use of **about** before numbers and hours: **18 to 28 per 1,000 words.** Do not let *about nine* become a default that stands in for a real figure. **Batch 0004 ran 23.85 to 28.60 and two of its ten pages are at the ceiling, so the band is narrower than it looks and a page written long has to be counted and trimmed.**
+- Heavy use of **about** before numbers and hours: **18 to 28 per 1,000 words.** Do not let *about nine* become a default that stands in for a real figure. **Batch 0004 ran 23.85 to 29.17 and FIVE of its ten pages are at or above 28.00, so the band is narrower than it looks and a page written long has to be counted and trimmed.**
 - Characters are described by **age and trade**, not by name, and **the last name in the budget goes to the person who cannot be a person without one.** A name is the only asset in this manuscript that cannot be audited after the fact.
 - **Nobody is ever thanked.** Every occurrence of the thank family must be a negation or a plain statement that a person was not thanked. **No Crown officer's formulaic courtesy at a gate.**
 - **Every chapter ends with the cost line paragraph beginning `**And the cost of that`, then a footed ten-item money column priced 1 to 41 pence, then the mark conversion at forty-eight pence, then a closing beat that is a thing that happens.** The cost line's wording is varied across the ten and no two of them open the same way.
@@ -99,7 +99,7 @@ Read `state/open-threads.md` **item 611** and obey every clause of it, and remem
 
 ## Length
 
-**Volume 14's four blocks have run at means of 3,185, 3,404, 3,325 and 3,663, and Batch 0004's ten pages ran 3,414 to 3,942, against Volume 13's five blocks at a mean of 2,679.** About sixty per cent of the manuscript is at under half the Volume 01 chapter length and Volumes 09 to 12 stand at 1,856 to 2,961 and are unrepaired. **Do not write this block as though the ceiling were Volume 13's. Target 3,400 to 4,000 a chapter, and this is the climax, so the loudest pages are Chapter 0695, the nine minutes, and Chapter 0697, the crowd, and the close in Chapter 0700 is a short page and is meant to be.** Never pad and never split a scene to hit a number. The scene bodies of the last block ran 3,097 to 3,682, and a body includes the title line and the dateline.
+**Volume 14's four blocks have run at means of 3,185, 3,404, 3,325 and 3,696, and Batch 0004's ten pages ran 3,429 to 3,942, against Volume 13's five blocks at a mean of 2,679.** About sixty per cent of the manuscript is at under half the Volume 01 chapter length and Volumes 09 to 12 stand at 1,856 to 2,961 and are unrepaired. **Do not write this block as though the ceiling were Volume 13's. Target 3,400 to 4,000 a chapter, and this is the climax, so the loudest pages are Chapter 0695, the nine minutes, and Chapter 0697, the crowd, and the close in Chapter 0700 is a short page and is meant to be.** Never pad and never split a scene to hit a number. The scene bodies of the last block ran 3,101 to 3,682, and a body includes the title line and the dateline.
 
 ## After the ten chapters
 

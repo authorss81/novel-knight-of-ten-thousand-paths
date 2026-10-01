@@ -64,7 +64,7 @@ Nobody said anything and nine people in that market street understood the whole 
 
 Nobody thanked him and four people in that market street had heard a man refuse to carry a thing, and five had heard a man of fifty-one name what being asked to carry a thing is, which is being made into a head with legs.
 
-Then the badge-man said the one thing he says about that, and he said it in twenty-one words, and four people in that market street had been waiting two months for him to be asked something he could not answer with a fact, and nobody thanked him.
+Then the badge-man said the one thing he says about that, and he said it in twenty-one words, and about nine people in that market street had been waiting about four months for him to be asked something he could not answer with a fact, and nobody thanked him.
 
 “**Then nobody asks, and the nine turn up, and I am not going to be thanked for any part of it.**”
 

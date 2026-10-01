@@ -68,7 +68,7 @@ Then the woman of about thirty-six who keeps a road in the county where a list o
 
 Nobody thanked her and four people in that market street had heard a woman of thirty-six say that a Crown officer had not once asked her the one thing nine hundred words and nine people in this county keep asking her for, and five had heard a woman say that a man with a paper was the only person in a coat who had not asked her for anything.
 
-Then the badge-man said the thing that about nine people in nine counties had been waiting four months to hear him say to a captain of about forty-four, and he said it in 28 words, and he said it in the street and not in a room, and nobody thanked him.
+Then the badge-man said the thing that about nine people in nine counties had been waiting four months to hear him say to a captain of about forty-four, and he said it in twenty-eight words, and he said it in the street and not in a room, and nobody thanked him.
 
 “**Then you are the only man in nine counties who has never asked, and I have no clause for you, and I am not going to write one.**”
 
