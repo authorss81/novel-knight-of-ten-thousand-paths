@@ -1,3 +1,25 @@
+# SCOPE OF THIS RUN - READ FIRST
+
+**This run writes Chapters 671 to 675 and nothing else.**
+
+Chapters 676 to 680 are a later phase's work. Ignore any
+instruction below that requires you to write them.
+
+1. **Write the chapters.** Chapters 671 through 675, in ascending order. Start with the first one in your very
+   first action. Begin the file for that chapter immediately.
+2. **Do not attempt any close, audit, or planning duty** listed below. Those
+   belong to later phases. Ignoring them is required; attempting them is a
+   failure of this run.
+3. **Do not create a next-phase prompt.** The pipeline creates it.
+4. **Update only the state files** these chapters require, and nothing else.
+
+Every rule below still binds the prose you write. But if a rule cannot be
+satisfied inside this run's chapters, write the chapters anyway and record the
+unmet rule in `state/open-threads.md` for a later phase.
+
+**Producing finished chapters is the success condition for this run. Returning
+without writing any chapter is a failure.**
+
 # Volume 14, Batch 0003 — Chapters 671 to 680, "The United Front, and the Word in It"
 
 ## Scope
