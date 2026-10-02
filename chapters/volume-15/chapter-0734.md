@@ -6,7 +6,7 @@ A Friday in that market town of about two thousand people is not a market mornin
 
 Nobody thanked anybody and that is the eighth day since a man asked the man who keeps the far end of that lane for one thing out loud on a shoulder above a drove road, and about nine people in nine counties know that and about five have ever heard it said, and nobody has asked either of the two of them about it since and nobody is going to.
 
-Nobody said anything and the boards at the low end of that street are the colour of a wet slate and have been repainted twice, and the second of the two was in Hearthmonth, and the hearing has not sat since the first of Goatmonth and cannot be called, and the cloth over the bench at the low end of them has been on it since the middle of Hearthmonth and nobody has asked what is under it.
+Nobody said anything and the boards at the low end of that street are the colour of a wet slate and have been repainted twice, and the hearing has not sat since the first of Goatmonth and cannot be called, and the cloth over the bench at the low end of them has been on it since the middle of Hearthmonth and nobody has asked what is under it.
 
 Then four days off, and the ordinary half of that Friday is nine tenths of it, and the drove went up that lane on the Thursday before.
 
