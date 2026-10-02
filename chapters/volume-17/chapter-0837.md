@@ -4,7 +4,7 @@
 
 Longlight is carried at thirty days and it began on that Friday, and Mudmonth ran sixty days and ended the day before, and there is a change of month in this county twice in the time it takes a person to say a number twice before the light.
 
-Four days off, on a floor above a byre with the cow door open on the cold, seven people stood up and said a number before the light. It was the three hundred and sixty-third morning.
+Four days out, seven people stood up on a floor above a byre with the cow door open on the cold and said a number before the light. It was the three hundred and sixty-third morning.
 
 “Twice.”
 
@@ -17,6 +17,8 @@ Four. Four. The number has been four for three hundred and fifty-nine mornings a
 “And we are three hundred and sixty-three mornings into a thing.”
 
 “We are.”
+
+There is one thing he has never said to the seven of them, and it is that a month coming is the only announcement any of them get. Nothing else in this county keeps time at the person. The board at the low end of that street has a date on it that went past ninety-two days ago and the register has ten questions under none of which anything is written, and about nine people in nine counties have read the hand paper on the flap of that stall and about four hundred places are writing one out by hand, and the one thing that has come to about seven people standing on a cold floor is that the month has changed and that they were still here when it did, which took about as long as it takes to turn a cart twice over.
 
 Longlight the first came to those boards and found a printed notice gone soft at the edges with the wet, three copies of a roll nailed one over the other on top of it with nine empty lines on each of them and the fourth of the nine this county's, and a sheet with a date on it nailed up beside the roll and not over it whose date went past ninety-two days ago.
 
@@ -56,15 +58,15 @@ The five frames of brood in that walled yard are under about nine straw skirts a
 
 A Crown's cart came up that made road in the ordinary post about four times in a good month and went on up the hill in the dark that night with two sacks under the seat, and the driver did not know what was in them and was not asked and did not ask, and about nine hundred people along eleven miles of that road have never once been told what goes up and down it in the ordinary post. The barrow at the low end of that street had been standing against that wall since the middle of the week with its handles up, and about nine people went round it every morning of that week and about four of them stopped once to look at a handle that has been re-cut once on the wrong side.
 
-The rest of that Friday went on. About nine people were in that market street and no more than about nine, and about four of them went into that office for a halfpenny copy of something during the morning and about five did not. The near wheel of a cart came off at the low end of that street and the carter got it up again with a bar in about nine minutes without anybody stopping on his account, and the two women at the third door took a bolt of cloth apart in the doorway over about four minutes by the clock and went in after it and came out with it wrapped.
+The rest of that Friday went on. About nine people were in that market street and no more than about nine, and about four of them went into that office for a halfpenny copy of something during the morning and about five did not. A carter stopped at the low end of that street to shift a load and was under it about as long as it takes to read a sheet twice, and the two women at the third door took a bolt of cloth apart in the doorway over about four minutes by the clock and went in after it and came out with it wrapped.
 
-The light went off the west bank about as long as it takes to turn a cart twice over and found the upper edge of those boards, and the lamp at the high end of them was not lit, because the ninth hour of a Friday in Longlight is dark and there is nothing off the wet slate of them to need it. Five of those nine people went out into about five trades and about four stayed on at the boards.
+The light went off the west bank about as long as it takes to turn a cart twice over and found the upper edge of those boards, and the lamp at the high end of them was not lit, because the ninth hour of a Friday in Longlight is dark and there is nothing off the wet slate of them to need it. Of those nine, five went out into about five trades and four stayed on at the boards.
 
-Nine doors down from those boards the cloth was over the bench and nobody lifted it and nobody asked what was under it. The half leaf in the press in that room is face down and was not turned over on a first of a month, and a first of a month has come to those boards twenty-seven times in a row and nothing has ever been turned over on one of them in about four and a half years. The three series in that room are three series and none of them is derived from another and the band figure is not written down anywhere in this county.
+Nine doors down from those boards there was a cloth over a bench and nobody lifted it and nobody asked after it. The half leaf in the press in that room is face down and was not turned over on a first of a month, and a first of a month has come to those boards twenty-seven times in a row and nothing has ever been turned over on one of them in about four and a half years. Three series stand in that room and none of the three is worked out from another, and the band figure appears nowhere in this county.
 
 The cost of that Friday was the leg, which had four days of a made road in it and went from an ache to a needle on the last mile, and the ear on the side the stick is on, which is gone, and which is the side she spoke from.
 
-And there was, on the inside of one wrist, a bleed two hundred and six days old that had not faded by anything he had done to it, that nobody in nine counties has asked him about, that is in no document this county keeps, that has never been said out loud in a room in front of one other person, and that a first of a month does not reach. Four lines on a sill are not a cure for it. Neither is a page in a woman's hand on the back of a day-book. Neither is a sentence in an unclaimed hand on a folded sheet inside the covering paper of the second copy of that roll. Neither is a paper with a trade on it. Neither is a bleed that has not faded in two hundred and six days.
+And there was, on the inside of one wrist, a bleed two hundred and six days old that had not faded by anything he had done to it, that nobody in nine counties has asked him about, that is in no document this county keeps, that has never been said out loud in a room in front of one other person, and that a first of a month does not reach. Four lines on a sill are not a cure for it. Nor is a page in a woman's hand on the back of a day-book. Nor is the sentence in an unclaimed hand on the folded sheet inside the covering paper of the second copy of that roll. Nor is a paper with a trade on it. Nor is a bleed that has not faded in two hundred and six days.
 
 He went out of that market street at about the eleventh hour with the leg grinding and did not go up the made road past the ninth mile stone, and did not go in at the low end of that street. Five things were on that board and ninety-two days past the date and the fourth line of the roll empty on all three of its copies, and nobody was thanked for any of it.
 

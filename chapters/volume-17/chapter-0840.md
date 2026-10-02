@@ -2,7 +2,7 @@
 
 **Longlight the eleventh, YR 324, a Monday and not a market morning, the room over the weigh-house shut behind its own door and the hearing not sitting and no market in that street, the fourth hour on a floor four days off with seven people on it, one hundred and sixty-five days after a sheet went up on those boards, one hundred and two days past the date at the foot of that sheet, and nobody in this county a delegate to anything.**
 
-Four days off, on a floor above a byre with the cow door open on the cold, seven people stood up and said a number before the light. It was the three hundred and seventieth morning.
+Seven people stood up on a floor above a byre four days out, the cow door open on the cold, and said a number before the light. It was the three hundred and seventieth morning.
 
 “Twice.”
 
@@ -11,6 +11,8 @@ Four. Four. The number has been four for three hundred and sixty-six mornings an
 There is no delegate to anything in this county and nobody here has been asked to be one. Four people in nine counties have said that a county which cannot call a hearing and has not called one in four and a half years has no business sending anybody anywhere, and five have said that nobody in nine counties would accept one if it offered.
 
 About nine hundred yards of a stair nine days off from any town in this county is being argued about in about four hundred places at one time by people who have never met one another, and this county has put nine trades on nine lines of a paper with no seal on it, and no names on any of them, and no representative of this county has been at any part of that argument, and nobody in this county has been asked for one.
+
+He is the only person in this county who could be named as a delegate and about nine people in nine counties have said so since last Thursday, and none of them has said it to him, and the finding that came out of it is that a county which cannot call a hearing does not get one by having somebody in it who would answer. He heard about all three of those claims from about four people who each wanted to tell him something else.
 
 The roll has been on that frame three hundred and nine days with nine empty lines on each of three copies and the fourth of the nine this county's, and it is not filled in and it is not taken down and it is not torn up, and no name in nine counties has gone against any road on any paper. The notice nailed above those three copies is four hundred and thirty days past its own date and has shut nothing, and the date at the foot of the sheet that was nailed up beside the roll and not over it went past one hundred and two days ago and nothing in nine counties is shut on it.
 
@@ -48,13 +50,15 @@ From the low side of that causeway you can see about four hundred yards of new k
 
 This county has walked on the smoothest four miles of made road in nine counties for about six months and has not asked, and about nine hundred people along eleven miles of that made road have never known the road was smooth, and about nine hundred yards of a stair nine days off is being argued about in about four hundred places by people who have never met, and this county's contribution to all of it is nine trades and no names and no seal and nobody asked.
 
-Nine doors down from those boards the cloth was over the bench and nobody lifted it and nobody asked what was under it. The half leaf in the press in that room over the weigh-house is face down and was not turned over. The three series in that room are three series and none of them is derived from another and the band figure is not written down anywhere in this county.
+There is a woman at the low end of that market street about twice in a fortnight who lays about nine feet of kerb a week for about nine hundred yards of a line that began at the bank in Mudmonth, and about four hundred people in nine counties have said that one crossing is not a road, and nobody in nine counties has asked her what she is paid for. He had a name for her for four days and had not used it once, and about nine people on this side would know it if he said it out loud, and about four hundred people along eleven miles of that made road would not know it at all.
+
+Nine doors down from those boards there was a cloth over a bench and nobody lifted it and nobody asked after it. The half leaf in the press in that room over the weigh-house is face down and was not turned over. Three series stand in that room and none of the three is worked out from another, and the band figure appears nowhere in this county.
 
 The light went off the west bank about as long as it takes to turn a cart twice over and found the upper edge of those boards, and the lamp at the high end of them was not lit, because the ninth hour of a Monday in Longlight is dark and there is nothing off the wet slate of them to need it. Five of those nine people went out into about five trades and about four stayed on at the boards.
 
 The cost of that Monday was the leg, which did eleven miles of a made road and about four hundred yards of a lane either side of it and went from an ache to a needle on the last mile, and the ear on the side the stick is on, which is gone and is the side she spoke from.
 
-And there was, on the inside of one wrist, a bleed two hundred and sixteen days old that had not faded by anything he had done to it, that nobody in nine counties has asked him about, that is in no document this county keeps, that has never been said out loud in a room in front of one other person, and that four lines of chalk and four hundred yards of somebody else's kerb do not reach. Four lines on a sill are not a cure for it. Neither is a page in a woman's hand on the back of a day-book. Neither is a sentence in an unclaimed hand on a folded sheet inside the covering paper of the second copy of that roll. Neither is a paper nobody can seal. Neither is a bleed that has not faded in two hundred and sixteen days.
+And there was, on the inside of one wrist, a bleed two hundred and sixteen days old that had not faded by anything he had done to it, that nobody in nine counties has asked him about, that is in no document this county keeps, that has never been said out loud in a room in front of one other person, and that four lines of chalk and four hundred yards of somebody else's kerb do not reach. Four lines on a sill are not a cure for it. Nor is a page in a woman's hand on the back of a day-book. Nor is the folded sheet inside the covering paper of the second copy of that roll with its one sentence in an unclaimed hand. Nor is a paper nobody can seal. Nor is a bleed that has not faded in two hundred and sixteen days.
 
 He came back up that made road after dark and did not go in at the low end of that street, and the low room at the back of that office was shut behind its own door. Five things were on that board and one hundred and two days past the date and the fourth line of the roll empty on all three of its copies, and the nine hurdles were across that cart track, and nobody was thanked for any of it.
 
