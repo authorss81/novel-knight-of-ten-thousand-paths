@@ -24,13 +24,13 @@ Nobody thanked him and the man of thirty-eight who puts boards on the inside of 
 
 Nobody thanked anybody and the man of about twenty-seven who keeps eels in weirs about two days north of the causeway had the backs of his hands split at the second joint of two fingers and had been putting oakum and tar into the splits for about eleven days, and four people in nine counties have said since that a man who works in water all winter gets that in Thawmonth and not in Mudmonth and that it is the only figure about that man anybody in nine counties has.
 
-Nobody thanked him and the man of thirty-two is about thirty-two and has a bad leg that is worse on a rise and better on a flat and worst of all on a wet flat, and there is no wet flat on that shoulder in Longlight, and nine people in nine counties have said since that the seven days a man of thirty-two spent on that shoulder is the longest continuous stretch of level ground anybody in nine counties has ever given him and five have said that the whole of what he came up here for can be said in one line and that the line has nine words in it.
+Nobody thanked him and the man of thirty-two is about thirty-two and has a bad leg that is worse on a rise and better on a flat and worst of all on a wet flat, and there is no wet flat on that shoulder in Longlight, and nine people in nine counties have said since that the seven days a man of thirty-two spent on that shoulder is the longest continuous stretch of level ground anybody in nine counties has ever given him and five have said that the whole of what he came up here for can be said in one line and that the line has fifty-four words in it.
 
 Nobody thanked anybody and the nine stones are about the height of a man's knee and about as wide as two hands and they are set across a line about nine feet wide in grass, and the tops of them are all at the same height along the top, which is the thing about them, and nine people in nine counties have said since that a man can put a straightedge across the tops of nine of them and have it lie flat and that nobody in nine counties has ever wanted to.
 
 Nobody said anything and the man of about fifty-four who keeps the far end of that lane stood at about nine feet off the line of them with his back to about nine hundred yards of flat ground and looked at the tops of them for about as long as it takes to turn a cart, and nine people in nine counties have said since that a man who keeps a boundary looks at a boundary twice a year and that this was the second time this year and five have said that a man who keeps a boundary does not look at nine stones and that he has.
 
-Nobody thanked anybody and then the sound came, and it was at about the ninth hour, and four people in nine counties have said since that this is the ninth time anybody in this block has put a sound on that shoulder and that the eighth of them was on the twelfth of Thawmonth at about the ninth hour and was the sound of one pair of wheels on a made surface.
+Nobody thanked anybody and then the sound came, and it was at about the ninth hour, and four people in nine counties have said since that this is the ninth time a sound has been put on that shoulder and that the eighth of them was on the twelfth of Thawmonth at about the ninth hour and was the sound of one pair of wheels on a made surface.
 
 Nobody said anything and this one was not that, and it was three strokes of a thing being struck on something hard, and it came from about four hundred yards off and went to about nine hundred yards off in about as long as it takes to turn a cart, and it did not come again.
 
@@ -48,7 +48,7 @@ Nobody said anything and then a person of about forty-four whose household keeps
 
 “**And the three strokes on Thursday? Where did they come from?**”
 
-Nobody said anything and four people on that shoulder had heard the question and five had not, and nobody answered it, and the man of about thirty-four with a satchel said one thing about it, out loud, in the open, and it was in his own trade and it was eleven words.
+Nobody said anything and four people on that shoulder had heard the question and five had not, and nobody answered it, and the man of about thirty-four with a satchel said one thing about it, out loud, in the open, and it was in his own trade and it was thirteen words.
 
 “**It came from four hundred yards off and it went to nine hundred.**”
 
@@ -74,7 +74,7 @@ Nobody said anything and the two households went back down the line in the grass
 
 Nobody thanked anybody and the five slept on that shoulder again and the wind came off the low side about nine hundred yards of it after the light went, and nine people in nine counties have said since that there is no tree on that shoulder and that the wind on it in the dark is the reason nobody has ever slept on it and five have said that it is the reason anybody who has slept on it once has come back.
 
-Nobody said anything and nobody crossed the nine stones and nothing on the other side of them was seen by anybody on this side of them, and a sound was heard out of that direction once in about four and a half years and once in about nine days, and four people in nine counties have said since that two sounds and nine words and a rota of beasts is the whole of what nine counties has about the far side of nine stones, and five have said that this is more than this county had about anything at the start of Longlight.
+Nobody said anything and nobody crossed the nine stones and nothing on the other side of them was seen by anybody on this side of them, and a sound was heard out of that direction once in about four and a half years and once in about nine days, and four people in nine counties have said since that two sounds and thirty-one words and a rota of beasts is the whole of what nine counties has about the far side of nine stones, and five have said that this is more than this county had about anything at the start of Longlight.
 
 Nobody thanked anybody and nobody wrote any of it down, and there is no page in any room in nine counties with the thirteenth of Longlight on it, and the register in the room over that weigh-house holds ten questions with no finding under any of them, and the day-book stands at eleven entries, and nine people in nine counties have said since that the longest document anybody in this county possesses about that shoulder is a roll of hands dated YR 312 that is wrong about one man, and that five have said that this is the whole of what a record is for.
 

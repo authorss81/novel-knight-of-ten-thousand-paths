@@ -6,7 +6,7 @@ Eight days is not a long time and it is the whole of what this county has done w
 
 Nobody thanked anybody and four hundred people were in that market street by the second hour and two hundred of them stopped what they were doing, and the two hundred are not the same two hundred every Saturday, and the proportion has not moved since the first of Embermonth.
 
-Nobody thanked anybody and that market street is about nine hundred paces from the gate at the low end of it to the inn at the high end and it runs east and west, and the bank to the west of that town is higher than the street, which is the only thing anybody has ever been able to say about the light in it, and that the light goes out of that street before the light goes out of the sky.
+Nobody thanked anybody and that market street runs east and west for about nine hundred paces from the gate at the low end of it to the inn at the high end, and the bank to the west of that town is higher than the street, and the light goes out of that street before the light goes out of the sky.
 
 Nobody thanked anyone and the inn at the high end put a board out with the price of a bed on it in chalk, which it does on Fridays and Thursdays and Saturdays, and it had four beds full and had had them full since the middle of Harvestmonth, and the woman of about fifty-one who keeps that house came out into that street at about the fifth hour and stood about nine feet off the boards and did not come closer.
 
@@ -34,9 +34,9 @@ Nobody thanked anybody and the hearing has not been called since the first of Go
 
 Nobody said anything and nobody in nine counties can call that hearing and nobody has tried, and four people in nine counties have said since that a thing which cannot be called is a thing which cannot be said to have gone wrong and five have said that a thing which cannot be said to have gone wrong is a thing which cannot be put right either.
 
-Nobody said anything and then the middle of that morning in that street happened in about nine trades at about nine hundred people doing nine things at once, and a boy of about eleven came back up the lane from the weigh-house with a pail and went down it again with the pail full, and nobody said anything to him at either end of it.
+Nobody said anything and then the middle of that morning in that street happened in about nine trades at about nine hundred people doing nine things at once.
 
-The near wheel of a cart came off at the low end and the carter got it up again with a bar in about nine minutes and nobody stopped walking. A boy of about eleven came down the lane from the weigh-house with a pail and went back up it with the pail full, and nobody said anything to him at either end of it. Two women at the third door argued about a bolt of cloth for about four minutes and then went into the shop and came out with it wrapped, which is how that argument ends nine times in ten. The light came up the side of the weigh-house at about the ninth hour and found the upper edge of the boards, and the boards were the colour of a wet slate and had been since the middle of Harvestmonth.
+The light came up the side of the weigh-house at about the ninth hour and found the upper edge of the boards, and the boards were the colour of a wet slate and had been since the middle of Harvestmonth.
 
 Nobody thanked anybody and two hundred people went back to nine trades and nine stayed at the boards, and nobody wrote any of it down.
 

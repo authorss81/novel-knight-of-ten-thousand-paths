@@ -50,7 +50,7 @@ Nobody thanked her and the second of the two said it out loud, in the open, in h
 
 “**We have had nothing on that flat since the winter and there is nothing to be on it with, and I have come because there is a week to be had.**”
 
-Nobody said anything and about four people on that shoulder had heard a household say that it had nothing on the flat and five had heard thirty-one words, and nobody said anything about the winter and nobody asked about it and nine people in nine counties have said since that this is the only thing anybody in nine counties has ever heard about nine households and that it was said in nine words by a person who keeps beasts.
+Nobody said anything and about four people on that shoulder had heard a household say that it had nothing on the flat and five had heard thirty-one words, and nobody said anything about the winter and nobody asked about it and nine people in nine counties have said since that this is the only thing anybody in nine counties has ever heard about nine households and that it was said in thirty-one words by a person who keeps beasts.
 
 Nobody said anything and the two of them would not come over the line of the nine stones and said so out loud, in the open, on that shoulder, in their own trade, and the saying of it was about as long as it takes to turn a cart and nobody repeated it afterwards.
 
@@ -84,7 +84,7 @@ Nobody said anything and about four people on that shoulder had looked at the fl
 
 Nobody said anything and about nine people in nine counties know that there are beasts on that flat and about five know that the beasts are not the nine households, and about four people in nine counties have said since that the beasts a person can hear from four feet away are not a description of anybody and about five have said that the reason nobody has ever described anything on that flat is that there is nothing on it that anybody has stood still long enough to look at.
 
-Nobody said anything and nobody crossed the nine stones and nothing on the other side of them was seen by anybody on this side of them, and four people in nine counties have said since that the whole of what two households and nine stones produced in about four and a half years is a rota of beasts and nine words about a winter, and five have said that this is more than anybody in nine counties has got about anything else.
+Nobody said anything and nobody crossed the nine stones and nothing on the other side of them was seen by anybody on this side of them, and four people in nine counties have said since that the whole of what two households and nine stones produced in about four and a half years is a rota of beasts and thirty-one words about a winter, and five have said that this is more than anybody in nine counties has got about anything else.
 
 Nobody thanked anybody and then the ordinary half of a Tuesday in Longlight went on, and the broom is about nine acres on the east rise and it is not on and it comes on about the fourth of Rainmonth, and the light went off the low side of that shoulder at about the seventh hour and the wind came across nine hundred yards of it from the low side and there was nothing to stop it.
 
