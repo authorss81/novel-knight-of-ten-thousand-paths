@@ -1,0 +1,62 @@
+# Volume 17 Outline — Chapters 801 to 850, "The Gatehouse"
+
+**Write `outline/volume-17.md`, the volume outline for the volume that follows Volume 16, and then update the manuscript state files. Do not stop at a summary. Do not write a chapter. Do not edit `scripts/`, `.github/workflows/`, `.opencode/agent/`, `AGENTS.md`, `PHASE_SYSTEM.md`, `REPO_PLAN.md`, `OUTLINE_GUIDE.md`, `opencode.json` or `state/phase-ledger.json`. Do not repair prose in any closed volume and do not repair prose in Volume 16, which is closed. Do not write a marker of any kind, and specifically do not create `.done`, `.blocked`, `.checkpoint`, `.attempts`, `.retry-after` or `.deferred`, which are the runner's.**
+
+**`outline/volume-16.md` IS BINDING ON YOU AS THE TEMPLATE AND THE PRECEDENT, and you read it in whole and reproduce its section shape rather than inventing one, because the house expects a volume outline to look like a volume outline.** `outline/series.md`'s Volume 17 row is fixed. `outline/ending.md` is fixed. **DO NOT MOVE THE ENDING. DO NOT INTRODUCE A NEW FINAL ENEMY. THE ANTAGONIST IS THE SAME MAN HE HAS BEEN FOR FIFTEEN VOLUMES AND NO DOCUMENT YOU WRITE PUTS HIM IN A ROOM.**
+
+---
+
+## 1. What this phase is, in one sentence
+
+**Volume 16 is closed, `outline/volumes/volume-16-close.md` is on disk, and this phase writes the outline for the volume that opens on a Gatehouse that is occupied, on a paper being written by hand in about four hundred places because nobody has a seal, and on three things Volume 16 set up in its own terms and refused to conduct.** You write one document, `outline/volume-17.md`. **You write no chapter, and your only successor prompt is `workspace/volume-17/batch-0001/PROMPT.md`.**
+
+---
+
+## 2. Read before writing, in this order
+
+1. `outline/volume-16.md` **in whole**, and treat it as the shape you are reproducing. Its sections **0** (the inherited discrepancy this volume resolves on the page), **1** (volume identity and the question the volume is built on), **2** (central pressure), **3** (starting state), **4** (starting power state), **5** (major locations), **6** (major factions), **7** (the mechanics this volume runs on), **8** (escalation sequence, five blocks), **9** (volume climax), **10** (concrete resolution), **11** (next-volume question), **12** (power and cost ledger), **13** (cast plan and name budget), **14** (knowledge control), **15** (continuity traps), **16** (the recorded items) and **17** (time budget) are the seventeen sections you write, and you write seventeen.
+2. `outline/volumes/volume-16-close.md` **in whole**, and §3 and §7 and §11 and §12 especially. **§3 gives you the derived calendar and the four wrong rows of the printed table and the one wrong row of the older table. §7 gives you the money instrument with both of its failures. §11 gives you the thirty-one pages of Volume 16 that carry withdrawn figures and the prohibition on repairing them. §12 gives you the three hand-offs and the warning.**
+3. `state/current.md` **in whole**, and its fourteen numbered items at the close of Chapter 800, and its volume index, and its live prompt section, which now names this phase.
+4. `state/continuity.md` items **1764 to 1782** (Batch 0005 and the review repair pass over it) and then **1783 to 1790**, which are the close record's canon and the highest numbers in that file. **1785 gives you the calendar, 1786 gives you the money instrument and both of its failures, 1788 gives you the promises, the panel, the names and the resolution, and 1790 gives you the three hand-offs.**
+5. `state/open-threads.md` items **740 to 751** (Batch 0005 and its hand-off and the two failures of the money instrument) and then **752 to 756, which are the close record's hand-off, and 756 is the one to read last because it is this file's prohibition list.**
+6. `outline/series.md`'s Volume 17 row **in whole**, and its time-continuity ledger's Volume 17 line, and its Volume 16 and Volume 18 rows for the shape of a row, and `outline/ending.md` in whole. **Both are fixed and are not moved by anything you write.**
+7. `chapters/volume-16/chapter-0800.md` and `chapter-0798.md` and `chapter-0795.md` and `chapter-0797.md` and `chapter-0793.md` and `chapter-0783.md` and `chapter-0788.md` and `chapter-0776.md` and `chapter-0774.md`. **Read 0800 first and 0788 second.** The house voice is in those files and not in the outline. **Read 0788 whole, because the folded sheet in an unclaimed hand is one of the three things your volume opens on and it is the only paper in nine counties anybody can be shown.**
+
+---
+
+## 3. What `outline/volume-17.md` must contain, and what binds you
+
+- **The volume's own question, in its operational form, and a volume is not a volume in which a thing is rescued.** `outline/series.md`'s Volume 17 row gives you the central pressure, the beginning, the escalation, the midpoint reversal, the climax, the resolution and the next-volume question. **`outline/volume-16.md` §10's six items are the shape of a concrete resolution and your §10 has its own items, and none of them may be a rescue either.**
+- **The three hand-offs, carried forward in Volume 16's terms and none of them conducted.** A refusal in writing that is also a refusal to govern. A sealed route that somebody has claimed can be made to speak. An occupation with a gate on it and a keeper who is a local. **You may not conduct any of the three, may not fill the roll, may not put a name against a road, may not shut a road, may not destroy the roll, may not lift a hurdle, may not try a bar, may not go up that cart track a third time, and may not show what is on the far side of the ninth of the nine stones.** The first block may set them up again in its own terms and may not conduct them.
+- **A name budget of six for Volume 17, set in your cast plan and named there as `outline/volume-16.md` §13 does. Volume 16's six are all spent and none of them is available to you. Volume 15's two unspent slots are still unspent and are not available to you. `Aren Kest`, `Mara Vey`, `Tovan Kest`, `Sera Quen`, `Hester Vane`, `Orme Skell`, `Dav Rundle`, `Tarr Lyster`, `Corve Sallow`, `Renn Ottery`, `Pell Arkwright`, `Wyn Fell`, `Abel Chinn`, `Brida Lenth` and `Bessie Dellow` are established returns and cost nothing. `Sabra Rolf` and `Gallow` may not be used for a new first name, and neither may `Iven` and `Marrow`, and neither may `Renn` or `Ost` as a surname.** You may name up to six in the cast plan and no chapter spends anything until it is written.
+- **A power ledger in the shape of `outline/volume-16.md` §12, with the three conditions and the volume's own fourth.** **The standing crossing he made in Volume 15 is not crossed again in Volume 16 and you decide and state what Volume 17 does with it, in your own terms, and you say it on the page of the outline.**
+- **A time budget derived and not copied.** `outline/series.md`'s ledger gives Volume 17 **seven months of main-world elapsed and no safe independent crossing**, which on the carried thirty-day rule is two hundred and ten days. **The single anchor is day 2310, the twenty-fifth of Goatmonth YR 321, a Monday, and Volume 16 ended on day 2970, the twenty-fifth of Frostmonth YR 323, a Wednesday.** You derive the frame from the anchor and the carried month lengths, with Mudmonth at sixty and every other month at thirty, and the year turning at the first of Thawmonth, and you state the day range you are choosing and why, and you print no weekday you have not derived. **NEITHER PRINTED TABLE IS AN AUTHORITY: the one at `outline/volume-16.md` §17 is wrong in four rows, being 2766, 2826, 2916 and 2946, and the one at `outline/volume-13.md` §17 disagrees with its own stated anchor in one row, being 1986.** Name them and say so.
+- **Knowledge control, continuity traps, and recorded items, in the shape of `outline/volume-16.md` §14, §15 and §16, and the traps are the ones Volume 16 leaves and they are not yours to lift.** The fourth ruled head stays empty and no fifth head is ruled. The half leaf stays face down. The ninth of the ninth stones is not crossed and the far side is not shown. The roll is not filled in and not destroyed. The ninth yard of the wall is not started and the mallet is not picked up. The cloth is over the bench. The register holds ten questions with no finding under any of them. The day-book stands at eleven entries. The three series are three series and the band figure is not printed. The ninth thing is alive, unnamed, unheld and shut. **Nothing explains how a roadmark works and no character says what one is.** **A closed path is not destroyed and that is not good news.** **A gate coming off its hinges is not a victory.** **Four lines on a sill, a page in a woman's hand, a sentence in an unclaimed hand and a bleed that has not faded are not cures.**
+- **A cast plan that says the money instrument with both of its failures, because your first block's closing money column will be checked against it.** `outline/volumes/volume-16-close.md` §7 has it in full: over all eight hundred files the band sixty to three hundred and forty-three is 284 printed and zero free, nothing under sixty is free, a remainder belongs to the hundred it prints under and to no other, and lifting the ceiling is an outline decision which is now yours and which you take deliberately or decline on the page.
+- **And the three promises your volume makes about what it will not do, written out, so that a block that breaks one is caught.**
+
+---
+
+## 4. The prohibitions, in one list, all of which are inherited
+
+- **Do not print the antagonist's name.** Volume 16's two printings are both documents and **NEITHER MAY EVER BE PRINTED AGAIN IN THIS PROJECT.** Refer to the instrument as *that notice* or *the Marshal's hand*, which is the Volume 15 and Volume 16 precedent for a reference without a printing.
+- **Do not spend a name out of Volume 16's six.** They are all spent.
+- **Do not conduct any of the three hand-offs.** Do not resolve the sealed route and do not make the refused route speak and do not put a keeper in that office.
+- **Do not open a prohibition Volume 16 did not already carry, and do not lift one.**
+- **Do not thank anybody**, in this file or in any state file you write.
+- **Do not print the barred kin-term**, and do not print *stage*, *ledger*, *qualification*, *failed*, *charter*, *mechanism*, *small* or *custodian* in your prose if you can find a way round them.
+- **Do not move the ending and do not introduce a new final enemy.**
+- **Do not write a marker of any kind.**
+- **Do not repair the thirty-one pages of Volume 16 that carry withdrawn money figures.** They belong to closed blocks, `outline/volumes/volume-15-close.md` carries the same withdrawn set and is a closed record, and the deferral is recorded at `state/open-threads.md` 739, 751 and 752.
+- **Do not edit** `scripts/`, `.github/workflows/`, `.opencode/agent/`, `AGENTS.md`, `PHASE_SYSTEM.md`, `REPO_PLAN.md`, `OUTLINE_GUIDE.md`, `opencode.json` or `state/phase-ledger.json`.
+
+---
+
+## 5. After the file
+
+- **Update `state/current.md`** so that it names Volume 17 as the volume being opened, its chapter range, its day frame once you have chosen and derived it, and its live prompt as `workspace/volume-17/batch-0001/PROMPT.md`, **and so that it still carries the Volume 16 close figures at 2,341,266 / 196,615 / 42,948 and the rebuilt collision set and the thirty-one-page contradiction.**
+- **Append the outline's canon to `state/continuity.md` as items 1791 onward. An item number is never reused, 1783 to 1790 are taken by the Volume 16 close record, and 1791 is the next free one.**
+- **Append its hand-off to `state/open-threads.md` as items 757 onward. Items 752 to 756 are taken by the close record.**
+- **Add one paragraph on what the outline established to `state/batch-summaries.md`, and do not restate Volume 16's argument in it.**
+- **Report `state/phase-ledger.json` as still `phase-000-bootstrap`, status `planned`, attempts 0, against eight hundred chapters on disk, and do not touch it.**
+- **Create exactly one prompt and nothing else, and it is `workspace/volume-17/batch-0001/PROMPT.md`, for Chapters 801 to 810 and the first of your five blocks. THAT PROMPT OWES THE PHASE THAT READS IT EXACTLY ONE SUCCESSOR, `workspace/volume-17/batch-0002/PROMPT.md`, and it may not create a close prompt, may not create a Volume 18 prompt, and may not write a marker of any kind.**
