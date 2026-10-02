@@ -1,0 +1,81 @@
+# Chapter 0742
+
+**Wolfmonth the first, YR 322, a Tuesday and not a market morning with the room over the weigh-house shut behind its own door and the hearing not sitting and no market in that street, the ninth hour in that market street with nine people in it and four of them at the boards, and a man asking four people for one thing in four trades.**
+
+A Tuesday in that market town of about two thousand people is not a market morning, and nine people were in that street by the ninth hour of the first of Wolfmonth and four of them were at the boards with nothing on them and five were not, and the bolt on that room over the weigh-house went on from the Saturday and nobody went up the lane four hundred paces long that holds it.
+
+The first of Embermonth came and gone on a Sunday about a month ago at about the ninth hour with nothing at the boards at all, and this one is today and nothing is at them either, and that is the eleventh first of a month in a row on which nothing has happened at them, and four people in nine counties stand at those boards at about the ninth hour on a first of a month and five do not, and nobody has sent for the man who built it on any of the eleven and the badge-man has not been at two of them on purpose.
+
+Those boards have been standing since the middle of Longlight the year before and have been repainted twice and are the colour of a wet slate, and the cloth on the bench at their low end has been on it since the middle of Hearthmonth and nobody has lifted it and nobody has asked what is under it, and the lamp at the high end of them is lit at the fourth hour on every day of the week on which the light has gone off the wet slate of them, and nobody in that street has ever turned it out early.
+
+Then four days off, and about nine hundred people along that made road did the ordinary part of a Tuesday, and the ordinary part is that nothing about a Tuesday is visible on a road. Nobody thanked him and the wind on the first of Wolfmonth came off the low side and went along about nine hundred yards of that road with nothing on it to stop against, and about nine hundred pairs of hands in that market town felt it inside an hour, and four people in nine counties have said since that a county which feels the cold on the first day of a month has had it in the ground for a week and five have said that the ground knows and the people do not.
+
+Nobody said anything and a drove went up that lane four days off on the Thursday before, which was the twenty-sixth of Embermonth, at about the sixth hour, and stood in the field with the stone wall round it and came back down at about the fifth hour, and nobody went with it, and that is about thirty drove to go up that lane since the second of Mudmonth and nobody has ever written any of them down. That lane is a drove road and not a carriage road and it is about nine feet wide where nine beasts have made it, and it is not kerbed and nobody has ever kerbed it, and the grass on either side of the track has been killed by nine beasts going over it on a Thursday since the second of Mudmonth and it will not come back this year, and about four people in nine counties have said since that the only road on that hill anybody in this county drives beasts over is nine feet wide because beasts make it and five have said that a kerb there would be under nine inches of dead grass by this month.
+
+Eight of the nine yards of wall at the head of that made road are back in and the gap is about a yard long and about four feet high, and the stone is quarried two miles off on the low side and one man has been carrying it two miles in his own hands for two hundred and nine days, and the last yard is about nine feet of a course and he has not started it and nobody has asked him when he will and nobody is going to.
+
+The brood in a walled yard half a mile below that wall is five frames where there were nine on the night of the eighth of Thawmonth, and that night is two hundred and thirty-three days back, and a brood frame comes back in about four weeks in a year like this one, and about four people in nine counties have said since that a yard of nine hives is the only thing four days off that has gone up in a month and five have said that the wall has not.
+
+On that east rise the broom has been off for about nine days and about nine days of it are cut, and about nine hundred yards of a line nine feet wide is left standing where it stands, and a young man of about nineteen cut it with a sickle and carried the cuttings down in a barrow and did not stack them, and about four people in nine counties have said since that a man who cuts a thing and does not stack it has cut it for a use and not for tidiness and five have said that it is cut for a windbreak.
+
+The weigh-house on that Tuesday weighed one load of lime and nothing else, and the man who keeps it said out loud, to four people in and five out, that about four hundred and nine parish rolls come past his floor in a good month, that Wolfmonth is one day old and about ten sheets have come past that floor in it, and that nobody has ever asked him what a sheet weighs.
+
+Nobody thanked him and the inn at the high end had four beds empty that morning and put no board out, and the woman of about fifty-one who keeps that house came out into that street at about the fifth hour and stood about nine feet off those boards and did not come closer, and a chandler nine doors down put a cloth over a bench rather than write anything at all on it. That house has a fire in it from the fourth hour every morning of the year because about nine people four days off are out before the light and four of them clean a mile stone and two of them go up a hill, and about four people in nine counties have said since that an innkeeper who puts a fire in at the fourth hour of a Tuesday in Wolfmonth is keeping a fire for about nine people and five have said that she has never said so and is not going to.
+
+Nobody said anything and the near wheel of a cart came off at the low end of that street and the carter got it up again with a bar in about nine minutes and nobody stopped walking, and two women at the third door argued about a bolt of cloth for about four minutes and then went into the shop and came out with it wrapped, and about four people in nine counties have said since that those two women have argued about that bolt at about the ninth hour on about nine market mornings in four and a half years and five have said that nobody has ever seen them finish an argument about anything else.
+
+Then the fourth hour of that morning at the head of that made road four days off, and it is nine tenths of a day nobody in nine counties is looking at, and four people were asked and three of them answered.
+
+Nobody thanked him and the man of thirty-two with a stick said it out loud, in the open, at the head of that made road, at about the fourth hour, to one person, in his own trade, and it was 48 words, and nobody stopped it and nobody had been told about it.
+
+“**There was a light on that shoulder at the fourth hour of the twenty-sixth and I was the only one that saw it and I am going up there on the twenty-fifth of Wolfmonth at the fourth hour and I want somebody to stand on it with me.**”
+
+Nobody said anything and the man of about fifty-two who keeps four miles of made road under contract for about nineteen years said it out loud, in the open, to one person, in his own trade, and it was 39 words, and nobody thanked him.
+
+“**I have nine hundred feet of kerb to lay before the weather turns and I cannot lay it at the fourth hour of a morning, and I will come at the fourth hour and I will bring my board.**”
+
+Nobody said anything and the man of thirty-two said it again, out loud, in the open, at the head of that made road, at about the fifth hour, to one person, in his own trade, and it was 37 words, and nobody stopped it.
+
+“**I am going up that shoulder on the twenty-fifth of Wolfmonth at the fourth hour and I want somebody there who can see the wall from it, and you can see that wall from your own yard.**”
+
+Nobody thanked him and the young man of about nineteen who keeps those nine hives said it out loud, in the open, in his own walled yard, to about four people, in his own trade, and it was 35 words, and nobody thanked him.
+
+“**My bees are not up at the fourth hour and I have not cut that broom for four days, and I will be up on the twenty-fifth and I will have the sickle with me.**”
+
+Nobody said anything and then the man of thirty-two went down that street to the inn at the high end of it and said it out loud, in the open, in that street, at about the sixth hour, to one person, in his own trade, and it was 40 words, and nobody stopped it.
+
+“**There is a fire in your house at the fourth hour and there is none on that hill, and I am going up there on the twenty-fifth of Wolfmonth at the fourth hour and I am asking you to come.**”
+
+Nobody thanked him and the woman of about fifty-one who keeps that house said it out loud, in the open, in that street, at about the sixth hour, to one person, in her own trade, and it was 43 words, and nobody thanked her.
+
+“**I have four beds and none of them empty on a market morning and I am not going up a hill for a man I have never spoken to, and I will be at the head of that road at the fourth hour.**”
+
+Nobody said anything and then he said one more thing out loud, in the open, at about the seventh hour, to the man of forty-one who keeps the drove and the byre and about nine hundred yards of wall and who bars a gate on the lane side and has said ten words in eleven years and no more, and it was 40 words, and nobody stopped it, and that man did not answer it.
+
+“**I am going up on that shoulder on the twenty-fifth of Wolfmonth at the fourth hour and it is above your bar and above nine hundred yards of your wall, and I am asking you to be at the gate.**”
+
+Nobody thanked anybody and nothing happened after that for about as long as it takes to turn a cart twice over, and about four people in nine counties have said since that a man of forty-one who has not answered a second question in eleven years did not answer the second question anybody in this county has ever asked him and five have said that he did not refuse it either and that those are two different things and that nobody here has ever been in a position to tell them apart.
+
+The two refusals in this county were given on the fourteenth and the twenty-sixth of Fallowmonth and neither has been argued with, and that is forty-seven days and thirty-five days, and about four people in nine counties have said since that a man who has been refused twice and is now asking four other people for one thing has not asked either of those two again and five have said that a man who has been refused twice out loud in a market street has gone and asked four people in four trades on a made road four days off instead, and about four have said that that is the same county and a different question and about five have said that it is the same question.
+
+Nobody said anything and then a question came into that market street at about the tenth hour from a person at the fifth door who wanted to know one thing, and nobody stopped it, and it was not about a road and not about a wall and it was asked kindly.
+
+“**Is anybody else going up?**”
+
+Nobody said anything and four people in that market street had heard a question asked about whether anybody else is going up a hill and five had heard it asked kindly, and nobody stopped it and the man of thirty-two with a stick answered it out loud, in the open, in his own trade, and it was 32 words, and nobody thanked him.
+
+“**I have asked four people in four trades and three of them said yes in their own trade and one of them has not said anything, and that is all I have.**”
+
+Nobody thanked him and the sheet of paper with one line on it has been in an office four days off for thirty-five days, and the leaf that came in with the cart on the Monday before is in the same office and nobody in nine counties has read it, and about four people in nine counties have said since that an office of nine clerks has now got two things in it that nobody in nine counties can use and five have said that one of the two came up a made road in a cart on Monday and the other one did not move at all since the twenty-sixth of Fallowmonth.
+
+That cart came up four days of made road on the Monday before and stood outside that office for one day and went on up the road at the sixth hour with about four hundred pounds of lime in it, and it came down the made road on the Tuesday with nine sacks of wool and no paper, and about four people in that market town had worked out that a cart which goes up with paper and comes down with wool is a cart that is somebody's ordinary work and five had worked out that a cart that goes up with paper and does not stop at the weigh-house is not, and nobody has ever established which of those two a cart with paper in it is.
+
+The ninth mile stone on that made road is about the height of a knee and was cleaned with a bit of stick on the Saturday before and will be cleaned again on the Tuesday, and the eleventh mile stone is about four hundred yards past it and is about the height of a knee and has about nine hundred names cut into the side of it going back about two hundred years, and nobody in nine counties can read more than about nine of them, and nobody in nine counties has ever asked who cuts them, and the man who cleans the ninth stone does not clean the eleventh and has never said why.
+
+Nobody said anything and a hand lamp goes on the coping at the low side of a causeway four days south of that market town every Monday afternoon in the winter, and the first of Wolfmonth was not a Monday and the lamp was not put there, and the hand bell on the gate post above that coping is about the size of a fist and is rung when the water is over the causeway, and the water was not over it, and nobody in nine counties has ever asked whether anybody on that far bank knows the bell is there.
+
+Nobody thanked anybody and nothing about any of it is in a document, and there is no page in any room in nine counties with the first of Wolfmonth on it, and the register in the room over that weigh-house holds ten questions with no finding under any of them and gains none and the day-book stands at eleven entries, and the fourth ruled head is empty and no fifth head is ruled, and about four people in nine counties have said since that a man who asks four people out loud for one thing on a made road four days off has not asked anybody in the one room in this county that keeps anything and five have said that the room is shut behind its own door on a Tuesday and has been since the Saturday.
+
+**And the cost of that Tuesday is one man of forty-one who did not answer, and three people in four trades who said yes, and about four hundred paces of a lane nobody went up, are not in it and none of them has a price.**
+
+**a nail at 1, a quill at 2, a tallow dip at 3, a crate at 4, a wicket at 5, a hurdle at 6, a gate pin at 7, a hurdle hoop at 8, a wall peg at 9, and a hurdle shoe at 11.** One, two, three, four, five, six, seven, eight, nine and eleven is fifty-six pence. **A mark is forty-eight pence and fifty-six pence is one mark and eight over.** The ten columns of these ten datelines carry totals of fifty-five, fifty-six, three hundred and thirty-three, three hundred and thirty-four, three hundred and thirty-five, three hundred and thirty-six, three hundred and thirty-eight, three hundred and thirty-nine, three hundred and forty and three hundred and forty-two pence, ten distinct, and eight of the ten are free against every file in the manuscript before them because the band above three hundred and thirty-two was never searched after the ceiling was put right at three hundred and forty-three, and the other two are a deliberate reuse of two figures printed in an earlier ten, because ten distinct prices cannot sum under fifty-five and nothing free is left between sixty and three hundred and thirty-two, and no barred numeral is a price or an over-figure or a printed total in any of the ten, and every column foots four ways with the forty-eight-pence conversion checked separately from the sum.
