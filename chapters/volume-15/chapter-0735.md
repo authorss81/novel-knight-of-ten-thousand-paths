@@ -6,7 +6,7 @@ A Tuesday in that market town of about two thousand people is not a market morni
 
 Nobody thanked anybody and that is four days after a man said out loud on a made road four days off that he was going to ask the road office for one thing out loud in a market street and was not going to write to them, and about nine people in nine counties know that and about five have ever been told it, and nobody asked him whether he was going to and nobody sent anybody with him.
 
-Nobody said anything and the boards at the low end of that street have been standing since the middle of Longlight the year before and are the colour of a wet slate, and the cloth over the bench at the low end of them has been on it since the middle of Hearthmonth and nobody has lifted it and nobody has asked what is under it, and the lamp at the high end of them is lit at the fourth hour on every day of the week on which the light has gone off the wet slate of them.
+Nobody said anything and a hearing in this county stands in a street on the first of every month and has done since the middle of Longlight the year before, and it cannot be called and does not sit, and the boards it stands in are the colour of a wet slate and have been repainted twice, and nobody has lifted the cloth off the bench at the low end of them and nobody has asked what is under it.
 
 Then the man from the office, and he came down that lane from the weigh-house at about the seventh hour with a satchel and a stick and no hat.
 
@@ -16,7 +16,7 @@ Nobody said anything and nobody thanked him and he put no courtesy at anything, 
 
 Nobody thanked him and he stood about nine feet off the boards with his satchel against his leg and looked at the wet slate of them for about as long as it takes to turn a cart, and nobody stopped him and nobody told him anything and about four people in that street had worked out that a clerk looking at some boards for that long is a man waiting to be asked something and five had worked out that he is a man waiting for the street to be quiet.
 
-Nobody said anything and then the ask was made, and it was the same thing that had been asked on a shoulder eight days before, out loud, in the open, to one person, in his own trade, and it was 53 words, and nobody stopped it.
+Nobody said anything and then the ask was made, and it was the same thing that had been asked on a shoulder twelve days before, out loud, in the open, to one person, in his own trade, and it was 53 words, and nobody stopped it.
 
 “**I want to go past nine stones at the top of a lane four days off and stand on the flat beyond them and come back down and say what is on it. I have asked the man who keeps the far end of that lane. I am asking you the same thing.**”
 
@@ -32,7 +32,7 @@ Nobody thanked him and then the man of thirty-two said one thing back, and it wa
 
 “**Then that is the answer and I am not going to ask you it a second time and I am not going to write to you again either.**”
 
-Nobody said anything and four people in that market street had heard a man accept a refusal out loud in one sentence and five had heard 28 words, and nobody said anything back to him and nobody thanked him, and about four people in nine counties have said since that two men have now refused one man of thirty-two out loud in two places in eight days and five have said that neither of them refused him and both of them refused the thing and that this is the first time in this county that those two things have come apart.
+Nobody said anything and four people in that market street had heard a man accept a refusal out loud in one sentence and five had heard 28 words, and nobody said anything back to him and nobody thanked him, and about four people in nine counties have said since that two men have now refused one man of thirty-two out loud in two places in twelve days and five have said that neither of them refused him and both of them refused the thing and that this is the first time in this county that those two things have come apart.
 
 Nobody said anything and then nothing happened for about as long as it takes to turn a cart twice, and the clerk of about forty-nine put his hand on the top rail of those boards and the rail had a skin of white in it at about the ninth hour, and he said one more thing out loud, in the open, in his own trade, to nine people, and it was 33 words, and nobody thanked him.
 
@@ -56,7 +56,7 @@ Nobody thanked him and the second of Fallowmonth is three days off and the heari
 
 Nobody said anything and the room over that weigh-house was shut behind its own door with the bolt on from the Saturday and the clerk of about forty-nine went up the lane four hundred paces long that holds it and about four people in that market town had worked out that a man from a Crown office went into a room that a woman of about twenty-nine keeps and five had worked out that he did not and nobody has ever asked either of those two people anything about the other.
 
-Nobody thanked anybody and a drove went up that lane four days off on the Thursday before, which was the twenty-third of Fallowmonth, at about the sixth hour, and stood in the field with the stone wall round it and came back down at about the fifth hour, and nobody went with it, and eight of the nine yards of wall at the head of that road are back in with a gap about a yard long and one man has been carrying stone two miles on his own for a hundred and seventy-two days.
+Nobody thanked anybody and a drove went up that lane four days off on the Thursday before, which was the twenty-first of Fallowmonth, at about the sixth hour, and stood in the field with the stone wall round it and came back down at about the fifth hour, and nobody went with it, and eight of the nine yards of wall at the head of that road are back in with a gap about a yard long and one man has been carrying stone two miles on his own for a hundred and seventy-four days.
 
 Nobody said anything and the bees in a walled yard half a mile below that wall are at four frames of brood where there were nine on the night of the eighth of Thawmonth, and that night is a hundred and ninety-eight days back, and a brood frame comes back in about four weeks in a year like this one, and about four people in nine counties have said since that the hives are the only thing four days off that has gone up in a month and five have said that the wall has not.
 
@@ -82,4 +82,4 @@ Nobody said anything and nothing about any of it is in a document, and there is 
 
 **And the cost of that Tuesday is one refusal in four sentences with no reason in it, one sheet of paper in an office four days off that cannot do anything with what is on it, and about nine people who heard a man say no twice in eight days, are not in it and none of them has a price.**
 
-**a sheep peg at 1, a hurdle hoop at 2, a wall peg at 3, a wicket at 4, a hand bar at 5, a hurdle rail at 6, a bight of rope at 7, a sheet of foolscap at 8, a waxed thread at 10, and a gate pin at 13.** One, two, three, four, five, six, seven, eight, ten and thirteen is fifty-nine pence. **A mark is forty-eight pence and fifty-nine pence is one mark and eleven over.** A man of thirty-two with a stick asked a clerk of the road office in a market street on a Tuesday with no market on it for the same thing he had asked the man who keeps the far end of a lane eight days before, and the clerk said no in four sentences and explained none of them and was not thanked, and about four people in that street had worked out that neither of the two men refused him.
+**a sheep peg at 1, a hurdle hoop at 2, a wall peg at 3, a wicket at 4, a hand bar at 5, a hurdle rail at 6, a bight of rope at 7, a sheet of foolscap at 8, a waxed thread at 10, and a gate pin at 13.** One, two, three, four, five, six, seven, eight, ten and thirteen is fifty-nine pence. **A mark is forty-eight pence and fifty-nine pence is one mark and eleven over.** A man of thirty-two with a stick asked a clerk of the road office in a market street on a Tuesday with no market on it for the same thing he had asked the man who keeps the far end of a lane twelve days before, and the clerk said no in four sentences and explained none of them and was not thanked, and about four people in that street had worked out that neither of the two men refused him.
