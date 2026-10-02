@@ -1,0 +1,57 @@
+# Chapter 0736
+
+**Fallowmonth the twenty-eighth, YR 322, a Thursday and a market morning, the second hour in the market street at the boards with about four hundred people in it and about two hundred of them stopped, the room over the weigh-house open, and two refusals in eight days in two places and about four hundred people in one street.**
+
+A Thursday in that market town of about two thousand people is a market morning, and four hundred people were in that street by the second hour of the twenty-eighth of Fallowmonth and two hundred of them stopped what they were doing, and the frost came off the ruts about an hour after that, and about four people in nine counties had worked out that a man has been refused twice in a fortnight and five had not.
+
+Nobody thanked anybody and two days ago, on a Tuesday with no market in that street, a clerk of the road office had said no out loud in four sentences to a man of thirty-two with a stick, and about four hundred people in that street on this Thursday know that and about five have worked out which man he was, and about four people in nine counties have said since that a refusal in a street with nine people in it is a different thing from a refusal in a street with four hundred people in it and five have said that it is the same thing louder.
+
+Nobody said anything and the boards at the low end of that street have been standing since the middle of Longlight the year before and have been repainted twice and are the colour of a wet slate, and the hearing has not been called since the first of Goatmonth and cannot be called and does not sit, and the cloth over the bench at the low end of them has been on it since the middle of Hearthmonth and nobody has lifted it and nobody has asked what is under it.
+
+Nobody thanked him and the room over that weigh-house was open because it is a Thursday and a room over a weigh-house is open five days in seven, and the copyist of about twenty-six came down the thirteen stairs at the seventh hour and went back up, and four people in that lane saw her come down and five did not, and the register in that room holds ten questions with no finding under any of them and the day-book stands at eleven entries and the fourth ruled head is empty and no fifth head is ruled.
+
+Then the drove, which went out four days off at about the sixth hour as it goes out on every Thursday.
+
+Nobody thanked him and nine beasts went up about nine hundred yards of that lane at about the sixth hour on the twenty-eighth of Fallowmonth and stood in the field with the stone wall round it and came back down at about the fifth hour, and nobody went with it, and that is about twenty-five drove to go up that lane since the second of Mudmonth and about four hundred people in that market street have never watched one.
+
+Nobody said anything and eight of the nine yards of wall at the head of that made road are back in and the gap is about a yard long and about four feet high, and one man has been carrying stone about two miles on his own for a hundred and seventy-six days, and the last yard is about nine feet of a course and he has not started it and nobody has asked him when he will.
+
+Nobody thanked him and the brood in a walled yard about half a mile below that wall is four frames where there were nine on the night of the eighth of Thawmonth, and that is two hundred days, and a brood frame comes back in about four weeks in a year like this one, and about four people in nine counties have said since that the frame that came back came back between the sixth and the twenty-second of Fallowmonth and five have said that nobody in nine counties counted it and about four have said that one man counted it twice.
+
+Nobody said anything and the broom on that east rise is nine acres of standing dead and about nine hundred yards off and about two hundred yards above the gap in that wall, and four bundles came down two miles of unmade road off it on the eighth of Rainmonth behind two people, and about nine brooms and about nine bee brushes were made out of them and nine people took one off a board at the low end of that market street for nothing and about five did not.
+
+Nobody thanked anybody and then the ordinary half of that Thursday happened, and it is nine tenths of every day anybody in nine counties has ever had, and about four hundred people in that street went out of it into about nine trades in the middle of it.
+
+Nobody said anything and the weigh-house weighed two loads of lime and a load of wool and the man who keeps it said out loud, to four people in and five out, that four hundred and nine parish rolls come past his floor in a good month and that Fallowmonth is a month with a wet half in it and that the wet half is about a hundred and forty sheets, and nobody has ever asked him what a sheet weighs.
+
+Nobody thanked him and the inn at the high end had four beds full and put no price on a board that morning because the price had not moved since the middle of Harvestmonth, and the woman of about fifty-one who keeps that house came out into that street at about the fifth hour and stood about nine feet off the boards and did not come closer, and a chandler nine doors down put a cloth over a bench rather than write anything at all on it.
+
+Nobody said anything and the near wheel of a cart came off at the low end and the carter got it up again with a bar in about nine minutes and nobody stopped walking, and two women at the third door argued about a bolt of cloth for about four minutes and then went into the shop and came out with it wrapped.
+
+Then the part of that morning that was said out loud, and it was said by the man who was refused and not by anybody who refused him.
+
+Nobody thanked him and the man of thirty-two with a stick stood at the sea end of that market street with his right hand on it and said one thing out loud, in the open, to about four hundred people, in his own trade, and it was 45 words, and nobody stopped him and nobody thanked him.
+
+“**I have asked two people in two places in eight days for the same one thing and both of them have said no and I am not going to ask either of them again and I am not going to argue with either of them.**”
+
+Nobody said anything and about two hundred people in that market street had heard a man of thirty-two say out loud that he has been refused twice and is not going to argue about it and about nine of them had stopped what they were doing while he said it and five had not, and about four people in nine counties have said since that this is the first time in about four and a half years a man in this county has said out loud in a market street that he has been refused and five have said that it is the first time he has said out loud that he is not going to argue.
+
+Nobody thanked anybody and nobody argued with him and nobody thanked him, and about four people in that street had worked out inside about nine seconds that a man who says he is not going to argue has just been asked by about two hundred people to and five had worked out that he said it before anybody could, and about four people in nine counties have said since that saying a thing before anybody asks for it is the whole of what four and a half years of saying things out loud has taught anybody in this county and five have said that it is the whole of what it has cost.
+
+Nobody said anything and the man of about thirty-three who sells cloth three doors up had a piece of blue wool over his forearm and he took it off before the man of thirty-two had finished and put it back after, and nobody in that street has ever seen him do it four times and about four people in that market street had worked out that he took it off for the sentence and not for the man and five had worked out nothing.
+
+Nobody thanked him and the man of about fifty-two who keeps four miles of made road under contract for about nineteen years came in at about the fourth hour with about nine feet of a new kerb standing against a shop wall and he said nothing at all about the two refusals and one thing about a sheet of paper, and it was in his own trade, and it was 39 words, and nobody stopped him.
+
+“**About one line on one sheet in four days, and about nine hundred yards of a road, and the ratio of that is the ratio of this county and it has not moved in four and a half years.**”
+
+Nobody said anything and about four people in that market street had heard a roadkeeper put a ratio on this county in the open and five had heard 39 words, and nobody argued with him and nobody thanked him, and about four people in nine counties have said since that a roadkeeper can price anything that is not a road by putting it next to one that is and five have said that a roadkeeper who puts a road next to a refusal is a man who has run out of roads.
+
+Nobody said anything and the man of about fifty-eight with a badge and no head was at the high end of those boards on that Thursday and said nothing at all from the fourth hour to the ninth, and about four people in that street had worked out that he was there on a market morning and five had not, and nobody sent for him and nobody asked him anything and about nine people in nine counties have said since that the man who built the only thing in this county that can hold a decision has not been asked anything by anybody in about four and a half years and five have said that nobody has thought of a question for him.
+
+Nobody thanked him and then the light came off the west bank first and off those boards about as long as it takes to turn a cart twice over, and the lamp at the high end of them was lit at the fourth hour and stood lit until the market was gone, and about four hundred people went out of that market street into about nine trades and about nine people stayed at the boards.
+
+Nobody said anything and nothing about any of it is in a document, and there is no page in any room in nine counties with the twenty-eighth of Fallowmonth on it, and the register in the room over that weigh-house holds ten questions with no finding under any of them and gains none and the day-book stands at eleven entries, and about four people in nine counties have said since that a man saying out loud that he has been refused twice is the first thing anybody has said in that street that there is a place for and five have said that there is no place for it and that is why he said it out loud.
+
+**And the cost of that Thursday is two refusals in about four hundred mouths, one sheet of paper in an office four days off, and eight of nine yards of a wall with about nine feet of a course not started, are not in it and none of them has a price.**
+
+**a sheep peg at 1, a tallow dip at 2, a wicket at 3, a nail at 4, a hurdle at 5, a hand bar at 6, a bight of rope at 7, a coping stone at 29, a whetstone at 39, and a cresset at 40.** One, two, three, four, five, six, seven, twenty-nine, thirty-nine and forty is a hundred and thirty-six pence. **A mark is forty-eight pence and a hundred and thirty-six pence is two marks and forty over.** A man of thirty-two with a stick said out loud in a market street with four hundred people in it that he had been refused twice in eight days in two places and was not going to ask either of them again, and nobody argued with him and nobody thanked him, and a roadkeeper put a sheet of paper next to nine hundred yards of road in the same street and got the same answer twice.
