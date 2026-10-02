@@ -66,7 +66,7 @@ The rest of that Monday went on the way a Monday goes on in a market town of abo
 
 Two women at the third door took a bolt of cloth apart in the doorway over about four minutes by the clock and went in after it and came out with it wrapped and one of them carrying a second parcel she had not gone in for. A hound belonging to nobody in that street lay in the one place on the paving the sun came down on and stayed in it for about two hours while about nine people went round it.
 
-The light went off the west bank about as long as it takes to turn a cart twice over and found the upper edge of those boards, and the lamp at the high end of them was not lit, because the ninth hour of a Monday in Longlight is dark and there is nothing off the wet slate of them to need it. Five of those nine people went out into about five trades and about four stayed on at the boards.
+The light left the west bank in about as long as it takes to turn a cart twice over, and what it found first was the upper edge of those boards. The lamp at the high end of them stayed dark, because the ninth hour of a Monday in Longlight is dark and there is nothing off the wet slate of them tonight that wants a light put under it. Five of those nine people went out into about five trades, and about four stayed on at the boards.
 
 Nine doors down from those boards a cloth lay over a bench and stayed where it lay, and nobody in that street lifted it or asked what was under it. The half leaf in the press in that room over the weigh-house is face down and was not turned over on the morning a sheet was read out at the other end of that street.
 

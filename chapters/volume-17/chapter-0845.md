@@ -52,7 +52,7 @@ The light went off the west bank about as long as it takes to turn a cart twice 
 
 A cloth lay over a bench nine doors down from those boards and stayed where it lay, and nobody in that street touched it or asked what was under it. The half leaf in that press is face down and was not turned over on the last market morning of a month. The three series in that room stay three separate series and none of the three is worked out from another, and the band figure is in no document in this county.
 
-The cost of that Thursday was the leg, which took about nine miles of a made road and about four hundred yards of a lane either side of it and went from an ache to a needle on the last mile. It was the ear on the side the stick is on, which is gone, and which is the side she spoke from.
+What that Thursday cost him was the leg, which carried him about nine miles of made road and about four hundred yards of the lane that runs beside it, and which had gone from an ache at the near end of it to a needle somewhere in the last mile of it. And there was the ear on the side the stick is on, which is gone, and which is the side she spoke from.
 
 And there was, on the inside of one wrist, a bleed two hundred and thirty-three days old that had not faded by anything he had done to it, that nobody in nine counties has asked him about, that is in no document this county keeps, and that has never been said out loud in a room in front of one other person. Nothing about a place nine days off, read or unread, comes near it.
 
