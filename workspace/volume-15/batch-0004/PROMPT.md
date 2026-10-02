@@ -88,25 +88,27 @@
 
 ---
 
-## Dated correction to this prompt, appended after Batch 0002 was repaired on the page
+## Dated correction to this prompt, appended after Batch 0002 was repaired on the page, and then corrected in place after a review of that repair
 
-**A repair pass ran over the ten chapters of Volume 15 Batch 0002, being `chapters/volume-15/chapter-0711.md` through `chapter-0720.md`, after this prompt was written. Nineteen edits were made across all ten of those files, no chapter of 711 to 720 was rewritten, and no paragraph of scene prose was replaced.** Nothing in this prompt's brief is changed by it. **Read `state/continuity.md` items 1652 to 1658 and `state/open-threads.md` items 651 to 655 before writing, because five of the figures this prompt tells a writer to inherit have moved.**
+**Two repair passes have now run over the ten chapters of Volume 15 Batch 0002, being `chapters/volume-15/chapter-0711.md` through `chapter-0720.md`, after this prompt was written. The first was thirty-two changed lines across all ten of those files and the second was four changed lines across two of them. No chapter of 711 to 720 was rewritten in either and no paragraph of scene prose was replaced in either.** Nothing in this prompt's brief is changed by them. **Read `state/continuity.md` items 1652 to 1658 and 1661 to 1666, and `state/open-threads.md` items 651 to 659, before writing, because eight of the figures this prompt tells a writer to inherit have moved.** **THE SECOND PASS CORRECTED FOUR FIGURES THAT THE FIRST PASS ITSELF PRINTED WRONGLY, so a writer who inherits this table as it stood after the first pass will inherit a wrong duplicate-paragraph count and a wrong `about` floor, and both are marked below.**
 
 **THE FIGURES THIS PROMPT NAMES THAT ARE NOW SUPERSEDED, AND WHAT INSTEAD OF EACH.**
 
 | This prompt names | Standing figure now | Where |
 | --- | --- | --- |
-| 2,078,626 words | **2,078,479 words** | `state/continuity.md` 1656 |
-| 101,096 for Volume 15 | **100,949** | `state/continuity.md` 1656 |
-| 33,985 for Batch 0002 | **33,838** | `state/continuity.md` 1656 |
-| 3,369 for Volume 15's mean | **3,364** | `state/current.md` |
-| 3,398 for Batch 0002's mean | **3,383** | `state/continuity.md` 1656 |
-| FORTY-NINE GROUPS AND FIFTY-SIX SURPLUS duplicate paragraphs | **FORTY-FOUR GROUPS AND FORTY-FIVE SURPLUS** | `state/continuity.md` 1657 |
-| `about` 22.26 to 27.67 for Batch 0002 | **22.01 to 27.69** | `state/continuity.md` 1657 |
+| 2,078,626 words | **2,078,650 words** | `state/continuity.md` 1666 |
+| 101,096 for Volume 15 | **101,120** | `state/continuity.md` 1666 |
+| 33,985 for Batch 0002 | **34,009** | `state/continuity.md` 1666 |
+| 3,369 for Volume 15's mean | **3,370** truncated, 3,371 rounded | `state/current.md` |
+| 3,398 for Batch 0002's mean | **3,400** truncated, 3,401 rounded | `state/continuity.md` 1666 |
+| the ceiling of 332 pence for a ten-item column | **343 pence** | `state/continuity.md` 1664 |
+| `about` 22.26 to 27.67 for Batch 0002 | **22.26 to 27.70**, floor at `chapter-0716.md` and ceiling at `chapter-0717.md` | `state/continuity.md` 1666 |
 
-**1,977,530, 172,432 and 32,404 are unchanged and a successor still inherits them without recounting. The column foots exactly: 1,977,530 + 32,404 + 33,838 + 34,707 = 2,078,479.**
+**THE DUPLICATE-PARAGRAPH FIGURE IS NOT IN THIS TABLE BECAUSE THE ONLY FIGURE THAT WAS EVER CORRECT IS THE ONE THIS PROMPT NAMES.** **The manuscript-wide count over all seven hundred and thirty files is FORTY-NINE GROUPS AND FIFTY-SIX SURPLUS OCCURRENCES, and it was that before either repair pass and it is that now. Volume 15 contributed ZERO GROUPS to it before the first pass and ZERO after it. The FORTY-FOUR GROUPS AND FORTY-FIVE SURPLUS that the first pass printed were wrong and are withdrawn: what that pass re-cut was one verbatim run of one hundred and four words shared by `chapter-0702.md`, `chapter-0711.md` and `chapter-0715.md`, which is a repeated RUN and not a duplicated PARAGRAPH, because the three paragraphs differed at the tail.** The two variants a successor may also meet are forty-six groups and fifty-three surplus occurrences if a group must span two different files, and eleven groups if the italic document lines are excluded. `state/continuity.md` 1657 and 1666.
 
-**What did not move and what a writer of this block must not treat as moved: the ten datelines of Batch 0002 and their five market mornings, the ten money totals 152, 153, 165, 167, 171, 282, 309, 315, 327 and 330, the ceiling of 332 pence, every prohibition in §6 of the Batch 0002 brief, the one name of that block, the separation, the protagonist's age, and the whole of Volume 15's six-name budget at three of six spent.**
+**1,977,530, 172,432 and 32,404 are unchanged and a successor still inherits them without recounting. The column foots exactly: 1,977,530 + 32,404 + 34,009 + 34,707 = 2,078,650.**
+
+**What did not move and what a writer of this block must not treat as moved: the ten datelines of Batch 0002 and their five market mornings, the ten money totals 152, 153, 165, 167, 171, 282, 309, 315, 327 and 330, the ceiling of a ten-item column, which is 343 pence and not the 332 printed at first, every prohibition in §6 of the Batch 0002 brief, the one name of that block, the separation, the protagonist's age, and the whole of Volume 15's six-name budget at three of six spent.**
 
 **THREE DEFECTS WERE FOUND IN CHAPTER 0721 AND NOBODY REPAIRED THEM, because that file belongs to the closed Batch 0003 and a repair pass on Batch 0002 may not edit a closed block.** They are at `state/open-threads.md` 654 and a writer of this block **may repair them in place and may not cite Batch 0002 as having repaired them**: the lamp at the boards is not lit at the fourth hour at line 9 and is lit at the fourth hour at line 81; line 61 says about six of the nine yards of wall came down where six are the yards rebuilt and the yards that fell are nine; line 13 says five firsts of a month have come and gone and line 79 says six.
 

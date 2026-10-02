@@ -10,7 +10,7 @@ Nobody thanked him and the weigh-house weighed two loads of lime and a load of w
 
 Nobody said anything and the mud was not the mud of a wet winter, which is a thing that goes into the ground and stays there, and this was the mud of a thaw, which is a thing that comes up out of the ground in about nine days and goes away in about nine more, and four people in nine counties have said since that a road in the first week of Mudmonth is worse than a road in the worst of Frostmonth and about five have said that this is because the ground under a road in Frostmonth is frozen and a road on frozen ground is a road standing on itself.
 
-Nobody thanked anybody and the frost came out of that ground again on the Sunday night and it had been in the ruts at the low end of that market street by the seventh hour on the Monday morning, and it went to powder under a heel, and two men were unloading boards off a cart and breathing out of their mouths and not talking, because talking at that hour on a market morning costs a man about nine seconds of work he does not get back.
+Nobody thanked anybody and the frost came out of that ground again on the Sunday night and it had been in the ruts at the low end of that market street by the seventh hour on the Monday morning, and it went to powder under a heel, and two men were unloading boards off a cart and breathing out of their mouths and not talking, because talking at that hour on a Monday morning costs a man about nine seconds of work he does not get back.
 
 Then the ordinary half, which is nine tenths of every day anybody in nine counties has ever had, and which is the whole of this morning until about the fourth hour.
 

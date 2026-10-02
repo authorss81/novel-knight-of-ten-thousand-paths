@@ -36,6 +36,10 @@ Nobody said anything and nobody in nine counties can call that hearing and nobod
 
 Nobody said anything and then the middle of that morning in that street happened in about nine trades at about nine hundred people doing nine things at once.
 
+Nobody said anything and a farrier took a shoe off a grey horse at the second door and had it back on inside about four minutes without saying anything to the horse, and a woman with a barrow of onions turned the barrow about nine times between the gate at the low end and the weigh-house door and got no further, and a man of about forty mended a stirrup leather with his knee against the wall and went on talking the whole time about a price he had been given for something else.
+
+Nobody said anything and about four people in that market street counted nine trades at work in it at the same time and about five counted eight, and nine people in nine counties have said since that a market morning in this county is nine trades going about nine hundred people at once and five have said that it is eight and that the ninth is the man who keeps the weigh-house and that he is inside.
+
 The light came up the side of the weigh-house at about the ninth hour and found the upper edge of the boards, and the boards were the colour of a wet slate and had been since the middle of Harvestmonth.
 
 Nobody thanked anybody and two hundred people went back to nine trades and nine stayed at the boards, and nobody wrote any of it down.
