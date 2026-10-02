@@ -280,9 +280,9 @@ Nine hundred paces long and about nine feet wide at the crown, a hand lamp lit o
 | 2976 | Hearthmonth the first, YR 323 | Tue | not a market morning, **a month carried at thirty begins, and the twenty-third first of a month in a row**, and Chapter 0802 |
 | 3006 | Goatmonth the first, YR 323 | **Thu** | **a market morning, a month carried at thirty begins, and the twenty-fourth first of a month in a row**, and Chapter 0808 |
 | 3036 | Thawmonth the first, YR 324 | **Sat** | **a market morning, a month carried at thirty begins, the year turns here, and the twenty-fifth first of a month in a row**, and Chapter 0814 |
-| 3066 | Mudmonth the first, YR 324 | Mon | not a market morning, **a month carried at sixty begins, and the twenty-sixth first of a month in a row**, and Chapter 0822 |
-| 3126 | Longlight the first, YR 324 | Fri | not a market morning, **a month carried at thirty begins, and the twenty-seventh first of a month in a row**, and Chapter 0832 |
-| 3156 | Rainmonth the first, YR 324 | Sun | not a market morning, **a month carried at thirty begins, and the twenty-eighth first of a month in a row**, and Chapter 0842 |
+| 3066 | Mudmonth the first, YR 324 | Mon | not a market morning, **a month carried at sixty begins, and the twenty-sixth first of a month in a row**, and Chapter 0824 |
+| 3126 | Longlight the first, YR 324 | Fri | not a market morning, **a month carried at thirty begins, and the twenty-seventh first of a month in a row**, and Chapter 0837 |
+| 3156 | Rainmonth the first, YR 324 | Sun | not a market morning, **a month carried at thirty begins, and the twenty-eighth first of a month in a row**, and **the chapter is NOT FIXED, because Block 0005's ten datelines are not on disk. This cell once read Chapter 0842 and that figure was withdrawn by the Batch 0003 review pass as not derivable and almost certainly wrong, day 3156 being the eighteenth day of a forty-two-day block. Whoever writes Batch 0005 fixes it from its own dateline table and this volume's six month boundaries all carry a chapter still holds.** |
 | **3180** | **Rainmonth the twenty-fifth, YR 324** | **Wed** | **not a market morning, and this volume's last day** |
 
 **ALL SIX OF THE MONTH BOUNDARIES THIS VOLUME CROSSES CARRY A CHAPTER AND THAT IS A DELIBERATE CHOICE, made for the reason at §16 item 2, and two of the six fall in Block 0001 and one in each of the other four blocks, and a successor may not move any of them.**
