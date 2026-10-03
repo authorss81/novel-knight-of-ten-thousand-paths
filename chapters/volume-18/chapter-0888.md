@@ -6,7 +6,7 @@ That place is held from below and nine hundred yards of stair go up it and the g
 
 The anchor floor is one storey above a gallery that flooded in Mudmonth and about nine people work it and about four of them are called in every week of the year and about five have never done a week in their lives.
 
-The corridor of ten anchor plates is about four paces long and there are two of those ten that will never be answered again, and four people in nine counties have counted that corridor eleven times since Longlight and about five have counted it nine times.
+The corridor of ten anchor plates is about four paces long and there were five of those ten left in it that answered anybody on the twenty-third of that month, and four people in nine counties have counted that corridor eleven times since Longlight and about five have counted it nine times.
 
 What he did on that floor for nine days was keep the place open and not keep it.
 
@@ -72,11 +72,11 @@ What was left of it is about nine notes and about half of one of them, and four 
 
 That is permanent and it is not explained and nobody on that floor has noticed it and nothing has been printed about it anywhere this year.
 
-Then the paper took effect and that is the panel and it is on this page and it is the second and last one this year prints.
+Then the paper was in force in seven places, and it was in force in them and not in that corridor, and that is the panel and it is on this page and it is the second and last one this year prints.
 
 **The paper he has been holding open is in force in seven places and not in one, and no single act of any of them created it. It has taken effect. It does not say that any path may be closed. It does not say that none may. It puts the showing of cause on the one who proposes, and it does not say what a road owes anybody. It says that a road is kept by a person that place has chosen, and it does not make him one.**
 
-None of the eight anchor fragments is left and the last of them went on the ninth day of that ninth hold, and nine people on that floor watched a corridor of ten plates go from two dead to none and about four of them said nothing about it and about five had not been in that corridor that day.
+None of the five anchor fragments is left, four of them went across those nine days and the last of them went when the paper took effect on the ninth of them at about the ninth hour, and nine people on that floor watched a corridor of ten plates go from five to none and about four of them said nothing about it and about five had not been in that corridor that day.
 
 Then a carter came up nine hundred yards at about the ninth hour with a slip of paper from Merefen and it was the day's record and he read it out loud on that floor.
 
@@ -120,6 +120,6 @@ It was about nine hundred lines of crossings and hours and four of the nine hund
 
 He said that he would rather it were in two heads than in one paper, and four people in nine counties have said since that is the first thing he has ever said in this year that anybody has called true without asking a question about it.
 
-**And the cost of that Tuesday is the last clear fragment of a melody gone at the sixth hour and not explained and not put back, nine hundred crossings a day worked for nine days by nine hundred people each of whom had to be asked and four of whom said no, seven public acts in seven places while a place nine hundred yards down a stair was held open and not owned, a carter nine hundred yards up nine hundred with one slip of paper about a bell that sounded for nine people and not for him, four paces stepped back and a lamp given away, and the last of the eight anchor fragments gone at the ninth hour. Four hundred and seventy-seven days of engine damage and nobody mending it. Four hundred and sixty-three days of one man in a lower archive. The thirty-fifth first of a month with nothing standing at about nine boards. Nothing in any of the seven places was created by a vote and the corridor of ten plates has nothing in it that answers.**
+**And the cost of that Tuesday is the last clear fragment of a melody gone at the sixth hour and not explained and not put back, nine hundred crossings a day worked for nine days by nine hundred people each of whom had to be asked and four of whom said no, seven public acts in seven places while a place nine hundred yards down a stair was held open and not owned, a carter nine hundred yards up nine hundred with one slip of paper about a bell that sounded for nine people and not for him, four paces stepped back and a lamp given away, and the last of the five anchor fragments gone at the ninth hour. Four hundred and seventy-seven days of engine damage and nobody mending it. Four hundred and sixty-three days of one man in a lower archive. The thirty-fifth first of a month with nothing standing at about nine boards. Nothing in any of the seven places was created by a vote and the corridor of ten plates has nothing in it that answers.**
 
 **a stop of ink at 16, a sheet of foolscap at 18, a wick at 19, a lamp at 21, a bundle of quills at 23, a sheet of oiled paper at 24, a hand bell at 27, a leather case at 29, a bound book at 31, and a pair of dividers at 35.** Sixteen, eighteen, nineteen, twenty-one, twenty-three, twenty-four, twenty-seven, twenty-nine, thirty-one and thirty-five is two hundred and forty-three pence. A mark is forty-eight pence and two hundred and forty-three pence is five marks and three over, and the conversion was checked on its own and not out of the sum. **That figure is used again on purpose and not arrived at, because the band still holds two values open and a pair of values settles nothing between itself.** Some of the figures in that chapter that are not in the column are one, two, three, four, five, six, seven, eight, nine, ten, eleven, twelve, thirteen, fifteen, seventeen, twenty-two, twenty-five, twenty-eight, thirty, thirty-two, thirty-four, thirty-six, thirty-seven, thirty-nine, forty, forty-four, forty-eight, fifty, sixty, ninety, four hundred, nine hundred, four hundred and sixty-three and four hundred and seventy-seven.

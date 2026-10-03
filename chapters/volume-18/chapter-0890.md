@@ -76,6 +76,20 @@ That is the whole of it and about nine people in nine counties have said that a 
 
 The Key can no longer select a continuation and four people in that room said so out loud and about five had worked it out before it happened and did not say it out of respect for the first four.
 
+Then the Culling Order was dissolved, and it was not his doing and it did not happen in that room.
+
+That is the name the sealed-out gave it and the council never once used, and about nine people in nine counties have said it belongs to the room it is said in and not to the people it was used on, and four have said that is why it is on no document at all and about five have said that is not the reason.
+
+What ended it was a list of about nine hundred places where somebody was still keeping an office in it, and the list went out on the ordinary post with one question at the top of it, and the question was whether that place wished to go on keeping it.
+
+Four of the about nine hundred answers came back inside a month and about five hundred did not come back at all and nobody went after the ones that did not. No one answer did it and every one of them was asked by somebody with no authority to ask.
+
+The man of forty-four who runs a weekly cart to a ford had kept an office in it for about nine years, and he was asked on that floor in that week, and he wrote his answer on the back of the question in his own trade and gave the office up in nine words.
+
+And the emergency authority that came with it was not repealed by anybody in that room, because it does not need repealing. It runs out on its own date unless a local council renews it in public, and about nine people in nine counties have said that is the only power anybody gave away this year that nobody had afterwards to be trusted with.
+
+Nobody thanked him for the form either and about four people in that room had expected somebody to and about five had not.
+
 Then the trial was ordered.
 
 Not conducted. Ordered, at about the tenth hour, by a seat that has not sat for eleven weeks and that sent a mandate in writing four days ago, and four people in that room had wanted the order read and about five had wanted it left until the Monday.

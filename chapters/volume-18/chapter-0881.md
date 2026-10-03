@@ -36,7 +36,7 @@ Then the man of fifty-four asked him one question in his own trade, and nine peo
 
 He asked how anybody in that room was to know which purpose.
 
-That is the whole of the resistance and it is as old as mills, and four of the forty people there had a copy of the answer ready and five had not, and nobody in that room said the word purpose twice except the two of them.
+That is the whole of the resistance and it is as old as mills, and the answer was ready in the heads of four of the forty people there before he had got to the end of his own, and it was not ready in five, and nobody in that room said the word purpose twice except the two of them.
 
 He did not say it twice.
 
@@ -48,7 +48,7 @@ That is the better of the argument and it is not all of it, and four people in n
 
 For four and a half years he had wanted to be the person a thing is answered by, and what he wanted on that Thursday was narrower than that and cost him more, being to stop.
 
-That is the change and it happened in about the time it takes to turn a chair round, and four of the forty people in that room saw the whole of it and five saw a man sit down.
+That is the change and it happened in about the time it takes to turn a chair round, and it was four of the forty in there who saw the whole of a thing being given up and five who saw a man sit down.
 
 What he did instead of answering was to write it out.
 
@@ -60,7 +60,7 @@ That is what happened and it is not a thing anybody would have thought of, and f
 
 The miller did not say thank you and nobody in that room said anything for nine minutes, and then the miller asked him what the nine lines were for.
 
-That is the question that changed the Thursday and four of the forty people in that room had the answer ready and five did not.
+That is the question that changed the Thursday, and five of the forty people in that room did not have an answer of any kind and four of them had one written out before he stood up.
 
 He said that they were for carrying.
 
@@ -74,19 +74,19 @@ The copyist's trade is nine words long and he says it the same way every time. H
 
 He has never once charged for any of them. About four people in nine counties have offered him money and about nine hundred have not thought about it, and about nine people have said that he is the only man in nine counties anybody can hand four hundred things to.
 
-About nine hundred copies of about nine lines is not work anybody has asked him to do and it is about nine weeks of his hands, and nobody has asked him whether he will do it, and four of the forty people in that room had worked that out before he stood up and five had not.
+About nine hundred copies of about nine lines is not work anybody has asked him to do and it is about nine weeks of his hands, and nobody has asked him whether he will do it, and the number in that room who had worked that out before he stood up was four and the number who had not was five.
 
-Nobody asked him twice. That is the whole of what that room did with it, and about four of the about forty people there had expected to be asked twice and about four had not.
+Nobody asked him twice. That is the whole of what that room did with it, and about four of the forty people there had expected to be asked twice and about four had not.
 
 He said he would want it in his own hand and not out of the room, and nine people in that room heard that and four of them heard the reason in it.
 
 Then he tore the leaf out of the pad, and read the nine lines out loud for the second time to the whole of that room, and put the leaf into the copyist's hands and kept nothing.
 
-That is what he did and it cannot be undone by anybody, and four of the forty people in that room understood what it was at the time and five understood it in the street.
+That is what he did and it cannot be undone by anybody, and about four of that room had it at the time and the five who did not had it in the street.
 
 He is the one person in nine counties that a thing goes to when there is nowhere else to put it, and four people in that room had said so a year ago and five had said it was the safest place in the county, and four had said it is not safe at all and it is only the one place that has never refused anybody.
 
-The copyist put the leaf inside his coat and did not look at it again in that room, and four of the forty people there said he would have it copied by Tuesday and five said he would have it copied and would keep the original.
+The copyist put the leaf inside his coat and did not look at it again in that room, and the count of that room split the way it splits, being four who had him having it copied by Tuesday and five who had him keeping the original.
 
 Then the miller got up and put his hand flat on the table and said the last thing that is said in that room, and it is not the argument and it is not the nine lines.
 
@@ -96,21 +96,21 @@ That was fifty-nine words and forty people in that room heard every one of them 
 
 Four of them had understood the leaf before he said it and five had not, and four have said since that the miller is right about the man who cannot read and wrong about the answer, and that both of those are one act and not two.
 
-It is not that the copyist cannot read. He can read, and he reads about nine hundred signs of a coast man's shorthand in about nine minutes now, and about four of the about forty people in that room knew that and about five did not.
+It is not that the copyist cannot read. He can read, and he reads about nine hundred signs of a coast man's shorthand in about nine minutes now, and about four of that room knew that and about five did not.
 
 What the miller meant is that a sheet in a coat is not a copy, and four people in nine counties have said since that the miller is right about that too.
 
 A man in a coat is also the only person in nine counties who can be carrying four hundred different papers to four hundred different houses without anybody asking him what he is doing, and that is not nothing.
 
-It is the answer to a question nobody in that room asked, and four of the forty people there noticed that it had been answered and five did not.
+It is the answer to a question nobody in that room asked, and about four of the people in it noticed that it had been answered anyway and five did not notice anything.
 
 Nothing was made in that room and nothing was changed in it, and about four hundred people in nine counties will read about nine lines in about four weeks in four hundred places they have never been asked about.
 
-That is the whole of that Thursday and about four of the about forty people in that room have said that he came to win and left holding somebody else's argument, and five have said he came to win and lost nine minutes before he knew he was going to.
+That is the whole of that Thursday and about four of that room have said that he came to win and left holding somebody else's argument, and five have said he came to win and lost nine minutes before he knew he was going to.
 
 The engine has been damaged four hundred and forty-four days and nobody on that Thursday was mending it and nobody in that room said so.
 
-About four of the about forty people in that room have said that the about nine lines will be used against him inside four months and five have said inside nine, and four have said that the miller will be asked to say them out loud in a room again and that he will, because he has said so in this one.
+About four of that room have said that the nine lines will be used against him inside four months and five have said inside nine, and four have said that the miller will be asked to say them out loud in a room again and that he will, because he has said so in this one.
 
 Nobody at the top of that stair has heard any of it and the leaf in the copyist's coat is nine lines long and it is not a key and it does not open anything.
 
@@ -120,9 +120,9 @@ He answered none of it. He read the whole of it back once at the end of the nint
 
 That is the carrying and nobody in that room thought it was a trick, and four people in nine counties have said that since and five have said that nine times out of ten it is one.
 
-About four of the forty people in that room had wanted a fight in it on the Thursday morning and about five had wanted a victory, and about nine got about nine hundred words and a leaf in a coat.
+About four of that room had wanted a fight in it on the Thursday morning and about five had wanted a victory, and about nine got about nine hundred words and a leaf in a coat.
 
-About four of the forty people in that room had wanted to ask whether the copyist would be paid and about five had not asked, and the copyist answered it himself in four words without being asked, which is his trade.
+About four of that room had wanted to ask whether the copyist would be paid and about five had not asked, and the copyist answered it himself in four words without being asked, which is his trade.
 
 **And the cost of that Thursday is one argument written out in nine lines by the man it is about and handed to a person who cannot be asked whether he will carry it, one hour and eleven minutes of a public room let out for a sweep, forty people in it and four hundred in the street below, and one miller who came two days up a made road and will be asked to say it again in a room and says he will. The shortest interval the occupied timetable has allowed twenty hours. The engine damaged four hundred and forty-four days and nobody mending it. Nothing was made in that room and nothing was ratified in it and no road opened anywhere on it, and four hundred people in four hundred places will now hold the better half of an argument they were not in the room for.**
 
