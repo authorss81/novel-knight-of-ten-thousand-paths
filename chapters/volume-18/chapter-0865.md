@@ -30,7 +30,7 @@ He had been in that room about an hour when the interval came through on the fou
 
 “**Ten hours at the fourth and ten at the sixth and eleven at the tenth, and I have had that gate shut in front of me on a Saturday morning for about two years and I have not had one hour of it that was not somebody else's fault.**”
 
-That was forty-nine words. About four of the nine people in that room heard all of it and about five heard the end of it, and the man who keeps that crossing is a woman of about forty-four and has kept it for about nine years and she said it sitting down with her hands flat on the table.
+That was forty-nine words. Four of the nine people in that room had the whole of it inside a minute and the other five had the shape of it, and the man who keeps that crossing is a woman of about forty-four and has kept it for about nine years and she said it sitting down with her hands flat on the table.
 
 The gate bar came off its drop at about the sixth hour and he took one end of it and the keeper took the other, and that is the way it is done on that road because the bar is nine feet of ash and a man of thirty-two with a bad leg cannot lift nine feet of ash off a drop on his own.
 

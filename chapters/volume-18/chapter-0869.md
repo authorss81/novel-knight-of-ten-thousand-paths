@@ -26,7 +26,7 @@ She is from the place.
 
 Four people in that room have said somebody who lives inside a loss is the only person who can say what the loss is. Five have said somebody who lives inside a loss is the last person anybody will ask. Four of the nine had noticed that both were said and five had not.
 
-She named it herself, in her own trade, and it was not goods and it was not a trade and it was not a person, and about four of the nine people in that room heard all of it and about five heard the end of it.
+She named it herself, in her own trade, and it was not goods and it was not a trade and it was not a person, and about four of the nine people in that room had the whole of it in the time it took her to say it.
 
 “**It is not that we cannot get anything through. We can walk in and we can walk out with our arms full. What we cannot do is be told anything, and about nine days after a thing happens nobody at the end of that road knows that it happened, and then in about nine days more nobody here knows that they do not know, and then in about nine days more the whole of it is a thing that four people said once.**”
 
@@ -56,9 +56,9 @@ The lime kiln at the top of that valley is nine hundred yards above the bridge a
 
 It needs about four tons of coal a week. That coal comes up a made road from a yard about forty miles off and it comes in about four carts a week and about nine of those carts have not come up that road since the Wednesday.
 
-About nine people at the end of that cut are burning what is in the kiln and about five of them are not, and the five are the households with nobody in them between about the sixth hour and about the sixth hour, and Four people in this town have said five households in a valley of eleven hundred people is a normal night. Five have said it is not and cannot say what it is.
+About nine people at the end of that cut are burning what is in the kiln and about five of them are not, and the five are the households with nobody in them between about the sixth hour and about the sixth hour, and four people in this town have said five households in a valley of eleven hundred people is a normal night. Five have said it is not and cannot say what it is.
 
-The lime kiln is still burning. It is nine hundred yards above the bridge and it burns all winter and it needs about four tons of coal a week that came up that road from a yard about forty miles off, and about four tons a week has not come up that road since the Wednesday and about nine people at the end of that cut are burning what is in the kiln and about five of them are not.
+The five households are burning what is in the houses, which is a bench and a door and a ladder, and in one of them the boards off the bottom of a cradle, and about four people in this town have said that a kiln about nine hundred yards above a bridge will take a house apart before it goes out.
 
 There is a bridge at the south end of the valley and the bridge is nine hundred years old.
 
@@ -66,13 +66,13 @@ Four of the nine people in that room have said a bridge nine hundred years old w
 
 Then she said the last thing, and she said it because about four of the nine people in that room had asked her to and about five had not.
 
-She described an ordinary evening at one house at the bridge end on the Wednesday morning of that week, before anything happened, in the plainest words she could find, and about four of the nine people in that room heard all of it and about five heard the end of it.
+She described an ordinary evening at one house at the bridge end on the Wednesday morning of that week, before anything happened, in the plainest words she could find, and about five of the nine people in that room understood it before she came to the end of it.
 
 “**We had the fire in and the girl was doing the bottom of a bucket with a nail in it and my husband was mending the strap of a sack and the old woman was asleep in the chair with the cloth over her, and the man from the next house came in about the eighth hour with a lamp that would not light and said the thing about the weather, and that is all of it and that is what it is every night.**”
 
-That was eighty-five words and about four of the nine people in that room heard all of it and about five heard the first sentence, and nobody in that room wrote any of it down.
+That was eighty-five words and about four of the nine people in that room caught the first sentence and about five had to wait for the last one, and nobody in that room wrote any of it down.
 
-He had wanted for four and a half years to be the person a paper is built around and what was in front of him on that Monday morning was nine bundles and a woman with her hand flat on the top one of them.
+For four and a half years he had wanted to be the person a paper is built around and what was in front of him on that Monday morning was nine bundles and a woman with her hand flat on the top one of them.
 
 He could have written it all into that register. There was a page for it and there was a column for a source and there was a woman who keeps that room who would have asked him one question about the source and he would have known the answer in about four seconds.
 
@@ -84,7 +84,7 @@ She asked who was going to keep the record of it.
 
 About four of the nine people in that room said the Archive and about five said the delegation, and about four of the nine said that both of those had said so and had never yet written one line down about anything anybody could check.
 
-What he did was take the nine bundles off that table in both arms and put them down in front of the woman they came with, and he said that the holder of them was her and that the room would keep a copy of any of them she chose to leave and not one of the rest, and about four of the nine people in that room heard all of it and about five heard the end of it.
+What he did was take the nine bundles off that table in both arms and put them down in front of the woman they came with, and he said that the holder of them was her and that the room would keep a copy of any of them she chose to leave and not one of the rest, and he said all of that in about nine seconds without stopping, and four of the nine people at that table were still holding it when he sat down.
 
 She put her hand flat on the top bundle and did not move it for as long as it takes to read a sheet twice.
 
@@ -92,6 +92,6 @@ Then she said the woman before her had kept a record of that valley for nine yea
 
 Four of the nine people in that room understood what she had just said and five understood the end of it.
 
-**And the cost of that Monday is nine bundles carried up a coast road by people because nothing else can be carried up that road, about nine hundred days of somebody not being told anything at the end of a four hundred yard cut, an eleven hundred pound question answered by a woman with a nail in a bucket and a strap on a sack, and one record four hundred yards from a lamp that has gone out. The lamp out since the forty-ninth of Mudmonth. One narrow path anchor out of use for good and about four tons of coal a week not coming up a made road. Eight where there were ten. Nine rows in a register with no finding under any of them and the fourth ruled head of that page still empty and the day-book at eleven entries and gained none. One ear, one leg, and a year, and none of the three of them is what was lost off that road.**
+**And the cost of that Monday is nine bundles carried up a coast road by people because nothing else can be carried up that road, about nine hundred days of somebody not being told anything at the end of a four hundred yard cut, an eleven hundred pound question answered by a woman with a nail in a bucket and a strap on a sack, and one record four hundred yards from a lamp that has gone out. The lamp out since the forty-ninth of Mudmonth. One narrow path anchor out of use for good and about four tons of coal a week not coming up a made road. Eight where there were ten. Nine rows in a register with no finding under any of them, the fourth ruled head of that page still waiting, and the day-book at eleven entries and gained none. One ear, one leg, and a year, and none of the three of them is what was lost off that road.**
 
 **a sheet of copy paper at 1, a quill at 21, a ream of writing paper at 22, a sheet of blotting paper at 24, a stop of ink at 27, a twine ball at 31, a leather case at 32, a firkin of lamp oil at 34, a cake of ink at 37, and a chest of tallow candles at 40.** One, twenty-one, twenty-two, twenty-four, twenty-seven, thirty-one, thirty-two, thirty-four, thirty-seven and forty is two hundred and sixty-nine pence. A mark is forty-eight pence and two hundred and sixty-nine pence is five marks and twenty-nine over, and the conversion was checked on its own and not out of the sum. **That sum is an old figure of this manuscript put to a second use, because the two numbers still standing free in that band do not decide anything between themselves.** Some of the figures in that chapter that are not in the column are two, three, four, five, six, seven, eight, nine, ten, eleven, twelve, thirteen, fourteen, fifteen, sixteen, seventeen, eighteen, nineteen, twenty, twenty-three, twenty-five, twenty-six, twenty-eight, twenty-nine, thirty, thirty-three, thirty-five, thirty-six, forty-eight, four hundred, nine hundred, eleven hundred and four.

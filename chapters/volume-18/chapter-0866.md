@@ -60,7 +60,7 @@ The count on that floor went from ten to eight between about the fourth hour and
 
 Then the Key, which is assembled out of ten anchor fragments and is the only reason the whole network can be forced toward one approved continuation, tried to do the only thing a thing made of ten pieces can do with eight of them, and it tried to compensate.
 
-Nobody on that place has ever seen a compensation and nobody on that place has ever caused one, and Four people in nine counties have said the arrangement is not a machine and five have said a thing which answers a shortfall by closing something is a machine and that nobody built it and it built itself out of about nine hundred crossings and about nine questions.
+Nobody on that place has ever seen a compensation and nobody on that place has ever caused one, and four people in nine counties have said the arrangement is not a machine and five have said a thing which answers a shortfall by closing something is a machine and that nobody built it and it built itself out of about nine hundred crossings and about nine questions.
 
 The hill is four hundred yards long and the road runs in under it in a cut about nine feet wide with the stone dry-laid either side, and about nine hundred years is the age somebody has put on the stonework and nobody has checked it. There is a room at the middle of it with a lamp in it that has been kept burning every night since the breach by somebody who is paid in butter.
 

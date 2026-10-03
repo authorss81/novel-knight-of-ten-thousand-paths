@@ -80,7 +80,7 @@ The first was a tally on a bridge in a county he is not in. The second was a lin
 
 He has never once put himself in a column, and on that Saturday in a room above a court he was asked to do the opposite of that and he did it, and what he did was take a pen out of a woman's hand and put it down on his own side of a table and push it back.
 
-Then the woman of about forty-four wrote a different sentence, and she wrote it in about nine minutes and she read it out before anybody had agreed to it and she read it in her own trade and about four of the nine people in that room heard all of it and about five heard the end of it.
+Then the woman of about forty-four wrote a different sentence, and she wrote it in about nine minutes and she read it out before anybody had agreed to it and she read it in her own trade, and nobody at that table had to ask her to say it a second time and four of them were still writing when she stopped.
 
 “**A community that refuses contact has not thereby closed anything, and the refusal may be questioned only by the one person named in the fourth column, and no question of the same refusal may be put twice.**”
 
