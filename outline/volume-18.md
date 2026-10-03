@@ -1,0 +1,456 @@
+# Volume 18 Outline
+
+**Year:** 18 — A World Without Its Knight (Chapters 851–900), the last year of this manuscript
+**Dominant pressure:** political pressure, taken from the pressure rotation table at `outline/series.md` and not chosen again after the year before this one, which ran action and survival. **The engine is open and there is no longer anybody in charge of it, and every party around it can be right about what a road owes and still be unable to say it in a form another party will sign.**
+**Recovery anchor:** **ordinary bridge work in every late chapter**, quoted from the rotation table, **and the whole of the last twenty chapters of this year is work: a toll bridge, a market, an inspection, a season's closure, a road that is rebuilt by people who are not him.**
+**Relationship work:** **marriage, offices kept separate, refusal of a title.** The legal form deferred through two years comes due here and comes due in a short civil rite after the paper is ratified, and neither of them is asked to become the other's office.
+**Power arc:** **a giving up and not a crossing.** The standing capacity is behind him, is not crossed in any of the fifty files, is spent and surrendered rather than used, and the surrender is the year's only power work.
+**Main-world elapsed:** **day 3391, the twenty-sixth of Goatmonth YR 324, a Thursday, to day 3690, the twenty-fifth of Frostmonth YR 325, a Tuesday.** Two hundred and ninety-nine days elapsed and three hundred inclusive, being ten carried months on the carried thirty-day rule, in five parts of sixty days each. **The year turns inside the first part, at day 3396, which is the first of Thawmonth YR 325.**
+**THE TWO HUNDRED AND TEN DAYS BEFORE THIS YEAR'S FIRST PAGE ARE NOT ITS OWN AND ARE NOT DRAMATISED, and the reason, the arithmetic and what the gap buys are at §0.3.**
+**Companion documents:** `outline/ending.md` in whole and without exception, `outline/series.md`'s Volume 18 row in whole, `outline/volumes/volume-17-close.md` in whole and especially its §3, §6, §7, §9, §11, §12 and §13, `state/current.md` at the close of Chapter 850, `state/continuity.md` items 1904 to 1935, and `state/open-threads.md` items 837 to 861. **Read 848 and 853 first, 860 and 861 second and 859 last.**
+**`outline/series.md` and `outline/ending.md` are fixed and are not moved by this document, and this document is not a proposal for a different ending. It is the plan that delivers the ending already written.** No new final enemy is introduced anywhere in it, and no page of it may introduce one.
+
+---
+
+## 0. Two inherited discrepancies this year resolves on the page, and it says it is resolving them
+
+### 0.1 The stall prohibition, which is discharged by this file existing
+
+**`state/current.md`'s live-prompt section and `state/open-threads.md` 847 both forbid this phase from creating anything, and `AGENTS.md` assigns the prompt for this file to the close record, and the prohibition was written by the same pipeline that dispatches on the pipeline's absence of a successor. A prohibition of that kind is not a rule. It is a stall with a legal-looking sentence on it, and it is the stall that cost the year before this one its successor once already, and the finding is at `state/continuity.md` 1916 and `reviews/volume-17/batch-0005.md`.**
+
+**The resolution taken is the one item 736 gave and the one this project has now used twice: a budget and a prohibition are both a phase's, and a phase is discharged by doing the work the prohibition was standing in front of.** This file discharges it. `outline/volume-18.md` exists from here, so the successor of this phase is one batch of ten chapters and not nothing at all, and **this phase writes exactly one prompt, `workspace/volume-18/batch-0001/PROMPT.md`, for Chapters 851 to 860, and no other file in `workspace/`.** No second outline prompt. No close prompt for the year before this one. No marker of any kind. **And the successor of that batch is not this phase's to write and is not this phase's to forbid: a batch prompt that binds itself to create no successor has cost this project a year twice, and this one may not do it a third.**
+
+### 0.2 The one figure whose owner this phase was, re-derived here rather than inherited
+
+**`state/open-threads.md` 849 records that the base of thirty-six groups and thirty-seven surplus occurrences, which five parts of the year before this one carried, does not reproduce on the instrument named for it at `state/continuity.md` 1875, and that the owner of that is this phase. This file re-derived it on all eight hundred and fifty files on six readings and the finding is that the base reproduces exactly, and that the whole of the trouble was never arithmetic.**
+
+The instrument in every row is a paragraph split on the blank line, internal whitespace normalised, heading lines skipped, and paragraphs of the stated threshold words or more counted with `.get(key, 0)` and never `key[key]`. What is folded is named in the second column. The left figure is over the eight hundred and fifty files and the right figure is over the eight hundred and forty that stood before the last part of the year before this one.
+
+| Threshold | What is folded beside the asterisks | 850 files | 840 files | Delta |
+| --- | --- | ---: | ---: | ---: |
+| fifteen words | nothing else | **36 groups, 37 surplus** | 36, 37 | **0 / 0** |
+| fifteen words | the quotation marks | **39 groups, 40 surplus** | 39, 40 | **0 / 0** |
+| fifteen words | the quotation marks and `, . ; : ! ? ( ) [ ] —` | **41 groups, 42 surplus** | 41, 42 | **0 / 0** |
+| twelve words | nothing else | 40 groups, 41 surplus | 40, 41 | 0 / 0 |
+| twelve words | the quotation marks | 43 groups, 44 surplus | 43, 44 | 0 / 0 |
+| twelve words | the quotation marks and the punctuation | 45 groups, 46 surplus | 45, 46 | 0 / 0 |
+
+**SO THE BASE OF THIRTY-SIX AND THIRTY-SEVEN REPRODUCES AND IS THE FIFTEEN-WORD READING WITH THE ASTERISKS FOLDED AND THE QUOTATION MARKS AND THE PUNCTUATION LEFT IN, and the base was never un-reproducing at all, and the claim to the contrary at `state/open-threads.md` 849 and at `state/continuity.md` 1917 is withdrawn.** Thirty-nine and forty reproduces on the same reading with the quotation marks folded as well, which is what `state/continuity.md` 1875 actually describes, and forty-one and forty-two reproduces on the same reading with the punctuation folded as well. **AND FORTY-ONE AND FORTY-TWO IS A FIFTEEN-WORD FIGURE AND NOT A TWELVE-WORD ONE, which corrects the labelling at `state/continuity.md` 1934 item four, because the twelve-word reading with the punctuation not folded gives forty and forty-one.** Forty-seven and forty-eight reproduces on none of the six readings tried and is recorded as unreproduced.
+
+**AND THE LESSON IS THE one this project has now paid for twice, and it is the same lesson in the prose and in the figures, and §18 is this year's whole reason for existing. Six different numbers were published for one quantity and the instrument was attached to none of them, so each successor compared its own number against a base measured on somebody else's reading and called the result a contradiction. A number is not a measurement. A number with its instrument is a measurement, and the instrument is the part that has to be written down.**
+
+### 0.3 The two hundred and ten unrecorded days, and why this year does not open on the day after the last page
+
+**THE YEAR BEFORE THIS ONE ENDED ON DAY 3180 AND THIS ONE OPENS ON DAY 3391, AND THE DIFFERENCE IS TWO HUNDRED AND TEN DAYS, WHICH IS EXACTLY THE LENGTH OF THAT YEAR, and no chapter of this year is set in any of it and nothing in it is dramatised and no figure in it is carried.** The reason is the clock.
+
+**`outline/ending.md` says the storm on the eleventh anniversary of the Sundering is this year's clock and that it sits inside Chapters 851 to 858. `outline/volume-01.md` fixes the date of that anniversary at the nineteenth of Mudmonth. In this chain the nineteenth of Mudmonth of this year's year is DAY 3444, and 3444 cannot be inside a first part of sixty days that opens on 3181.** A year that opened on the morning after the last page could not carry its own clock in its own first part, and the clock is the one thing `outline/ending.md` puts inside the first eight chapters. **THE YEAR THEREFORE OPENS TWO HUNDRED AND TEN DAYS LATER, which is the only available place, and the reconciliation is recorded rather than smoothed: `outline/ending.md` names that storm by its first occurrence, which was the year this manuscript began, and `outline/volume-01.md` is what fixes the calendar date, and this file fixes nothing about the ending and moves nothing in it.**
+
+**AND WHAT THE GAP BUYS IS THREE THINGS THAT COULD NOT BE TRUE THE DAY AFTER A BREACH, and all three are in `outline/ending.md`'s starting state and would have been false without the gap.** A Bellweather-Living representative has arrived on its own terms. A court mandate exists and carries no army. Ten path communities and several main-world provinces are connected by fragile roads with no institution holding any of them, which is a condition you get after seven months of argument and not after one night of it. **The gap is the reason the starting state at Chapter 851 is the starting state the ending gives and not a fresher and thinner one, and it is a deliberate choice and not a hole.**
+
+### 0.4 What this phase writes, and what it does not
+
+**This phase wrote one file, this one, and it creates exactly one prompt in `workspace/`, being `workspace/volume-18/batch-0001/PROMPT.md` for Chapters 851 to 860, and it created no chapter and no new prose for the manuscript and repaired no prose in any closed year and none in the year before this one, and printed no name of the antagonist, printed no name of the protagonist's woman for the first time anywhere except in a state file where the fact is recorded, thanked nobody, moved no dateline, moved no money total, wrote no marker of any kind, and touched no controller file.** `AGENTS.md`, `PHASE_SYSTEM.md`, `REPO_PLAN.md`, `OUTLINE_GUIDE.md`, `opencode.json`, `scripts/`, `.github/workflows/`, `.opencode/agent/` and `state/phase-ledger.json` were not edited.
+
+---
+
+## 1. Year identity, and the question this year is built on
+
+**`outline/series.md`'s row for this year states a central pressure, and it is that the Culling Order's remaining forces and the damaged engine can still collapse into a single history, and that the surviving paths and the main-world provinces must create a common system before the next forced severance occurs. Its question, in its own words and not improved on, is: what happens when the road engine is opened to thousands of people who disagree about what a road owes them.**
+
+**What the year before this one asked and did not answer:** *who does a road belong to.* It answered it by refusing to put a name on any line, which is a position and not a plan, and it left about four hundred places writing the same paper by hand with no two copies agreeing and nobody knowing how a paper gets from one of them to another.
+
+**What this year asks and has to earn:** **that the answer is not a keeper.** It is not that a better keeper can be found, and it is not that a worse one should be removed. It is that a road can be owed to people who are not in the room, that the burden of showing that a road should close belongs to the person proposing that it does, and that a person who can see the cost of a road most clearly is not the person entitled to pay it alone. **The man this manuscript is about spends the year being the most useful and the most dangerous person in every room he is in, and he finds out in the first eight chapters that the communities would rather have the dangerous one removed than have the useful one confirmed, and the finding is that both of those were the same offer.**
+
+**AND THE YEAR'S REAL PROBLEM IS NOT A PERSON.** The man in the lower archive is the antagonist and he is the one `outline/series.md` names in its final answers and this file does not name, because his name was printed twice in this project, both in documents, both spent, and it may never be printed again. **The engine of the year is a question about obligation that every party gets right and cannot agree on.** A court official is right that three thousand unconnected roads will kill somebody this winter. A bridgewright is right that a road nobody has to answer for is not a road. A woman who keeps records is right that a claim nobody can check is not a claim. A delegate from a community that lost everything to a cull is right that the Crown has no standing to be asked. A woman who lost her city to a wound is right that separation is how the wound grows. **All six of those are on the page, out loud, in rooms, by six people who are not him, and the year does not decide between them. The year builds the thing under them, and the thing under them is that no road on the network has a single keeper, including him.**
+
+---
+
+## 2. Central pressure
+
+- **The man in the lower archive** wants **the whole system to agree on one history before another separation happens, and he is right that separation has cost three regions their own anchors, and he intends to end the possibility of a second one by making the choice once and permanently.** His want is not a want for power. It is a want for the argument to be over.
+- **A woman who keeps the distributed Archive and is about twenty-nine** wants **a record that can be checked by somebody who was not in the room when it was written, and she has spent two years building one, and she has discovered that the hardest person to convince of a record is the man it is about.**
+- **A bridgewright who leads the independent crews** wants **the crossings to be run by the people who stand on them, and he has said since the year before last that a road run on somebody else's order is not a road, and this year he is asked to run the whole network and he accepts it on condition that he has no power to open anything at all.**
+- **A woman who leads the Bellweather-Living delegation** wants **her community to come out of this with the right to refuse the Crown in writing and in a form that survives her, and she has said in a room that a guarantee given by a person is a guarantee that dies with the person.**
+- **A woman with a court mandate and no army** wants **a procedure in which a path can refuse contact without being treated as an enemy, and she has been told by two provinces that the procedure she wants is a confession of weakness in a document that will be read for forty years.**
+- **The man himself** wants **to be the thing that holds this together, for about nine more months, and to do it well, and the year is built on the discovery that wanting that is the one thing nobody in it will allow.**
+
+**The year's question in its operational form:** *three hundred roads are connected to one damaged engine and one person can still reach most of them at once, and about nine other people would like that person to stop, and nobody has said out loud why.*
+
+**The answer the year gives is a paper that no single vote creates, held open for as long as it takes by a man who is not its keeper and cannot command anybody in it, and by the last of Chapter 900 the road at the near end of it is opened by three people who are not him and he is standing four paces away with a tool bag.**
+
+---
+
+## 3. Starting state at Chapter 851
+
+**Everything below is on the page. It is taken from `outline/ending.md`'s starting state and from `state/current.md`'s items at the close of Chapter 850 and from nothing else, and the movement across the two hundred and ten unrecorded days is named at §0.3 and is the only thing in this section that is not on a page.**
+
+### 3.1 The man
+
+Thirty-two, and the age is thirty-two and is not recounted upward anywhere in this year, because the manuscript's own figure has been thirty-two since its first page. A permanent limp in the right leg, worse than at the close of the year before this one. A ferrier's stick in his right hand, and **no hearing on the side the stick is on, and that side is the side the woman he lives with spoke from, and that is a thing he plans around and not a discovery.** A road-marked left palm. A notebook with eleven lines and no words in them and a separate leaf with a seventh line that says *a person*. **He cannot cross safely without somebody standing with him and he cannot get off grass on the first attempt.** A bleed on the inside of his left wrist and along the heel of his left hand, **two hundred and sixty days old at the last page of the year before this one, four hundred and seventy-one days old on this year's first page and seven hundred and seventy days old on its last, and it is not cured, not explained, given no panel, never said out loud in a room in front of one other person, in no document, and no character in any of the fifty files notices it.** And **the last clear thing he will ever have of the woman who carried him out of a sealed place** came to him on a floor in the dark two years ago and is not in the notebook and nobody knows.
+
+### 3.2 The woman who keeps the records
+
+About twenty-nine, keeper of the Archive, which is distributed and in at least six places and is not the four hundred hand-written papers and does not answer to them and is not them. **Her name is `Mara Vey`.** A room over a weigh-house in a market town of about two thousand people four days off the coast, thirteen stairs, a deed of thirteen words, a press standing open with no date, a register at ten questions and no findings, a fourth ruled head empty, a day-book at eleven entries. **She is not the woman who wrote the sentence on the folded sheet and nobody has asked her whether she wrote it.**
+
+### 3.3 The occupied place, held from below
+
+**Still occupied. The upper terraces are out of the hands of the men who held them and the place is held from below. The central engine is damaged and the damage is not a victory and is not curable in this year and is nobody's achievement. The Last Common Key exists and is assembled out of ten anchor fragments, and the First Witness has had its trigger reversed, and the two together are the only reason the whole network can be forced toward one approved continuation.** One man went into the lower archive two hundred and forty-eight days before this year's first page and **has not come out, and he is the antagonist, and no chapter of this year may put a page in his mouth before Chapter 875 and no chapter may put him in a room before Chapter 875.**
+
+### 3.4 The ten communities and the provinces
+
+Ten path communities and several main-world provinces are connected by fragile roads. **No institution has legitimate custody of any of it.** Their consent is conditional and revocable and their representatives attend on their own terms. **Four hundred places in nine counties are writing the same paper by hand, no two copies agree, nobody knows how a paper gets from one of them to another, and this year's paper is a different object from those and is never described as the same thing as them.**
+
+### 3.5 The wound
+
+**The Unwritten Wound is active along the occupied place and it appears in maps, in contracts and in family histories.** It grows from forced history and from oaths nobody could refuse. It can be contained and it cannot be wished away. **A scar of nine hundred days old in a county he is not in stops at the ninth of nine stones and will not close over, and this year it is eight hundred and eleven days old on its first page and eleven hundred and ten on its last, and no chapter of this year goes there.**
+
+### 3.6 The six people the ending already has
+
+**`Tovan Kest`**, of the same house and the same name, whose argument with him about the Sundering is not to be erased and who has spent two years refusing to open a road on his order. **`Lysa Fenn`**, with a court mandate and no army. **`Orrin Shade`**, who can make anchor-glass and refuses to hand all of it to any one government. **`Sera Quen`**, who leads the Bellweather-Living delegation. **`Sabin Dain`**, who surrendered on the twenty-second of Longlight and whose trial is not conducted and does not end and whose name is not printed. **`Ilyra`**, whose sealed path has said nothing since it was closed.
+
+### 3.7 The county apparatus, standing untouched in a county he is not in
+
+**None of it moves in this year and no chapter of this year is set in that market town.** The roll is three hundred and fifty-three days on a frame with nine empty lines on each of three copies and the fourth line empty on all three. The notice is four hundred and seventy-four days past its own date and has shut nothing. The sheet with a date on it nailed up beside the roll and not over it is one hundred and forty-six days past. The low room at the back of the office has a drawer eleven inches deep in it that was not opened once in two hundred and nine days and is not opened in this year either. The four lines of chalk under a hood are still four and are still not writing. **Merefen is not that market town and no chapter of this year puts the two in the same street.**
+
+---
+
+## 4. Starting power state
+
+**The standing capacity is behind him and is not crossed in any of the fifty files. There is no new working in this year and the word for one is not printed in it. No route is opened by him alone at any point in the fifty files after Chapter 888, and before Chapter 888 he opens routes only with somebody else's hands on the other end.**
+
+**The year's power work is a surrender with a date on it.** In Chapters 851 to 866 he is the most capable keeper on the network and that is exactly what makes him dangerous, and in 867 to 883 he hands the work to other people one at a time, and in 884 to 890 he holds the whole place open as a bridge and not as an owner, **and in 890 the cost lands in the same scene: he loses the last clear fragment of the melody that came from the woman who carried him, and the old toll bell stops answering when he touches it, and neither is cured and neither is explained and neither gets a panel.**
+
+**At most two System panels are spent in this year and no more.** One in Part 0002, on the moment the First Witness records him as a keeper nobody can trust, **because that is the one moment in the year no character can say out loud and it would otherwise be reported in narration.** One in Part 0004, on the moment the paper he is holding open takes effect, **because a surrender that produces no printed consequence is invisible to a reader.** Parts 0001, 0003 and 0005 print none.
+
+---
+
+## 5. Major locations
+
+### 5.1 The occupied place, and its nine hundred yards of stair
+
+**THE PLACE HE WALKS INTO IN CHAPTER 851, which no chapter of the last seventeen years walked into.** About nine hundred yards of stair to the top, the gate at the top of it off its hinges since the breach and not replaced, the upper terraces cleared and held by the other side, the lower floors held, the corridor of ten anchor plates, the anchor floor, the water stair, the range, the selector room at the bottom of it with its records sealed, and the lower archive with one man in it who has not come out. **THE WORD `GATEHOUSE` IS AT ZERO ACROSS ALL FIFTY FILES OF THE YEAR BEFORE THIS ONE AND IS PRINTED IN THIS ONE, because this is the year he goes into the place and `outline/ending.md` uses the name as a proper name. That is a change and it is recorded as one.**
+
+### 5.2 The room over the weigh-house, and the six other rooms
+
+A room with thirteen stairs and a deed of thirteen words, and five other rooms in five other towns, and a public reading room that exists because people asked for one. **All six hold copies of the same record and no two of them are the record, and a claim made in one of them can be checked in another, and that is the whole of what an Archive is.**
+
+### 5.3 Bellweather-Living, and the nine other places
+
+A living community in a place that is not a ruin and not a reconstruction and not a copy. The Morrow Coast and its sea-route record. The Hearth Marches and their seed vaults and water anchors. The Glasswright Cantons and the published rules for anchor-glass. The Orchard and its buried memory. **A city that refused to be rescued once and is silent now and whose silence is cited at Chapter 889 as legitimate rather than as a thing to be corrected.** A sealed path that has said nothing since it closed.
+
+### 5.4 Merefen, and the Old Toll
+
+**A bridge crossing held in municipal trust by a guild, with a cracked bell hung on the gate post of it that a road warden bought as scrap for two pence, and a weigh-house, and a market street, and a road that is about four miles of made road and is the smoothest in nine counties.** **The bell's day of purchase is in the first year's own frame and is not in this chain, and this file does not convert it, and no chapter of this year counts the bell in days.** It may be counted in winters and nobody may count it in both.
+
+---
+
+## 6. Major parties
+
+1. **The people with the warrant**, which is about nine men in this place and about nine others who used to sit in an office four hundred miles off, **and of the about nine who hold the floor, four are named by their office on the page in this year and not by their names, and their names are not spends and are not printed.**
+2. **The provisional council**, which has a mandate, no army, a two-year emergency authority that expires unless a local council renews it in public, **and a genuine reason to want one recognisable keeper, which is the reason half of this year's failures happen.**
+3. **The ten path delegations**, which are ten separate parties and not one, and which hold a veto each and have said the word *revocable* out loud.
+4. **The Archive**, which is six rooms and a press and a woman, and which is not the four hundred hand-written papers and is not a government and has no power to close anything.
+5. **The bridge crews**, which are a labour body and not a party, and which run every crossing on the network once Part 0003 ends, **and whose leader's condition for taking the work is that his crews have no power to open a path at all.**
+6. **The Glasswright Cantons**, which make the glass and publish the rules for making it, **and which are the only party in this year whose whole position is a written standard.**
+7. **The four hundred places writing the same paper by hand**, which is not a party and has no head and has never met, **and whose distribution this year finally has an answer and the answer is a man with a bundle and not an organisation, and it is at §16 item 1.**
+
+---
+
+## 7. The mechanics this year runs on
+
+- **The private offer**, arriving in writing in Part 0001: his rank restored, Bellweather-Living kept as a controlled exhibit, one stable history for the main world. **He refuses the terms on the page and the refusal is not published, and the delay while he refuses to give a final answer is what lets rescue crews reach isolated keepers, and the delay is a choice and not a tactic.**
+- **The count of anchor fragments**, being ten at Chapter 851, **and it is the only count in this year that moves downward and it moves on the page and not in a coda: ten to eight at Chapter 866 when two local keepers withdraw, and then one at a time through Part 0003, and one at a time across Part 0004, and the last one goes when the paper takes effect.**
+- **Local keeping**, being the arrangement the year ends on and the one word this file never uses. **A place's road is kept by a person that place has chosen, who can be asked to prove anything about it and who can be replaced by that place without asking anybody.**
+- **A money column** per chapter: ten items, ten distinct prices, a total that foots four ways, the mark at forty-eight pence checked separately from the sum, and no barred numeral as a price, an over-figure or a total.
+- **THE MONEY INSTRUMENT, WRITTED OUT IN FULL SO THAT THE NEXT HAND GETS THE SAME NUMBER, WITH ALL THREE DECISIONS INSIDE IT NAMED, BEING THE ANCHOR, THE SPELLING AND THE BARE DIGIT.**
+
+> **THE FIRST DECISION IS THE ANCHOR, and it is this project's own extractor and not a new one: a printed total is read only out of the clause `is <spelled number> pence`, which `state/continuity.md` 1639 and 1649 state and `state/batch-summaries.md` 607 names in those words. A value that a chapter only names, inside a list of figures that are not in the column or inside the sentence that denies it, is not a printed total.**
+>
+> **THE SECOND DECISION IS THE SPELLING, and it stands as it always stood. Every spelling means the hundreds that value actually prints under and to no other, being *one hundred* and *a hundred* in the one hundreds, *two hundred* in the two hundreds and *three hundred* in the three hundreds, each with the remainder written as *and* the tens or as the tens with no *and*. A REMAINDER BELONGS TO THE HUNDRED IT PRINTS UNDER AND TO NO OTHER, and *a hundred and sixty-six* is one hundred and sixty-six and is not two hundred and sixty-six, and pairing every remainder with every hundred is what makes a free value look printed. A bare hundred word reads as its own remainder of zero and not as a failure to match. A hyphenated tens-and-units word reads as one word, so *eighty-seven* is eighty-seven and is not eighty.**
+>
+> **THE THIRD DECISION IS THE BARE DIGIT, AND IT IS STRUCK AND NOT SPECIFIED, and the reason is that it was never decided: *the bare digit with a non-digit on either side of it* never said whether a digit inside a date, inside a chapter reference, inside a day count or inside a spelled context counts, and those four readings give four different free sets, and no successor can be held to a number produced by a clause that does not choose between them. A total is printed as words in this manuscript and a digit in a money column is a price and never a total, so the clause has nothing to catch and is struck rather than specified. A successor who wants a digit rule may write one and must print what it changes.**
+
+**ON THAT INSTRUMENT, OVER ALL EIGHT HUNDRED AND FIFTY FILES, THE BAND SIXTY TO THREE HUNDRED AND FORTY-THREE HOLDS 270 PRINTED VALUES AND FOURTEEN FREE ONES, being 132, 212, 218, 230, 254, 266, 273, 281, 308, 314, 321, 325, 326 and 329. ELEVEN OF THOSE FOURTEEN PRINT AN OVER-FIGURE INSIDE THE BARRED SIX, their over-figures being 20, 26, 38, 14, 26, 33, 41, 20, 26, 33, 38 and 41, AND CANNOT BE PRICED AT ALL. THE TWO THAT THE OVER-FIGURE SCREEN DOES NOT CLOSE ARE 132, AT THIRTY-SIX OVER, AND 325, AT THIRTY-SEVEN OVER. THE 284-AND-ZERO THAT `outline/volumes/volume-17-close.md` §7 once published IS WITHDRAWN AND MAY NOT BE INHERITED IN ANY FORM, THE BAND IS NOT EXHAUSTED, AND NOTHING UNDER SIXTY IS FREE EITHER, the free values under sixty being 1, 15, 21, 25 and 52 and the route below sixty being shut by arithmetic rather than by a full band, being that ten distinct prices cannot sum under fifty-five.** These figures are inherited from `outline/volumes/volume-17-close.md` §7 and `state/continuity.md` 1933 and `state/open-threads.md` 860 and **this file did not re-run the instrument, and the last hand-off of it is this one.**
+
+**AND THIS YEAR'S TEN TOTALS PER PART ARE ALL REUSES, AND HERE IS THE ARITHMETIC THAT DECIDES IT, STATED ONCE SO THAT A WRITER MAY GIVE IT IN TEN DIFFERENT WORDS.**
+
+**The usable free set is TWO and not zero, being 132 and 325, and both are inside the band and both are reachable as the sum of ten distinct unbarred prices. A set of two does not determine a value. A writer who spends 132 has chosen between two and not derived one, and a writer who spends 325 has done the same thing in the other direction, and a number this manuscript has ever printed has been derived by a sum and not chosen out of a pair.** That is the reason and it is arithmetic, and it is the same reason in every one of the fifty files and it is not the same sentence in any two of them. **THE CEILING OF THREE HUNDRED AND FORTY-THREE IS NOT LIFTED AND WAS DECLINED AT `outline/volume-17.md` §7, whose third reason was that this year would be the wrong year to change the money instrument in, and this file agrees with the year that wrote that reason.** 132 and 325 are therefore left unspent and are not exhausted by being left, and no chapter of this year prints either of them as anything but a figure in a list.
+
+**AND THE RULE THAT COMES WITH IT, WHICH IS THE OPPOSITE OF THE ONE THAT PRODUCED A FOSSIL:** **no two of a part's ten closing money paragraphs may share a sentence of fifteen words or more.** The year before this one carried one such sentence in all ten files of its last part and forty-two across the fifty, and it was a sentence describing a state that no longer existed, and nobody could see it because that part's own instrument could not see a sentence that reports a count. **Each of this year's fifty closing paragraphs states the reuse in that chapter's own words, gives the arithmetic in that chapter's own words, and names one figure from that chapter that is not in that chapter's column, and a successor reading ten of them will find ten different arguments and one conclusion.**
+
+---
+
+## 8. Escalation sequence — five parts, Chapters 851 to 900
+
+**The five-part shape is floor, paper, hand-over, argument and ratification, then ordinary work. The parts are sixty days each and not forty-two, and the divisor is exact: this year is three hundred days, being ten carried months on the carried thirty-day rule, and five parts of sixty days, and a part is Mudmonth plus any one other month, which is sixty days because Mudmonth is sixty and every other month is thirty.** `outline/ending.md` gives fifty chapters in eight segments and not sixty, and every one of the fifty is placed below.
+
+### Block 0001 · Chapters 851–860 · days 3391 to 3450 · "What the River Covered"
+
+**Carries TWO month boundaries and the turn of the year: day 3396 is the first of Thawmonth YR 325 and day 3426 is the first of Mudmonth YR 325. Eighteen market mornings inside the sixty days. Ends on a Sunday.**
+
+**Ten datelines, fixed, and a successor may not move one: 3391, 3396, 3402, 3405, 3410, 3419, 3426, 3444, 3447, 3450.** Five are market mornings, being 3391, 3405, 3419, 3426 and 3447, and five are not, being 3396, 3402, 3410, 3444 and 3450.
+
+**The ten chapters, mapped:** 851 the stair and the water stair · 852 the first of Thawmonth and the shortest interval anybody has been given · 853 a yard in Merefen, and a bell on a gate post · 854 the man who wrote the offers and the offer · 855 the corridor of ten plates · 856 the record room and a claim somebody made in it · 857 the first of Mudmonth and the water · 858 the storm, and he says the date · 859 the drafting, in fragments · 860 the fragments read back and the fault found.
+
+**What it is for: to put a man inside the place for the first time in this manuscript and to make the fight for the lower floor a worked sequence of nine days rather than a report.** The escalation is physical and it is on the page: carrying water up nine hundred yards of stair against a shortening timetable, a selector plate that will not seat, a jammed gallery that has to be cleared by hand in a flood, two people he does not know well whose names are not printed and whose faces are, a wounded person carried down, a door held with a bar that somebody else is holding the other end of. **THE PART ALTERNATES FOUR SETTINGS AND NO TWO CONSECUTIVE CHAPTERS SHARE ONE: the stair and the floors, the record room in a town four days off, a delegation's room at the coast, and a yard at Merefen where a man who has been on the page since the first year of this manuscript is arguing about a bell.**
+
+**THE CLOCK.** On the night of day 3444, which is the nineteenth of Mudmonth, the occupied timetable is at its shortest, the river is loud enough to cover the sound of the lower archive being opened, and every person in this cast who was in Bellweather that night recognises the weather. **NOBODY SAYS THE DATE OUT LOUD UNTIL HE DOES, at the end of Chapter 858, and the sentence is about the weather and not about the anniversary, and no page of this part explains what any of them did that night, because the corrected judgment at Chapter 893 is where that is done and not before.**
+
+**What the writer is given to do in this part:** eight named days with a job on each, a private offer in writing that is refused on the page, one long physical sequence across nine chapters that changes the state of the place by Chapter 857, four settings, a cast that speaks and is named at §18, and one night.
+
+### Block 0002 · Chapters 861–870 · days 3451 to 3510 · "The Paper That Confirms"
+
+**Carries ONE month boundary, at day 3486, the first of Longlight YR 325, and it is the thirty-first first of a month to arrive at those boards with nothing standing at them. Seventeen market mornings.**
+
+**Ten datelines: 3454, 3458, 3463, 3467, 3470, 3474, 3486, 3489, 3500, 3510.** Five market mornings, being 3454, 3463, 3470, 3489 and 3510.
+
+**The ten chapters, mapped:** 861 the vote is called in three places at once · 862 the contradiction, out loud, by a person who is not him · 863 the provision that does it · 864 he takes the anchors and means to · 865 the strain drops and it works and it is real · 866 two keepers withdraw, the First Witness records him as a keeper nobody can trust, and the compensating closure puts one narrow path anchor out of use for good · 867 the first hand-over · 868 the first refusal, and it is his · 869 what the loss of that contact does to the people in it · 870 the morning after, and the arithmetic of what he is now.
+
+**THE MIDPOINT REVERSAL, AND IT IS `outline/series.md`'s, AND IT IS NOT A COMFORT: he attempts to resolve the crisis by taking control, the communities revoke his authority, and the first paper does not hold. AND HE SUCCEEDS FIRST.** In Chapter 865 the strain on the whole network drops and it is genuinely better and nine thousand crossings work that morning, and the price arrives on the page in Chapter 866 and not five days later in a coda: invoking the private-keeper provision causes two local keepers to withdraw their confirmations, the First Witness records him as untrusted, the Key loses those fragments, and the protocol attempts a compensating closure that puts one narrow path anchor out of use and loses that community's contact with the main world permanently. **The people there survive. Their contact does not. It is a political and emotional loss and it does not reset.** **THE YEAR'S ONE PANEL IS SPENT IN CHAPTER 866**, on the moment no character can say out loud.
+
+**What the writer is given to do in this part:** a public room, a vote, a win that is a win, a loss that lands in the same stretch of pages as the win, and the first time in this manuscript that a person refuses him to his face and is right.
+
+### Block 0003 · Chapters 871–880 · days 3511 to 3570 · "The Handing Over"
+
+**Carries TWO month boundaries, at 3516 and 3546, being the thirty-second and thirty-third. Seventeen market mornings.**
+
+**Ten datelines: 3512, 3516, 3521, 3526, 3531, 3533, 3541, 3546, 3561, 3570.** Five market mornings, being 3512, 3526, 3531, 3533 and 3561.
+
+**The ten chapters, mapped:** 871 the terms on which a place may refuse contact · 872 the first anchor moved to a person that place chose · 873 a woman who keeps records and the thing she will not do for him · 874 the steward of Bellweather-Living and a condition in her community's own hand · 875 the selector records unsealed · 876 the whole of how it works, shown by the people who built it · 877 the evidence, which is real, and three regions that lost their anchors · 878 a glasswright's bench and a rule published · 879 the coast and a record of sea routes · 880 the list of what is left and who is standing on each piece of it.
+
+**THE RELATIONSHIP WORK IS HERE AND IT IS NOT A SCENE OF TWO PEOPLE.** It is the condition in Chapter 874, the refusal in Chapter 873, and four working conversations in which he is told no by people he likes. **He does not ask her to endorse him as a symbol and she does not ask him to abandon the people who depend on his crossings, and those two things are said in two different rooms to two different people and neither of them says them to the other.** She chooses him after the public work has made the choice possible and not before.
+
+**What the writer is given to do in this part:** six named conversations in which he is refused and stays in the room, one set of records unsealed, one bench of glass with a rule written on it, and one piece of real evidence against his own position that he does not explain away.
+
+### Block 0004 · Chapters 881–890 · days 3571 to 3630 · "Seven Places and No Single Vote"
+
+**Carries TWO month boundaries, at 3576 and 3606, being the thirty-fourth and thirty-fifth. Seventeen market mornings. This is the year's centre of weight and it carries the end of the argument and the whole of the ratification.**
+
+**Ten datelines: 3573, 3576, 3582, 3587, 3592, 3596, 3602, 3606, 3617, 3630.** Five market mornings, being 3573, 3582, 3587, 3596 and 3617.
+
+**The ten chapters, mapped:** 881 he does not refute the argument with certainty · 882 the actual answer, and the burden of proof · 883 the attempt on an anchor and the work that defends it · 884 the paper, drafted in fragments, in six places · 885 an assembly that accepts representatives · 886 two communities that set their own terms and ratify last · 887 a workshop sabotaged and the choice of which anchors to repair · 888 the holding, and the cost of it · 889 a silence cited as legitimate · 890 the refusal state returns, the loss is paid, the erasure order is withdrawn, the Key is surrendered, and the trial is ordered.
+
+**THE SEVEN PUBLIC ACTS OF CHAPTERS 884 TO 890 ARE IN SEVEN PLACES AND NO SINGLE ONE CREATES ANYTHING**, being a community guaranteeing its right to refuse while opening a trade road; a coast commons sharing sea routes and records; the Marches protecting seed vaults and water anchors; the Cantons publishing the rules for anchor-glass; main-world provinces accepting path representatives in their assemblies; the Archive recording the Sundering and the names of the dead; and the emergency authority dissolved so that it lapses unless a local council renews it in public. **THE HOUR OF THE YEAR IS CHAPTER 888, AND HE HOLDS THE PLACE OPEN AS A BRIDGE AND NOT AS AN OWNER, HE CANNOT COMMAND ANYBODY IN IT, HE LOSES THE LAST CLEAR FRAGMENT OF THE MELODY IN THAT CHAPTER AND THE OLD BELL STOPS ANSWERING FOR HIM IN THAT CHAPTER, AND HE TAKES A VISIBLE SCAR FOUR TIMES IN CHAPTERS 883, 888, 889 AND 890 AND LOSES A PIECE OF PRIVATE CERTAINTY IN EACH.**
+
+**What the writer is given to do in this part:** seven places, seven kinds of work, seven different local verbs, one antagonist who is not a monster and who has the better of one argument, and one scene in which the man who holds the road open is not the one who owns it.
+
+### Block 0005 · Chapters 891–900 · days 3631 to 3690 · "The Road After the Knight"
+
+**Carries TWO month boundaries, at 3636 and 3666, being the thirty-sixth and thirty-seventh. Seventeen market mornings. Ten chapters for the last twenty of `outline/ending.md` and this is the part where the rotation table's recovery anchor has to be true in every single chapter of it.**
+
+**Ten datelines: 3636, 3641, 3645, 3650, 3655, 3661, 3666, 3675, 3680, 3690.** Five market mornings, being 3636, 3645, 3650, 3666 and 3680. **The last of them is this manuscript's last page.**
+
+**The ten chapters, mapped:** 891 what is broken and where, and the first of the thirty-seventh · 892 a roll of the dead entered as a record of amounts · 893 the corrected judgment · 894 the exhibits, and a road that closed by local decision · 895 a sealed path that refuses him, and a household · 896 a market with a disputed toll · 897 an inspection, and a man who has no power to open anything · 898 an assembly closing a road for a season · 899 a delegation arriving without an army · 900 a toll bridge at dawn.
+
+**THE LAST THREE CHAPTERS ARE ORDINARY AND MAY NOT BE MADE INTO ANYTHING ELSE.** Chapter 896 is a market with a dispute about a toll and the dispute stands unresolved at the end of it. Chapter 898 is an assembly voting to shut a road for a season because of weather and the road is shut and it is not treated as a crime. Chapter 899 is people arriving. **Chapter 900 is at dawn at a bridge he is repairing, with the cracked bell hanging near him and silent when he touches it, and the road opened by three other pairs of hands, and him standing four paces off with a tool bag while the bell answers across the water and the woman he lives with arrives with the public copy of the morning's record and they walk home.** He does not command the road open or closed at any point in this year after Chapter 890.
+
+**What the writer is given to do in this part:** ten chapters of work, four of them ordinary disputes with no antagonist in them, one judgment, one refusal, one wedding, and one dawn.
+
+### The nineteen setups, placed
+
+**Every row of `outline/ending.md`'s setup-to-payoff map is placed in this sequence above and none is left for a later year, because there is no later year.** Where a row is set up in this year as well as paid in it, the setting-up chapter is named.
+
+| Row | Setup | Where it is paid | Where it is also set up here |
+| ---: | --- | --- | --- |
+| 1 | The cracked bell, bought as scrap for two pence | Ch 900, part 0005 | Ch 853 and Ch 899, part 0001 and 0005 |
+| 2 | Ferris Oat's brine weights | Ch 892, part 0005 | Ch 856, part 0001 — a record nobody can argue with about quantity |
+| 3 | The fever account repeated in debriefs | Ch 893, part 0005 | Ch 881, part 0004, where he admits it before he is asked |
+| 4 | The bell rang in the storm of the anniversary | Ch 858, part 0001 | the storm is the year's clock and runs to Ch 890 |
+| 5 | Halven's missing-anchor book | Ch 894, part 0005 | — |
+| 6 | The Marches refusing outside command | Ch 886, part 0004 | Ch 885, part 0004 |
+| 7 | A city that refused to be rescued | Ch 889, part 0004 | Ch 877, part 0003 |
+| 8 | The cut made on a forged witness | Ch 890, part 0005 — the compensation clause | Ch 866, part 0002 |
+| 9 | The founding paper's deliberate fragmentation | Ch 884, part 0004 | **Ch 859 and 860, part 0001, where it is drafted in fragments and he is the last to understand why** |
+| 10 | Paths influencing each other through ordinary trade | Ch 896, part 0005 | Ch 879, part 0003 |
+| 11 | The First Witness refusing an unwitnessed closure | Ch 890, part 0004, by the same working and not a new one | Ch 866, part 0002 |
+| 12 | The Orchard's peace bought with a buried memory | Ch 886, part 0004 | Ch 880, part 0003 |
+| 13 | A minority route closed on his own authority | Ch 859 to 866, part 0001 and 0002 | — |
+| 14 | Both his own roads refusing to open for him | Ch 895, part 0005 | Ch 868, part 0002 |
+| 15 | One path closing itself to protect its children | Ch 894, part 0005 | Ch 871, part 0003 |
+| 16 | A community that kept its painful memories | Ch 895, part 0005 | Ch 874, part 0003 |
+| 17 | Notes addressed to a child he no longer is | Ch 895, part 0005 | — |
+| 18 | The occupier's use of the refuge register | Ch 894, part 0005 | Ch 875, part 0003 |
+| 19 | Tovan refusing to open a road on his order | Ch 897, part 0005 | Ch 883, part 0004 |
+
+---
+
+## 9. Year climax
+
+**Not a fight with a new being, and `outline/ending.md` says so on its own face: the final battle is a struggle over custody, consent, and the ability to open independent roads under pressure.** Independent keepers, bridge crews, local councils and Archive witnesses open separate anchors at the same time. **He uses the Unowned Road to hold the place open long enough for the paper to take effect.** The occupier must withdraw the order that would have erased Bellweather-Living and surrender the Key, and he does it under public witness, and it saves thousands and it does not absolve him.
+
+**The cost is permanent and it lands in Chapter 888 and Chapter 890 and not in a coda.** He loses the last clear fragment of the melody. The old bell stops answering for him. He loses exclusive entry to the paths, most of the private memories carried out of the crossings, the right to make a path contact without local consent, and the ability to hold the place alone again. **He keeps his craft, his relationships, his limp, his ear, his bleed, and his right to be asked rather than obeyed.**
+
+**AND THE OCCUPIER IS CAPTURED WHEN THE ONE ROAD LOSES ITS LAST ANCHOR AND IS NOT KILLED, and a chapter of this manuscript may not kill him and may not let him be let go.**
+
+---
+
+## 10. Concrete resolution
+
+1. **The paper takes effect**, ratified in separate locations and connected afterwards by a deliberately slow process, **and no single vote creates the world and no chapter says that it does.**
+2. **A place's road is kept by a person that place chose**, and once every live route on the network has one, the First Witness returns to its own refusal and the Key can no longer select a continuation. **The refusal state returns by the working that made it, not by a new one.**
+3. **The occupier lives, is tried, surrenders the Key, withdraws the erasure order, and is judged as a witness and not as a magistrate, and he accepts that these acts do not undo his earlier ones.**
+4. **The corrected court record resolves the central lie without pretending he was innocent of everything**: that the occupier and the Lantern Council ordered the cull, that he held the outer bridge under incomplete orders and did not reach the inner city, that he afterwards withheld his own contradictory field notes and repeated the official fever account, that he did not know the cull's purpose and that his silence helped make the lie durable. **His knighthood and full back pay are restored as matters of record. The court refuses to return him to active command while the emergency guard retains the same unreformed powers. He accepts that, and clearing his name does not require restoring the office that rewarded blind obedience.** Four other people are judged separately on their own acts.
+5. **He visits the sealed path only as a witness at its boundary and it does not open for him, and he learns that it has made its own decision about contact, and it is painful and it is the ending's central principle confirmed and not softened.**
+6. **He and the woman who keeps the records marry in a short civil rite after the paper takes effect, keep a household in Merefen, and return to separate public work: she becomes the first accountable keeper of the distributed Archive and he takes bridge contracts and trains road crews. Neither is required to become the other's office and they keep the right to disagree.**
+7. **He is invited to become the permanent First Witness and refuses the title in public**, and the name Knight of Ten Thousand Paths is recorded as an honorary name for his service and not a legal office, **and he accepts the smaller work of assisting whoever the communities choose.**
+
+**THE ENDING IS FIXED. `outline/ending.md` is the ending. This file is not a proposal for a different one, and no part of the fifty may end anywhere else, and no new final enemy appears anywhere in them.**
+
+---
+
+## 11. The reciprocal three, and how this year discharges them
+
+**The year before this one set up three things in its own terms and conducted none of them, and `outline/ending.md` requires this year to open with a fight for a lower floor and not with a victory. A successor may not learn the opposite of any of the three.**
+
+1. **A paper in about four hundred places that nobody can seal, whose copies do not agree, and whose distribution is not known to any character in that year.** **THIS YEAR ANSWERS IT, AND THE ANSWER IS NOT AN ORGANISATION.** A man who has been on the page for a year and more without a name in this context, who copies what people in a county cannot pay a clerk to copy and has said in his own trade that the paper is theirs and not his, knows how it travels: **a bundle, addressed to a person and not to a place, carried up a made road in the ordinary post and handed to whoever happens to be buying string.** That is a distribution plan, it is held by one person, it costs him a year of his hands, and no character calls it a plan. **THE HUNDRED-HAND-WRITTEN PAPERS AND THIS YEAR'S PAPER ARE TWO OBJECTS AND NO CHAPTER JOINS THEM, and the Archive is a third and joins neither.**
+2. **An occupation held from below with the engine damaged and one man in the lower archive who has not come out.** **THIS YEAR OPENS ON IT AND NOT ON THE VICTORY: Chapter 851 puts a man on nine hundred yards of stair with a bar held at the other end by somebody else, and the damage is not cured and is not this year's work, and the man in the archive has been there two hundred and forty-eight days and does not come out until Chapter 890 and by then he has been asked to come out of it.**
+3. **A man who cannot hold a paper together, is on none of them, and is the person the whole arrangement would put in the middle.** **THIS YEAR PUTS HIM IN THE MIDDLE ON THE PAGE AND THE COMMUNITIES REMOVE HIM FROM IT ON THE PAGE, in Chapters 864 to 866, and he is not argued with and he is not asked to stay and nobody is thanked.**
+
+---
+
+## 12. Power and cost, and what it comes to, for the year
+
+**THE POWER WORK OF THIS YEAR IS A GIVING UP AND NOT A CROSSING.** The standing capacity is behind him from Chapter 851 to Chapter 900, is never crossed, is spent and surrendered rather than used, and the surrender has a chapter and a scene and a scar in it. **He never opens a path alone after Chapter 888 and never commands a crossing again.**
+
+**What he gives up, and each one on the page and not in a document:** exclusive entry to the paths; most of the private memories carried out of the crossings; the chance of a whole childhood with the woman who carried him out of a sealed place; the right to make a path contact without local consent; the ability to hold the place alone; **the last clear fragment of the melody, at Chapter 888; and the ability to open a road by touching the old bell, at Chapter 888.**
+
+**What stays, and the staying is not a blank:** his craft, which is bridge work and can be done badly and well; his relationships, including the argument with Tovan Kest, which is not ended; the woman he lives with and marries; the right to be asked rather than obeyed; his limp, which is permanent; the ear on the side his stick is on, which is permanent; the bleed, which is seven hundred and seventy days old at his last page and is not cured; the scars, four of them new and visible; and **the four and a half years of ordinary work that nobody will ever make into anything.**
+
+**The cost is permanent and it is survivable, and those two facts are both printed and neither cancels the other.**
+
+---
+
+## 13. Cast plan, six named characters for the whole year
+
+**The name budget for this year is six, and the whole year may spend six, and they are six new first printings. A name is spent when it is first printed here.**
+
+**AND THE FIRST NAMING OF THE PROTAGONIST AND OF THE WOMAN OF ABOUT TWENTY-NINE WHO KEEPS THE ROOM OVER A WEIGH-HOUSE IS ONE DECISION AND NOT TWO, AND IT IS SETTLED BY `outline/ending.md` RATHER THAN BY THIS FILE, and both facts are stated here in those words because they are not in conflict and because a writer who prints only one of them gets it wrong.** `outline/ending.md` fixes both names in its Scope and in its starting state at Chapter 851, being `Aren Kest` and `Mara Vey`. `outline/volumes/volume-17-close.md` §6 records that **both stand at zero across that year's fifty files and that the reader has never seen either name.** **SO BOTH ARE RETURNS AGAINST THIS YEAR'S BUDGET AND NEITHER MAY BE CHARGED AGAINST THE SIX, and both are also the first printing of either name in this manuscript, and the reader has never seen either of them.** A return is measured against the budget and a first printing is measured against the page, and the two measurements do not touch. **A writer may not print either name for the first time in a document, in a state file, in a heading or in a list of returns, and may print it in the body of a chapter on the first page that has a person in it who is one of them, and may not delay it past Chapter 860 out of a fear that it is a spend, and may not print either name more than once in the same chapter's narration in the same form.**
+
+**`Tovan Kest`, `Lysa Fenn`, `Orrin Shade`, `Sera Quen`, `Sabin Dain`, `Iselde Senn`, `Rell`, `Halven`, `Ferris Oat`, `Delya Munn` and `Coll Ferrow` are all returns and cost nothing. The name of the woman who carried him out of a sealed place was printed once in the year before this one and may not be printed again, and the sealed path's name is fixed in `outline/ending.md` and is a return, and this file does not join the two names and does not say whether they are one person or two, and no chapter of this year may join them.**
+
+| Name | Age | Who | Want, nothing to do with him | Flaw | Part | First named |
+| --- | ---: | --- | --- | --- | ---: | --- |
+| **`Wendall Crake`** | 58 | Keeps the Old Toll crossing for the Merefen bridge guild, which holds it in municipal trust, and has kept it about twenty-two years, and hung the cracked bell on the gate post of it | For the crossing to be in the trust in his own name and not the guild's before he dies, so that something he can point at outlasts him, and he has begun putting his own name on the minute book | He signed the bell off the guild's books in a year when nobody asked what it was, and he has never told the guild that it answers, and he would rather be asked about the trust than about the bell, and he is asked about the bell | 0001 | Ch 0853 |
+| **`Nissa Carrow`** | 36 | An assessor of the Glasswright Cantons, sent to look at an anchor that has been damaged and has stayed to write down what she saw | For the rules for making anchor-glass to be published in full, including the four ways a batch can be wrong, because her own canton has kept two of them quiet for money and she has a list | She has never made glass and assesses it, and she has learned to distrust her own judgement on a bench and to overrule it from a distance, and the overrule is what the shopkeepers remember | 0002 | Ch 0866 |
+| **`Bryenna Faal`** | 54 | A steward of Bellweather-Living, sent ahead of the delegation and out of its order, with the community's own condition in her own hand | For a guarantee that will survive whoever signs it, and she has said in a room that a guarantee given by a person dies with the person, and she wants the thing that does not | She will not speak for the delegation and she is still sent by it, and every word she says in this year is read as the delegation's, and she has not corrected that once | 0003 | Ch 0874 |
+| **`Corvin Marchbank`** | 47 | Keeps the sea-route record of the Morrow Coast Commons, which is four bound books' worth of tide, wreck and landing in one man's shorthand and has never been copied | For the record to be shared and for the sharing to be the point rather than the loss, and he wants other places holding it and cannot say why | He has kept it in one hand for nineteen years and has once refused a copy to a man he liked, and he tells this year that he refused for a good reason and cannot produce it | 0004 | Ch 0884 |
+| **`Alys Kerman`** | 63 | Goes from the Hearth Marches for the first time in nineteen years, on a road made passable in the last two | For the seed vaults and the water anchors to be named in the paper before anything else is, and she has a list and the list is eleven items and it is not a list of grievances | She has said the word *refuse* out loud twice in this manuscript and both times it cost her something she has not named, and she expects this one to as well, and prepares for it in public | 0004 | Ch 0886 |
+| **`Tam Ludlow`** | 11 | Lives over a saddler's in Merefen and has been at the Old Toll since he could walk, and is a witness there on the record in his own right | To be the one who is asked to read the morning's record out at the bridge, and he has told four people this year that he will be, and nobody has asked him to | He has decided that a road belongs to whoever is standing at it, and he is often standing at it, and he has twice kept people waiting at a gate on his own judgement | 0005 | Ch 0896 |
+
+**The six of `outline/volume-17.md` and the six of `outline/volume-16.md` are closed and all spent and none is available here, and the two unspent slots that `outline/volume-15.md` closed with stay unspent and are not available here.** **`Sabra`, `Gallow`, `Iven` and `Marrow` may not be used as a new first name, and `Renn` and `Ost` may not be used as a surname. That list is four and two and not six and six, and it is at `outline/volume-17.md` §13 in those words, and a successor who wants a longer barred list must find it in the outline of the year before and must not invent one.** The protagonist's woman may not be given a surname that `outline/ending.md` does not print, and it prints none beyond the one it gives her. **The antagonist's name is printed zero times in this year and may never be printed again in this project, and it is referred to on the page only as *that notice*, *the Marshal's hand*, *the sheet*, *the offer*, *the warrant* or *the people with the warrant*.**
+
+---
+
+## 14. Knowledge control for this year
+
+| | |
+| --- | --- |
+| **What the public believes** | That a road engine with one keeper in it is the safest thing that has ever existed, and that the alternative is what happened at Bellweather. **In at least four places this is said out loud by people who have read about forty papers and met none of the other three hundred and sixty** |
+| **What Aren knows at Chapter 851** | That the occupier's authority rests on two things: the First Witness treating him as the last private keeper of the whole network, and the ten anchor fragments of the Key. He does not know how the selector works, he does not know what is in the sealed records at the bottom of it, he does not know whether the sealed path is reachable, and he does not know what happened to the people in the paths that went quiet |
+| **What he learns, and when** | The whole of how it works, in Chapter 876, from the people who built it and not from the man who is using it. The evidence that separation costs, in Chapter 877, and it is given to him and he cannot get rid of it. **And the answer, in Chapter 882, which he works out and not the other side** |
+| **What the occupier knows** | That the last thing he needs is a general, and that the general is already in the building. **He is never surprised by anything in this year, and no chapter before Chapter 875 puts him in a room, and every reference to him and to his instrument is *that notice*, *the Marshal's hand*, *the sheet*, *the offer*, *the warrant* or *the people with the warrant*** |
+| **Not available to any character** | What is in the people who went into the paths made unreachable by earlier culls; how much damage is left where no one can reach; whether the woman who carried him is alive inside the sealed path or whether it kept her history without her body; how much of that sealed path can stay independent; and the long-term effect of a visible wound on law, on family memory and on trade. **All five stay open to the last page and none is turned into a hope** |
+
+**And the two rules that follow.** First, **whenever he learns something in this year, somebody who matters already knew it and said something more careful**, and twice the somebody is the woman who keeps the records, and once the somebody is the man whose crews will run every crossing, and once it is a woman in the Glasswright Cantons who wrote the four wrong ways down before anybody asked her to. Second, **no distribution for the paper in about four hundred places is supplied by this file unless a character in this year knows one, and exactly one does, at §11 item 1, and no other and no organisation.**
+
+---
+
+## 15. Continuity traps for this year
+
+1. **The roll is not filled in and no name goes against any road**, no road is shut on the strength of any paper, and none of the three copies is taken down or torn up. **A line with a trade on it is still not a name.**
+2. **The drawer eleven inches deep is not opened and nobody is asked what a seal is for.** The register gains no entry, no fifth head is ruled, the fourth stays empty, and no finding goes under any of the ten questions.
+3. **The half leaf stays face down, the cloth stays over the bench, the four lines of chalk stay four and stay not writing, the ninth yard of the wall does not start, the mallet is not picked up, the third course of sill is unlaid, the bar at the Low Gate is not lifted, no hurdle at the cart track is lifted and no bar is tried, and nobody goes up that track.**
+4. **The ninth of the nine stones is not crossed and the far side of it is not shown**, and the dead grass stops at the ninth of them, and a writer is not to treat the omission as an oversight. **The scar is eight hundred and eleven days old at the first page and eleven hundred and ten at the last and is not cured and will not close over.**
+5. **Nobody is thanked**, not in a chapter, not in a summary, and not in a state file this year writes.
+6. **The antagonist's name is printed zero times and may never be printed again.**
+7. **The barred kin-term is at zero on all six words of the set and not two of it**, **the set being the six-word set named in full at `state/continuity.md` 1647 and at `outline/volume-17.md` §13, and a writer who wants to sweep it reads it out of one of those two places and not out of this file, because this file prints none of the six, and a sweep that names two words of the set returns a zero that looks like a pass.** This year has a wedding in it and an eleven-year-old and a sixty-three-year-old and a trial, and the set is at zero on all of them.
+8. **The woman who carried him is not named again** and the sealed path's name is a return, and **the two names are not joined by anybody, including by implication.**
+9. **No consent is obtained, asked for, received or inferred from any sealed community**, no sealed road is named, and **Chapter 895's refusal is the path's own act and not something he asks for.**
+10. **The bell is silent when he touches it from Chapter 888 onward**, no chapter before that has it answer for him, and no chapter has him open a path alone after 888.
+11. **The first paper is never ratified.** Only the second is, and only in separate places, and no single vote is described as having made anything.
+12. **He is not restored to active command**, the office is not reformed, and the refusal of the permanent First Witness title is public and final and is not a scene of private sorrow.
+13. **The occupier is not killed and is not let go**, and no page puts him dead.
+14. **None of the five intentionally open questions is resolved**, and none is turned into a hope or a plan or a thing anybody was told he did well by.
+15. **No new final enemy, no new cosmic working, and no unexplained higher power appears in any of the fifty files.**
+16. **A money column foots four ways, the conversion is checked separately from the sum, no barred numeral is a price or an over-figure or a total, and no two of a part's ten closing paragraphs share a sentence of fifteen words or more.**
+17. **Merefen is not the market town with the weigh-house**, and no chapter puts them in the same street, and `Wendall Crake` is not a man of that town.
+18. **The engine's damage is not cured in this year and is nobody's achievement**, and the man in the archive is there for two hundred and forty-eight days before this year's first page and does not come out until Chapter 890.
+19. **No chapter of this year is set in the two hundred and ten days between day 3180 and day 3391**, and nothing in that stretch is recalled as having happened in sequence.
+20. **His age is thirty-two and is not recounted upward**, and the bleed, the limp, the ear and the scars are not improved, and the bleed gets no panel and no character notices it.
+21. **The ten barred words are at zero on all ten across the fifty files**, being *stage*, *ledger*, *qualification*, *failed*, *charter*, *mechanism*, *small*, *custodian*, *volume* and *block*, **and `outline/ending.md` uses two of them of its own accord — the word for the paper it ratifies, and *small*, in the wedding and in the damaged anchor — so a chapter that reaches for either of them has to say the thing in another word, and the fixed document is cited by path and not quoted to get round the bar. A page that quotes a fixed planning document in order to smuggle a barred word onto itself is a page that has broken two rules and gained nothing.**
+
+---
+
+## 16. Six recorded items
+
+1. **One plan reconciliation, and it is the thing this year was set up to answer.** The year before this one set up three things and conducted none, and the first of them was a paper in about four hundred places with a distribution nobody knew. **The reconciliation is that the distribution is a man's errand and not an organisation: a bundle addressed to a person and not a place, carried in the ordinary post and handed to whoever is buying string, kept by one copyist who says the paper is theirs and not his, and it costs him a year of his hands.** The Archive is not that answer and does not answer for it. **And no character in this year calls it a plan, and a writer may not call it one either, and it is the whole of what the paper has and it is enough to be worth four hundred copies.**
+2. **The standing defects this year inherits on purpose, and does not repair.** The firsts-of-a-month run, carried from twenty-eight at Chapter 0850 and printed eight times in this year as **twenty-ninth at Ch 0852, thirtieth at Ch 0857, thirty-first at Ch 0868, thirty-second at Ch 0872, thirty-third at Ch 0878, thirty-fourth at Ch 0882, thirty-fifth at Ch 0888, thirty-sixth at Ch 0891 and thirty-seventh at Ch 0897, and all eight carry a chapter and none may be added that carries none and the count may not be begun again.** The first part's unreproducing word counts and `about` band. The thirteen-thousand-word difference between two ways of counting the same eight hundred and fifty files. The two misstated cost codas and the malformed figure list on the pages that carry them. **The duplicate-paragraph base is resolved at §0.2 and is not a standing defect any more.** The fossil sentence on forty-two pages of the year before this one, which no page of this year may reproduce and whose content no page of this year asserts.
+3. **The false flags to count before enforcing.** The printed figures carried in the state files for `hemp`, `thirty-six`, `fifty-two`, `sixty-one` and `sixty-six` are false by a factor of between ten and a hundred and twenty. **Count before enforcing.** The withdrawn free sets, the 284-and-zero, and the claims that nothing under sixty is free. The mislabelled pair of run counts at the close of Chapter 850, which the pages give correctly and the state item does not. **Every figure this year prints about itself must be derived on the instrument this file names, or not printed.**
+4. **The antagonist's name is printed zero times in this year and may never be printed again in this project, and it is referred to on the page only as *that notice*, *the Marshal's hand*, *the sheet*, *the offer*, *the warrant* or *the people with the warrant*.** The two printings in the year before that were both documents and both are spent. **The reading that a cap is a year's and a year sets its own is not available, because that is the reading that permitted those two printings and it cannot be used to reopen a spent permanent prohibition by calling the thing that carries it a year.**
+5. **The barred kin-term is at zero in this year and the cap remains spent.** No one of the six words is printed in any of the fifty files and none is printed in this outline.
+6. **The three things this year promises it will not do, written out so that a part which breaks one is caught.** **One: this year does not decide what a road owes anybody.** It does not say that all paths should be open forever, it does not say that no path may ever close, and the answer it builds is narrower than either, being that **no path may be closed or made subject by force, and the burden of showing that one should be belongs to the person proposing it.** **Two: this year does not obtain, ask for, receive or infer the consent of any sealed community, does not name where a sealed road is, does not resolve whether the woman who carried him is alive, does not cure the bleed, does not cure the scar, and does not restore his command.** **Three: this year does not kill the occupier, does not let him go, does not restore the office that rewarded blind obedience, does not let the bell answer because he touched it, does not let the sealed path open for him, and resolves none of the five questions that are meant to stay open.**
+
+---
+
+## 17. Time budget
+
+**Main world: day 3391, the twenty-sixth of Goatmonth YR 324, a Thursday, to day 3690, the twenty-fifth of Frostmonth YR 325, a Tuesday. Two hundred and ninety-nine days elapsed, three hundred inclusive — ten carried months on the carried thirty-day rule, and five parts of sixty days, and a part is Mudmonth plus any one other month, which is sixty days because Mudmonth is sixty and every other month is thirty. THE DIVISOR IS EXACT AND IT IS NOT THE PREVIOUS YEAR'S, which ran two hundred and ten days on seven months in forty-two-day parts, and a writer may not assume this year ran the way that one ran.**
+
+**The chain is built forward from the single anchor of day 2310, the twenty-fifth of Goatmonth YR 321, a Monday, which is the last page of `outline/volume-14.md` and is stated four times in that year's close record, and from the carried thirty-day month with Mudmonth at sixty days and every other month at thirty, and from nothing else. THE YEAR TURNS AT THE FIRST OF THAWMONTH**, so that Thawmonth 3396 is the first of YR 325. **A writer derives the day of month and the weekday separately and never copies a row out of either printed table.**
+
+**The three facts that will break a writer who assumes them. First, this year begins two hundred and ten days after the last page of the year before it and the gap is real and is at §0.3. Second, the year turns inside the FIRST part and not in the second, at day 3396, and the first of Mudmonth falls in the same part at day 3426, so one part of this year carries two month boundaries and the turn of the year. Third, this year's five parts begin on Thursday, Monday, Friday, Tuesday and Saturday and end on Sunday, Thursday, Monday, Friday and Tuesday, which is the way round from the previous year, whose five parts all began on a Thursday and ended on a Wednesday, and a writer may not assume a part begins the way the last part began.**
+
+| Day | Date | Weekday | |
+| --- | --- | --- | --- |
+| **3180** | **Rainmonth the twenty-fifth, YR 324** | **Wed** | **not a market morning, and the last page of the year before this one, and the two hundred and ten unrecorded days begin on the next one** |
+| **3391** | **Goatmonth the twenty-sixth, YR 324** | **Thu** | **a market morning, and this year's first day, and Chapter 0851, and the first day of Part 0001** |
+| 3396 | Thawmonth the first, YR 325 | Tue | not a market morning, **the year turns here, and the twenty-ninth first of a month in a row**, and Chapter 0852 |
+| 3426 | Mudmonth the first, YR 325 | Thu | **a market morning, a month carried at sixty begins, and the thirtieth first of a month in a row**, and Chapter 0857 |
+| **3444** | **Mudmonth the nineteenth, YR 325** | **Mon** | **not a market morning, and the storm, and the year's clock, and the date he says out loud at the end of Chapter 0858** |
+| 3451 | Mudmonth the twenty-sixth, YR 325 | Mon | not a market morning, and the first day of Part 0002 |
+| 3486 | Longlight the first, YR 325 | Mon | not a market morning, a month carried at thirty begins, **the thirty-first first of a month in a row**, and Chapter 0867 |
+| 3511 | Longlight the twenty-sixth, YR 325 | Fri | not a market morning, and the first day of Part 0003 |
+| 3516 | Rainmonth the first, YR 325 | Wed | not a market morning, a month carried at thirty begins, **the thirty-second first of a month in a row**, and Chapter 0872 |
+| 3546 | Harvestmonth the first, YR 325 | Fri | not a market morning, a month carried at thirty begins, **the thirty-third first of a month in a row**, and Chapter 0878 |
+| 3571 | Harvestmonth the twenty-sixth, YR 325 | Tue | not a market morning, and the first day of Part 0004 |
+| 3576 | Fallowmonth the first, YR 325 | Sun | not a market morning, a month carried at thirty begins, **the thirty-fourth first of a month in a row**, and Chapter 0882 |
+| 3606 | Embermonth the first, YR 325 | Tue | not a market morning, a month carried at thirty begins, **the thirty-fifth first of a month in a row**, and Chapter 0888 |
+| 3631 | Embermonth the twenty-sixth, YR 325 | Sat | **a market morning, and the first day of Part 0005, and it carries no page** |
+| 3636 | Wolfmonth the first, YR 325 | Thu | **a market morning, a month carried at thirty begins, the thirty-sixth first of a month in a row, and the first page of the last part** |
+| 3666 | Frostmonth the first, YR 325 | Sat | **a market morning, a month carried at thirty begins, the thirty-seventh first of a month in a row, and Chapter 0897** |
+| **3690** | **Frostmonth the twenty-fifth, YR 325** | **Tue** | **not a market morning, and this manuscript's last day, and Chapter 0900, and the last day of Part 0005** |
+
+**The five parts are sixty days and begin on days 3391, 3451, 3511, 3571 and 3631, and each part's first day is the day after the last day of the part before it, and each part is exactly six weeks, which is eight weeks and four days. The market mornings inside them are eighteen, seventeen, seventeen, seventeen and seventeen, being nine Thursdays and nine Saturdays in the first and eight of one and nine of the other in each of the four after it, and a writer who needs the list derives it from the day number and not from this paragraph.**
+
+**The eight running figures this year carries, each with its anchor day printed, each derived from the chapter's own day, and the rule that governs them is at §18.** The bleed, counted from day 2920: **471 days at Chapter 0851 and 770 at Chapter 0900.** The dead grass in the scar, counted from day 2580: **811 and 1110.** The engine's damage, counted from day 3129, which is the fourth of Longlight YR 324, the day the first sheet of the year before this one reported: **262 and 561.** The days since the man went down into the lower archive, counted from day 3143, which this file fixes because the second sheet did not date it: **248 and 547.** The number of anchor fragments the occupier holds: **ten at Chapter 0851, eight at Chapter 0866, and then down one at a time.** The shortest interval the occupied timetable has allowed, in hours, which moves between pages and is never the same figure twice. The firsts of a month, **twenty-ninth to thirty-seventh, printed nine times and never begun again.** And the number of days since the last of the four hundred places was written to, which is a main-world count and is never converted into a path count.
+
+**The three frames that are not convertible, and this is the eighteenth year in which a road keeps a count of its own.** A main-world dateline carries a month and a weekday. A coast dateline carries an ebb and an hour and carries neither. A path dateline carries an open-crossing count and an hour and carries no month and no weekday and no tide in anybody's mouth. **The cracked bell carries a count in winters and not a count in days, and no chapter of this year converts it, because its day of purchase is in this manuscript's first year's own frame and not in this chain.**
+
+**AND BOTH PRINTED TABLES IN THIS PROJECT ARE CERTIFICATES AND NEITHER IS AN AUTHORITY, AND THE REASON IS PRINTED ON THE FACE OF EACH.** The table at `outline/volume-17.md` §17 is a certificate because its own note says its rows are derived and that no day of that year was derived from it and none may be. **The table at `outline/volume-13.md` §17 states on its own face that five of its rows were wrong in an earlier printing, being 1896, 1926, 1956, 1986 and 2016, and that correction is correct, so the carried figure of five wrong rows describes an earlier printing and not the file.** **THE CLAIM THAT THE SAME TABLE DISAGREES WITH ITS OWN ANCHOR IN EXACTLY ONE ROW, BEING DAY 1986, WAS WITHDRAWN AT `outline/volume-17.md` §17 AND `state/continuity.md` 1793 AND IS NOT REPEATED HERE. NO DAY OF THIS YEAR WAS DERIVED FROM EITHER TABLE AND NONE MAY BE.**
+
+---
+
+## 18. The structural prose finding, and what this year's writers are given to do
+
+**THIS IS THE MOST IMPORTANT THING IN THIS FILE AFTER THE ENDING ITSELF, AND IT IS NAMED AT `state/open-threads.md` 848 AND 853 AND OWNED BY THIS PHASE, AND IT IS THE REASON THE OWNERSHIP IS IN WORDS RATHER THAN IN A FIGURE.**
+
+**THE FINDING, IN THE STATE FILES' OWN WORDS: FOUR CONSECUTIVE PARTS OF THE YEAR BEFORE THIS ONE WERE WRITTEN UNDER PROHIBITION LISTS THAT LEFT THE CHAPTERS NOTHING TO DO. THE PROSE IS CONTINUITY BOOKKEEPING RATHER THAN SCENE. ABOUT TWENTY SERIES-WIDE FACTS RECUR IN ALL TEN FILES OF A PART WITH ONLY THE NUMERALS INCREMENTED. NO PROTAGONIST ACTION DRIVES ANY CHAPTER. A PART'S OWN CENTRAL EVENT RESOLVES IN A COST CODA FIVE DAYS AFTER THE FACT INSTEAD OF ON THE PAGE. DIALOGUE IS AT TEN QUOTED SPANS IN ABOUT THIRTY-ONE THOUSAND WORDS, WITH THREE CHAPTERS CARRYING NONE.**
+
+**THE REPAIR PASS COULD NOT FIX IT BECAUSE FIXING IT MEANS REWRITING TEN CHAPTERS AND A REPAIR PASS MUST NOT REWRITE A COMPLETED PART, AND THE ROOT CAUSE IS UPSTREAM IN `outline/volume-17.md` §7 TO §9 AND IN THE PROHIBITION LISTS, WHICH ENUMERATE SO MANY UNTAKEN ACTIONS THAT THE CHAPTERS HAVE NOTHING LEFT TO DO. THE OWNER IS THIS PHASE. AN OUTLINE THAT WANTS THAT PART BETTER RECORDS THAT IT WANTED IT BETTER AND CHANGES NOTHING, and this file wants it better and changes nothing.**
+
+**THE SHAPE OF THE DEFECT IS WORTH NAMING EXACTLY, BECAUSE IT IS THE SAME SHAPE AS §0.2. When the instrument is not written down, six numbers get published for one quantity and every successor reads a contradiction. When the chapter is not written down — when a prompt says what a chapter may not do and never says what it must do — the chapter fills itself with the only material the prompt supplied, which is the state.** Continuity bookkeeping is what a plan produces when the plan has handed the writer a list of facts and no errand.
+
+**SO THIS YEAR'S SHAPE IS INVERTED, AND THE INVERSION IS LEGISLATION AND NOT AN ASPIRATION. §15 prohibits twenty-one things and §16 item 6 makes three more. §8, part by part, gives every chapter a job, and the jobs are actions.**
+
+1. **Every chapter of this year has one thing a named person wants, one physical thing that happens in the room, and one change that is still true in the next chapter.** If a writer cannot name all three for a chapter, the chapter is not ready to be written and the part prompt's card for it is what is missing.
+2. **At least one action of the protagonist's is physical and irreversible in every file.** He lifts, carries, holds, opens, closes, signs, refuses, hands over, reads aloud, or stops. **The standing capacity may be spent, surrendered, refused and used on somebody else's anchor, and none of those is a chapter where he is stated to be elsewhere.**
+3. **No two consecutive chapters of a part share a room**, and each part names four settings in §8 and rotates them, so that a reader's ear is not being told the same door opens the same way ten times.
+4. **A part's central beat happens on its own page.** In this year the physical fight is Chapters 851 to 857, the reversal is Chapters 864 to 866, the argument is 875 to 883, the ratification is 884 to 890, and **none of the five resolves in a cost paragraph and none of the five resolves five days after the fact.**
+5. **A running figure appears in the body of at most four of a part's ten files**, and where a figure has not moved that week it is not printed at all. This is the direct antidote to the twenty facts recurring in ten files with only the numerals incremented, and it is a production rule about how often to print and not a prohibition on anything a person does.
+6. **At least one counted speech in at least eight of a part's ten files, and no sentence of fifteen words or more in two files of the same part.** The silence of those last parts was not a rule; it was the consequence of a cast observed entirely from outside. **Each part below therefore names who speaks in it, and a writer may add anyone else who is in the room.**
+
+**WHO SPEAKS IN EACH PART, so that no part is written from the outside.** Part 0001: the four people with the warrant who are named by their office, the copyist, the delegation's woman, and `Wendall Crake`. Part 0002: the ten delegations, the two keepers who withdraw, the woman who keeps the records, and the assessor `Nissa Carrow`. Part 0003: the six people who refuse him, `Sera Quen`, `Bryenna Faal`, `Corvin Marchbank`, `Orrin Shade`, and `Lysa Fenn`. Part 0004: the occupier, `Alys Kerman`, `Tovan Kest`, and seven people in seven places saying seven different local verbs. Part 0005: `Wendall Crake`, `Tam Ludlow`, `Lysa Fenn` in the hearings, `Tovan Kest` at the inspection, and the man himself, more than in any other part, because the last twenty chapters are his and the finding of this file is that he has been given nothing to do for seventeen years.
+
+**AND ONE LAST THING, WHICH IS A PRODUCTION RULE AND NOT A MORAL: this year has no chapter in which the state of the world is summarised.** There is no chapter whose movement is a paragraph of figures. **The figures live in the cost paragraph and the money column, in the house's own form, and the running figures live inside scenes where somebody is doing something with them.** A writer who finds themselves writing a paragraph whose only content is that a number has gone up by one has written the chapter the review found, and the fix is to give the number to a person and the person an errand.
+
+**AND THE MANUSCRIPT'S LAST FIFTY CHAPTERS ARE ITS OWN ANSWER TO WHAT A HERO IS FOR, AND IT IS NOT THE ONE THE TITLE PROMISES.** The title says Knight of Ten Thousand Paths and the ending says he is that because he refuses to own ten thousand worlds, and `outline/series.md` says the ending fulfils the title's promise in reverse, and this file agrees and adds the working version: **he is the one who spent ten months being the most capable keeper on a network and then spent the rest of his life being the person who can be asked, and the difference between those two things is the whole of this year, and it is not found out once, it is found out in public, by people he likes, in rooms he is standing in.**
