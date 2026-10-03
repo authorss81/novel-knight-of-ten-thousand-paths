@@ -1,0 +1,59 @@
+# Chapter 0860
+
+**Mudmonth the twenty-fifth, YR 325, a Sunday and not a market morning in the market town of about two thousand people four days off the coast, the room over the weigh-house shut behind its own door with the register under the press and the fourth ruled head still empty and nothing ruled anywhere in that town this month, a public reading room taken over a bakehouse across one lane, six tables carried in off a coast road, eleven people in it, the lamps lit at the fourth hour, and the rain coming off that roof in about nine places at once.**
+
+The room was taken on the twenty-second for a Sunday because the people who asked for it said it was to be open on the days the weigh-house room was shut, and that is the whole of the reason it exists.
+
+The six tables are the six out of a store over a boat-yard on that coast, and they came by a cart road of about nine miles and a ferry. They came in a cart on the Saturday with six women carrying them up a stair about nine inches wide, and a man of about fifty carried the six lamps and did not carry a table because nobody asked him to, and about four of the eleven people in that room said he ought to have carried one and about five said he was not asked to.
+
+What is on them is two copies of each of six fragments, being twelve sheets, and they came back from three holders who were not in that town and who gave them into the hands of the woman who came with the delegation without being asked a second time about it.
+
+There is flour in that room. The bakehouse under it had been shut since the second hour and the ovens had been banked at eleven and about nine people in that street could still smell bread in the walls, and about four of the eleven in that room said a paper ought not to be read over bread and about five said they had read worse over worse.
+
+The eleven are these. The delegation's woman. The man of about fifty with the fair hand. A woman of about forty who has run a crossing crew for about eleven years. A man of about forty-four who is clerk to the third province and whose seal is still not his. The man of about thirty-one who keeps a toll on a ferry and wrote the fourth of the six. The woman who keeps the room over the weigh-house, who came across the lane at the fourth hour and did not bring the register and did not open a book of any kind.
+
+Two men of the provisional council who are on no road and have no office except the one they came with. A man of about sixty who keeps an inn two streets off and who was not invited and came. A woman of about twenty-six who is the copyist's apprentice and who took the minutes of that morning. And him.
+
+His errand was the only one anybody had, and it was given to him in a passage in that coast town on the Saturday morning by a man of about fifty who said that six people writing a paper and nobody reading it does not make a paper, and that the reading was somebody's job, and that he was going up about nine hundred yards of stair that Saturday and could read on the way down.
+
+That is a thing about a bridgewright and not about anything else. He does not read a paper from the top. He reads across, with the sheet laid flat on a board and his thumb put on the line that says who is spoken to, and he moves the thumb and does not lift it off the paper, and about nine hundred crossings in nine counties have been read by that method by men who never wrote one.
+
+He had waited four and a half years to be the person a paper is built around, and what he got on that Sunday was the first work anybody had handed him in nine days that was not a fault in a building, and about four of the eleven people in that room had worked that out about him by the second hour and about five had not.
+
+The reading took about two hours and it produced nothing for the first hour and a half, because ten of the twelve sheets agree with each other on about everything they touch, and two of them do not touch at all, and one of those two is a sheet about a ferry toll, and a man who keeps a ferry has never once in his life needed to know how a paper travels.
+
+What he checked first, before any of it, was the names. There are about nine names in the twelve sheets and about four of them are of offices rather than of people, and one is of a woman who does not exist and whose office was given in her place, and that one is in the sheet about a province, and the province's man read the whole of that sheet out without stopping on it, and about four of the eleven did not notice the name at all and about five noticed it and said nothing.
+
+The place where it broke was not a matter of opinion and it was about two inches long.
+
+The third fragment says a community may refuse contact, and says the refusal may be made at any hour, and says the refusal needs no notice to any other party. The sixth fragment, which is the only one he wrote, says nobody may do a thing to a road without telling the two people the thing happens to, being the one who keeps it and the one who stands on it, and says the telling has to come before the doing.
+
+Put the two of them side by side on a board and they cannot both stand. A community is the one who keeps that road and is also the one who stands on it, and a community refusing at any hour without notice is refusing notice to itself, and then the province has nothing before it to answer and the road has nothing before it to answer and nobody has been refused anything at all.
+
+Four of the eleven people in that room wanted that to be a fault in somebody else's fragment.
+
+The clerk of the third province said it was a fault in the sixth, and said that a community cannot refuse a thing that crosses its own boundary without somebody on the other side of the boundary being told, and said that the third fragment was right and the sixth was wrong. The woman from the coast said it was a fault in the sixth, and said that the one who keeps a road is not the one who stands on it when the road is shut, because the one who stands on it is a different person and that person is not in the room.
+
+The woman with the crossing crew said that neither of them was a fault, and that a road has no such thing as a fault until somebody is standing on it wanting to get across, and that there was nobody in that room on a Sunday who wanted to get across. The copyist said he had copied what he was given, and that a man who says he copied what he was given is a man asking not to be asked, and about four of the eleven agreed with him and about five did not.
+
+The province that most needs that wording is the one whose people are the ones left on the far side of a refusal. There was nobody from it in that room, and nobody in that room could name it and be right, because a refusal is written by the one refusing and a border is drawn by the one on the other side of it.
+
+He read the two sentences out then, the two of them, and then he read them again with his thumb moved across the join, and then he said the part that had been in him since the fourth hour and had nothing to do with grammar.
+
+“**A person who keeps a road is not the one who stands on it when the road is shut, and a paper that only lets the person who keeps it say no is a paper about a road and not about people, and about four people in this room want that to be a fault in the other one and about five of you want it in mine, and I have stood at both ends of about nine of these in four and a half years and the end that hurts is never the end that refuses.**”
+
+That was ninety-seven words. About four of the eleven people in that room heard all of it and about five heard the end of it, and the woman with the crossing crew put her hand flat on the table she had been sitting at and said nothing for about as long as it takes to read a sheet twice.
+
+Then nobody mended it, and the reason for the not-mending was in that room and was in nobody's mouth.
+
+The copyist put it plain in about nine words and about four of the eleven found it the most useful thing anybody said on that Sunday. A fragment cannot be altered after it has been read aloud, because from that moment two people are holding two different papers, and a paper with two versions of it is worth less than a paper with a hole in it. So the only way to mend that join is a seventh sheet, and none of the six writers may write it, and there was nobody in that room entitled to write it.
+
+The apprentice wrote one line for the whole of that Sunday, and the line said that the join between the third and the sixth was found and not mended, and nobody in that room asked her for a second line, and about four of the eleven thought she had been given nothing and about five thought she had been given the whole of it.
+
+The woman with the crossing crew said she would ride for that province on the Monday morning, and that it was two days on the road and one night in a town that is not this one, and that she would come back on the Wednesday with whatever that province had in its own hand or with nothing at all.
+
+Then eleven people stood up in a room over a bakehouse on a Sunday evening in the mud month with six tables in it and about nine of them had read one sentence out of the twelve sheets and understood it as a rule about paper, and one of them had read the same sentence and understood what it does to a person on the far side of a road, and he was the one who had written the other half of it.
+
+**And the cost of that Sunday is six tables carried up a stair about nine inches wide and twelve sheets laid out on them and two hours of reading that found a join about two inches long and did not mend it, because the only hand that can mend it is in a province about four days off and that hand has not been asked and this page is not about a man asking for it. Eleven people in a room over a bakehouse on a Sunday evening, and one sentence read by all of them and understood by one. A fragment cannot be altered once it has been read aloud, and there was nobody in that room entitled to write the seventh. Two days of riding on the Monday and a night in a town that is not this one and the Wednesday. Six writers of six. The engine damaged three hundred and twenty-one days. Two hundred and forty-eight days of one man in a lower archive at this year's first page and three hundred and seven of them at this one, and nobody in eleven counties knows that figure but him. Five hundred and thirty days of a bleed on the inside of one wrist that nobody has asked him about and that has had no panel and no explanation and no page of its own.**
+
+**a bundle of quills at 28, a cake of ink at 29, a ream of writing paper at 30, a sheet of blotting paper at 31, a stick of sealing wax at 32, a lamp at 34, a foot of rule at 36, a pair of dividers at 37, a bound book at 39, and a chest of tallow candles at 40.** Twenty-eight, twenty-nine, thirty, thirty-one, thirty-two, thirty-four, thirty-six, thirty-seven, thirty-nine and forty is three hundred and thirty-six pence. A mark is forty-eight pence and three hundred and thirty-six pence is seven marks and nothing over, and the conversion was checked on its own and not out of the sum. **The band of what this manuscript has already printed was gone through again from sixty upward before this column was costed, and the figure under it is an old one taken whole from a page in this manuscript, because two figures standing open in that band are a pair and a pair is not a number anybody can arrive at.** Some of the figures in that chapter that are not in the column are one, two, three, four, five, six, seven, nine, ten, eleven, twelve, twenty, twenty-two, twenty-four, twenty-five, twenty-six, forty-eight, fifty, nine hundred, four and a half, two hundred and forty-eight, three hundred and twenty-one, three hundred and seven and five hundred and thirty.
